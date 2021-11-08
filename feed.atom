@@ -1,15 +1,15 @@
 ﻿<?xml version="1.0" encoding="utf-8"?>
 <feed xmlns="http://www.w3.org/2005/Atom">
-	<id>https://enblog.muktomona.com/</id>
+	<id>https://en.muktomona.com/</id>
 	<title />
-	<link rel="self" href="https://enblog.muktomona.com/" />
+	<link rel="self" href="https://en.muktomona.com/" />
 	<rights>Copyright © 2021</rights>
-	<updated>2021-11-08T02:18:55Z</updated>
+	<updated>2021-11-08T02:25:51Z</updated>
 	<subtitle>MuktoMona English Writers Corner</subtitle>
 	<entry>
-		<id>https://enblog.muktomona.com/posts/welcome</id>
+		<id>https://en.muktomona.com/posts/welcome</id>
 		<title>Welcome MM EN Site</title>
-		<link href="https://enblog.muktomona.com/posts/welcome" />
+		<link href="https://en.muktomona.com/posts/welcome" />
 		<updated>2021-03-19T00:00:00Z</updated>
 		<content>&lt;h3 id="en-site-intro"&gt;En Site Intro&lt;/h3&gt;
 &lt;p&gt;Welcome to En Site: blog/archive/library&lt;/p&gt;
