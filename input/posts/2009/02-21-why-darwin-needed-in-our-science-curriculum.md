@@ -1,0 +1,49 @@
+---
+Title: Why Darwin is needed in our science curriculum
+Tags:
+  - darwin day celebration
+  - darwin day
+  - darwin day celebration 2009
+  - darwin
+  - darwin in science curriculum
+  - politics
+  - religion
+  - mukto-mona
+  - bangladesh
+  - science
+  - celebration
+  - Jahed
+Published: 2009-02-21 21:51:07 +06:00
+Updated: 2009-03-04 01:23:54 +06:00
+RedirectFrom:
+  - 2009/02/21/why-darwin-needed-in-our-science-curriculum/
+---
+
+<span style="font-size: 10pt;">-Jahed Ahmed</span>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">This came as a little surprise. Just days before Charles Darwin's 200<sup>th</sup> birth anniversary and the 150<sup>th</sup> publication anniversary of his famous book, the Origin of Species, the Church of England has issued a statement of apology for once vehemently rejecting Darwin's theory on evolution. The statement says, "<em>Charles Darwin: 200 years from your birth, the Church of England owes you an apology for misunderstanding you and, by getting our first reaction wrong, encouraging others to misunderstand you still. We try to practise the old virtues of 'faith seeking understanding' and hope that makes some amends."</em><span> </span></span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">It may be recalled that soon after its first publication back in 1859, Darwin's book, originally titled <em><span style="color: black;">On the Origin of Species by Means of Natural Selection,</span></em></span><em><span style="font-size: 10pt; font-family: Verdana; color: #333333;"> </span></em><span style="font-size: 10pt;">had created a massive uproar in the Christian England. Some found its content, as the then Church of England termed it, 'heretical', 'dangerous' to the belief in God, where as others saw Darwin's theory as a remarkable feat in the field of science. In a similar attempt to amend past mistakes, in 1996, John Paul II, the chief of the Vatican, said that there was no essential conflict between Darwin's theory and Catholicism. </span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">The history of the Christian West's conflicts with science is long and often at odds with how science is flourishing in the west today. Long before Darwin, astronomer Bruno was burned at the stake for refusing to deny that the earth revolved around the sun. Galileo, another pivotal astronomer and mathematician, was put under house arrest and forced to say that his theory—now a universally accepted scientific truth—in defense of Copernicus' hypothesis about the sun, rather than the earth, being at the center of our solar system was not true. </span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">What, however, is noteworthy is that due to the historic separation of church and state, the west has achieved its goal of minimizing the conflict between science and theology. Consequently, science has advanced and so has the west as a modern civilization. Even christian theologians in the west have realized that a scientific truth, at the most, could be suppressed but not killed. They further understood that Galileo, Darwin and their likes might not have been the most impeccable persons on the earth, their works in science, however, do have merits and must not be kept away from science studies. Many theologians and scientists in the west have been working toward the reconciliation between science and religion, although some groups on both sides doubt that it is possible.</span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">Darwin often is one of the easily misunderstood scientists in history. Even educated people fall prey to the deliberate propaganda and myths that initially started with the orthodox evangelical Christians (also known as the creationists) who had always believed literally every word in the Bible. I will cite two examples. That men came from monkeys is a myth which Darwin had never said himself. All he said was that both men and moneys may have evolved from a common ancestor. Although at the time Darwin did not have any knowledge of modern molecular genetics, the post Darwinian biologists and geneticists, much to their surprises, discovered that men and chimpanzees have at least 95% genes in common. Another anti-Darwin myth is that studying Darwin would convert one to an atheist. The truth, however, is that Darwin never declared himself an atheist in his life time. What is even more important, Darwin's theory, like any other discipline in science, does not deal with whether God exists or not. Science's sole objective is to discover truth about the laws of nature. For this very reason, there are scientists who believe in God; those who do not and many more who are simply uncertain or skeptics. To believe or not in God, is up to one's personal choice and by no way, merits or demerits that person's works in the field of science as a scientist. Francis Collins, for instance, is as much a brilliant molecular biologist as he is a devout catholic. On the other hand, Richard Dawkins, an esteemed Oxford zoologist, is simply an atheist. Yet they joined TIME magazine in 2006 to exchange opinions about the question of faith. None between them disregarded each other's contribution in science because of their disagreement on the question of God's existence, as they both treat that as a personal choice. </span></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">In a local context, in Bangladesh, Darwin and his natural selection theory had suddenly disappeared from secondary and higher secondary science text books. Quite sadly, such an unproductive decision was made in 2001, when the secular Awami League government was in power. In other words, it's worse than the limited mention of Darwin in our science curriculum that was once allowed during the Pakistan period. In a recent article sent to Mukto-Mona (www.muktomona.com, the only Bangladeshi website that has already drawn international attention for celebrating the Darwin Day on web), Dr. M. Akhtaruzzaman—a retired botany professor at Dhaka University and a dedicated proponent of the Darwin's natural selection theory—says, <em>"we must urgently re-introduce in our SSC and HSC Syllabi some simple topics about Evolution such as Darwinism. It is amazing that in the 21st century millions of our school and college graduates will never know anything about Darwin or Darwinism." </em></span></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">"While food satisfies a body's needs, books satisfy a mind's,'" Honorable Prime Minister, Sheikh Hasina, made this beautiful remark during her inaugural speech at the Bangla Academy <em>ekushe</em> book fair 2009 in Dhaka. Among other things, she hoped that the book fair would help her government achieve its goal of bringing about a positive change in our country. </span></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">On this auspicious 200<sup>th</sup>'s birth anniversary of Charles Darwin, may we expect that the prime minister and her secular government would take immediate steps to re-introduce Darwin and his theories at school and college level, thus paving the way to the scientific growth of our young students' minds?</span></p>
+<p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"></p>
+<p class="MsoNormal" style="text-align: center;" align="center"><span style="font-size: 10pt;">----</span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify;"><span style="font-size: 10pt;">02.20.2009</span></p>
+<p class="MsoNormal" style="text-align: justify;"><span style="font-size: 10pt;">New York</span></p>
+<p class="MsoNormal" style="text-align: justify;"></p>
+<p class="MsoNormal" style="text-align: justify;"><span style="font-size: 8pt;">About the writer: Jahed Ahmed is employed in the New York State Dept. of Agriculture and Markets. He is involved <span style="color: black;">with <a href="https://muktomona.com/"><span style="color: black;">www.muktomona.com</span></a>, a South Asian network of humanists and freethinkers, and the Muktanwesha, a science and reason based magazine published from Dhaka. E-mail: <a href="mailto:worldcitizen73@yahoo.com"><span style="color: black;">worldcitizen73@yahoo.com</span></a></span></span></p>
+<p align="center"><span style="font-size: 8pt;"><span style="color: black;"><span style="color: black;"></span></span></span></p>
+<p align="center"><span style="color: black;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/index.htm"><span style="font-size: medium;">Mukto</span><span style="font-size: medium;">-Mona Celebrates Darwin Day 2009</span></a></span></p>
+
+<span style="font-size: 8pt;"><span style="color: black;"><span style="color: black;"></span></span></span>
+<p align="center"><span style="font-size: medium;">
+</span>
+<p align="center"></p>
