@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-05 10:31:35 +06:00
 Updated: 2008-11-05 10:34:48 +06:00
-RedirectFrom:
-  - 2008/11/05/history-is-being-made-in-the-usa/
+OldURL: 2008/11/05/history-is-being-made-in-the-usa/
 ---
 
 <font size="4" color="#008000"><strong>History is being made in the USA </strong></font>

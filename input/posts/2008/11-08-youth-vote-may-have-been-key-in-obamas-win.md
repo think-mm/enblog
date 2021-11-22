@@ -6,8 +6,7 @@ Tags:
   - Jahed
 Published: 2008-11-08 03:20:05 +06:00
 Updated: 2008-11-08 03:24:04 +06:00
-RedirectFrom:
-  - 2008/11/08/youth-vote-may-have-been-key-in-obamas-win/
+OldURL: 2008/11/08/youth-vote-may-have-been-key-in-obamas-win/
 ---
 
 <strong>Youth vote may have been key in Obama's win  </strong>

@@ -9,8 +9,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-02-28 01:45:13 +06:00
 Updated: 2009-02-28 02:14:33 +06:00
-RedirectFrom:
-  - 2009/02/28/the-bdr-revolt-and-role-of-bangladesh-intelligence-agencies/
+OldURL: 2009/02/28/the-bdr-revolt-and-role-of-bangladesh-intelligence-agencies/
 ---
 
 <h2 style="line-height: 200%; text-align: center;"><strong><span style="color: #008000; font-family: Cambria;">The BDR Revolt and Role of Bangladesh Intelligence Agencies</span></strong></h2>

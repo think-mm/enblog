@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-03 21:25:26 +06:00
 Updated: 2008-11-03 21:30:16 +06:00
-RedirectFrom:
-  - 2008/11/03/is-dawkins-a-fundamentalist/
+OldURL: 2008/11/03/is-dawkins-a-fundamentalist/
 ---
 
 <font color="#008000"><strong>Is Richard Dawkins a Fundamentalist?</strong></font>

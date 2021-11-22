@@ -11,8 +11,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-27 18:48:55 +06:00
 Updated: 2009-01-27 19:21:50 +06:00
-RedirectFrom:
-  - 2009/01/27/allah-recognizes-the-existence-of-other-gods/
+OldURL: 2009/01/27/allah-recognizes-the-existence-of-other-gods/
 ---
 
 <h2><span style="color: #008000;">Allah recognizes the existence of other Gods! </span></h2>

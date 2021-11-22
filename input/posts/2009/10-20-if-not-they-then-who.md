@@ -7,8 +7,7 @@ Tags:
   - Ripan
 Published: 2009-10-20 07:16:53 +06:00
 Updated: 2009-10-20 07:16:53 +06:00
-RedirectFrom:
-  - 2009/10/20/if-not-they-then-who/
+OldURL: 2009/10/20/if-not-they-then-who/
 ---
 
 Ripan Kumar Biswas

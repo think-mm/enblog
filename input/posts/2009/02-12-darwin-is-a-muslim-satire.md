@@ -10,8 +10,7 @@ Tags:
   - Abul Kasem
 Published: 2009-02-12 15:37:03 +06:00
 Updated: 2009-05-17 09:39:41 +06:00
-RedirectFrom:
-  - 2009/02/12/darwin-is-a-muslim-satire/
+OldURL: 2009/02/12/darwin-is-a-muslim-satire/
 ---
 
 <p class="MsoTitle"><span lang="EN-AU"><span style="color: #008000;">Darwin is a Muslim

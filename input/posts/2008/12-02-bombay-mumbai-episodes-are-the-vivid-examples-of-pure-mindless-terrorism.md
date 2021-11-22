@@ -10,8 +10,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2008-12-02 10:58:53 +06:00
 Updated: 2009-07-15 07:19:26 +06:00
-RedirectFrom:
-  - 2008/12/02/bombay-mumbai-episodes-are-the-vivid-examples-of-pure-mindless-terrorism/
+OldURL: 2008/12/02/bombay-mumbai-episodes-are-the-vivid-examples-of-pure-mindless-terrorism/
 ---
 
 

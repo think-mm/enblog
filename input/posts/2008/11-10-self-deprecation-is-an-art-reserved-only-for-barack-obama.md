@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-10 22:06:39 +06:00
 Updated: 2009-07-09 18:20:09 +06:00
-RedirectFrom:
-  - 2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama/
+OldURL: 2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama/
 ---
 
 

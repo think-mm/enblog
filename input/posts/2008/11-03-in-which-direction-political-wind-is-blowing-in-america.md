@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-03 12:22:50 +06:00
 Updated: 2009-07-09 18:22:07 +06:00
-RedirectFrom:
-  - 2008/11/03/in-which-direction-political-wind-is-blowing-in-america/
+OldURL: 2008/11/03/in-which-direction-political-wind-is-blowing-in-america/
 ---
 
 

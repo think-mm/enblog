@@ -4,8 +4,7 @@ Tags:
   - Abul Kasem
 Published: 2009-11-10 12:42:47 +06:00
 Updated: 2009-11-12 03:18:42 +06:00
-RedirectFrom:
-  - 2009/11/10/the-islamic-mind-of-major-nidal-hasan/
+OldURL: 2009/11/10/the-islamic-mind-of-major-nidal-hasan/
 ---
 
  <span style="font-size: medium; font-family: Garamond;">Just a few days ago a US army Psychiatrist, Major Nidal Malik Hasan, killed in cold blood 12 US soldiers and wounded 30 others. Main stream media says he was a loner, a frustrated person, who acted alone to soothe his dissatisfaction through slaughtering unarmed, unprovoked servicemen. It is like a lunatic gone loose—the media wants us to believe.</span>

@@ -11,8 +11,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-01-13 11:33:21 +06:00
 Updated: 2009-07-15 07:18:18 +06:00
-RedirectFrom:
-  - 2009/01/13/my-interview-with-frontpage-magazine/
+OldURL: 2009/01/13/my-interview-with-frontpage-magazine/
 ---
 
 

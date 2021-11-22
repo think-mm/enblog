@@ -11,8 +11,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-07-17 09:23:49 +06:00
 Updated: 2009-07-19 06:57:51 +06:00
-RedirectFrom:
-  - 2009/07/17/remembering-the-first-lunar-landing-after-40-long-years/
+OldURL: 2009/07/17/remembering-the-first-lunar-landing-after-40-long-years/
 ---
 
 Remembering the first lunar landing after 40 long years!

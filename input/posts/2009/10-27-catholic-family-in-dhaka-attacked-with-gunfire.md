@@ -14,8 +14,7 @@ Tags:
   - William Gomes
 Published: 2009-10-27 08:28:58 +06:00
 Updated: 2009-10-27 08:28:58 +06:00
-RedirectFrom:
-  - 2009/10/27/catholic-family-in-dhaka-attacked-with-gunfire/
+OldURL: 2009/10/27/catholic-family-in-dhaka-attacked-with-gunfire/
 ---
 
 By William Gomes

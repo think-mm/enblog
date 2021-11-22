@@ -4,8 +4,7 @@ Tags:
   - Biplab Pal
 Published: 2009-10-03 08:21:51 +06:00
 Updated: 2009-10-03 08:21:51 +06:00
-RedirectFrom:
-  - 2009/10/03/gandhism-and-modern-biology/
+OldURL: 2009/10/03/gandhism-and-modern-biology/
 ---
 
 <a href="https://theosophywatch.files.wordpress.com/2009/08/dna_thmb.jpg"><img style="text-align: center; margin: 0px auto 10px; width: 177px; display: block; height: 125px; cursor: hand;" src="https://theosophywatch.files.wordpress.com/2009/08/dna_thmb.jpg" border="0" alt="" /></a>

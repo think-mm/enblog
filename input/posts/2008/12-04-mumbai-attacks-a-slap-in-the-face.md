@@ -10,8 +10,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-12-04 00:46:56 +06:00
 Updated: 2008-12-04 00:46:56 +06:00
-RedirectFrom:
-  - 2008/12/04/mumbai-attacks-a-slap-in-the-face/
+OldURL: 2008/12/04/mumbai-attacks-a-slap-in-the-face/
 ---
 
 

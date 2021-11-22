@@ -8,8 +8,7 @@ Tags:
   - Bijon Sarma
 Published: 2009-04-24 23:28:07 +06:00
 Updated: 2009-07-16 22:13:10 +06:00
-RedirectFrom:
-  - 2009/04/24/student-politics-and-the-al-government/
+OldURL: 2009/04/24/student-politics-and-the-al-government/
 ---
 
 <div class="Authore"><span style="font-family: Verdana;"><span style="font-weight: 700; text-decoration: none;">Bijon B Sarma </span></span><span style="font-family: Verdana;">

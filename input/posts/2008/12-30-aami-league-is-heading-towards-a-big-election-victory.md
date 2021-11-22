@@ -2,16 +2,12 @@
 Title: MohaJot is heading towards a big election victory
 Tags:
   - bangladesh
-  - election 2008
-  - victory
-  - awami league
-  - moha jot
+  - election
   - politics
-  - Mukto-Mona Editor
+  - Ajoy Roy
 Published: 2008-12-30 06:16:19 +06:00
 Updated: 2008-12-30 06:18:45 +06:00
-RedirectFrom:
-  - 2008/12/30/aami-league-is-heading-towards-a-big-election-victory/
+OldURL: 2008/12/30/aami-league-is-heading-towards-a-big-election-victory/
 ---
 
 
@@ -39,4 +35,4 @@ RedirectFrom:
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">As expected the loosing BNP-alliance leader accused the care taker government and election commission for failure of holding a free and fair election she has brought in charges of election engineering aiming to put non-BNP parties to power. And in the process, she accused involvement of not only Caretaker government and election commission but even the army. She failed to see her past records and present behaviour.</font><font face="Verdana"> </font><o></o><font size="3" face="Verdana"> </font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Regards to MMs</font><font face="Verdana"> </font><o></o><font size="3" face="Verdana"> </font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Ajoy Roy</font><font face="Verdana"> </font></p>
-<p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana"><st1></st1>Dhaka, December 30, 2008</font></p>
+<p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana"><st1></st1>Dhaka, Dec 30, 2008</font></p>

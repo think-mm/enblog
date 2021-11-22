@@ -11,8 +11,7 @@ Tags:
   - Abul Kasem
 Published: 2009-01-12 01:07:46 +06:00
 Updated: 2009-05-17 09:40:54 +06:00
-RedirectFrom:
-  - 2009/01/12/a-guide-to-the-qur%e2%80%99anic-contradictions-part-2/
+OldURL: 2009/01/12/a-guide-to-the-qur%e2%80%99anic-contradictions-part-2/
 ---
 
 <h2 class="MsoTitle"><span style="color: #008000;">A Guide to the Qur'anic Contradictions (Part-2)</span></h2>

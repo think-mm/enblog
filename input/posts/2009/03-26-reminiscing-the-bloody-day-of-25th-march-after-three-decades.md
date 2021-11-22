@@ -11,8 +11,7 @@ Tags:
   - Abul Kasem
 Published: 2009-03-26 07:29:38 +06:00
 Updated: 2009-05-17 09:38:37 +06:00
-RedirectFrom:
-  - 2009/03/26/reminiscing-the-bloody-day-of-25th-march-after-three-decades/
+OldURL: 2009/03/26/reminiscing-the-bloody-day-of-25th-march-after-three-decades/
 ---
 
 <strong><span style="color: #000080;"> </span></strong>

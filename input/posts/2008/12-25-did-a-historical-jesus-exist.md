@@ -1,17 +1,11 @@
 ---
 Title: Did a historical Jesus exist?
 Tags:
-  - jesus
-  - myth
   - christianity
-  - christian
-  - religion
-  - philosophy
-  - Mukto-Mona Editor
+  - Avijit Roy
 Published: 2008-12-25 08:52:46 +06:00
 Updated: 2013-12-26 23:49:16 +06:00
-RedirectFrom:
-  - 2008/12/25/did-a-historical-jesus-exist/
+OldURL: 2008/12/25/did-a-historical-jesus-exist/
 ---
 
 
@@ -27,8 +21,7 @@ RedirectFrom:
 
 <font color="#008000">Merry Christmas to all my Christian friends and happy holidays. </font>
 
-<font color="#008000">-Avijit Roy </font>
-<a href="https://muktomona.com/">www.muktomona.com</a> ]</blockquote>
+<font color="#008000">-Avijit Roy </font> ]</blockquote>
 <hr /><center> <font size="+3" color="#008000" face="Verdana">Did a historical Jesus exist?</font>
 
 </center>

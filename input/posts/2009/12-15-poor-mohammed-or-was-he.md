@@ -4,8 +4,7 @@ Tags:
   - Mumin Salih
 Published: 2009-12-15 23:42:45 +06:00
 Updated: 2009-12-15 23:42:45 +06:00
-RedirectFrom:
-  - 2009/12/15/poor-mohammed-or-was-he/
+OldURL: 2009/12/15/poor-mohammed-or-was-he/
 ---
 
 

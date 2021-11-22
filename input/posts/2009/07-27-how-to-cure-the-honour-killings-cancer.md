@@ -12,8 +12,7 @@ Tags:
   - Tarek Fatah
 Published: 2009-07-27 22:41:19 +06:00
 Updated: 2009-07-29 08:03:16 +06:00
-RedirectFrom:
-  - 2009/07/27/how-to-cure-the-honour-killings-%e2%80%98cancer%e2%80%99/
+OldURL: 2009/07/27/how-to-cure-the-honour-killings-%e2%80%98cancer%e2%80%99/
 ---
 
 <blockquote>

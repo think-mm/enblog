@@ -10,8 +10,7 @@ Tags:
   - Farida Majid
 Published: 2009-06-06 08:37:22 +06:00
 Updated: 2009-07-21 21:26:12 +06:00
-RedirectFrom:
-  - 2009/06/06/wb-report-on-the-goodness-of-qoumi-madrassahs/
+OldURL: 2009/06/06/wb-report-on-the-goodness-of-qoumi-madrassahs/
 ---
 
 <p class="MsoNormal" align="center"><span style="color: #008000;"><strong><span style="font-size: 14pt;">WB Report on the Goodness of Qoumi Madrassahs</span></strong></span><strong><span style="font-size: 14pt;"> </span></strong></p>

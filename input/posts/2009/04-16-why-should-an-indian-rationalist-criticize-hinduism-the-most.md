@@ -8,8 +8,7 @@ Tags:
   - Meera Nanda
 Published: 2009-04-16 20:50:45 +06:00
 Updated: 2009-09-07 08:22:54 +06:00
-RedirectFrom:
-  - 2009/04/16/why-should-an-indian-rationalist-criticize-hinduism-the-most/
+OldURL: 2009/04/16/why-should-an-indian-rationalist-criticize-hinduism-the-most/
 ---
 
 <p align="center"><span style="font-size: medium; color: #008000; font-family: Verdana;"><strong>Why Should an Indian Rationalist Criticize Hinduism The Most</strong></span></p>

@@ -14,8 +14,7 @@ Tags:
   - Srinivas Kakkilaya
 Published: 2009-02-08 04:59:37 +06:00
 Updated: 2009-08-27 23:07:56 +06:00
-RedirectFrom:
-  - 2009/02/08/do-we-need-yoga/
+OldURL: 2009/02/08/do-we-need-yoga/
 ---
 
  

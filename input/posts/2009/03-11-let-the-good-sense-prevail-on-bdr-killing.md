@@ -9,8 +9,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-03-11 00:35:16 +06:00
 Updated: 2009-03-11 00:35:16 +06:00
-RedirectFrom:
-  - 2009/03/11/let-the-good-sense-prevail-on-bdr-killing/
+OldURL: 2009/03/11/let-the-good-sense-prevail-on-bdr-killing/
 ---
 
 <span style="font-family: Georgia;"> 

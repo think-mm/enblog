@@ -4,8 +4,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-12-30 20:31:48 +06:00
 Updated: 2009-12-30 20:31:48 +06:00
-RedirectFrom:
-  - 2009/12/30/calling-radicalization-instead-of-islamization-ignorance-or-political-correctness/
+OldURL: 2009/12/30/calling-radicalization-instead-of-islamization-ignorance-or-political-correctness/
 ---
 
 By Syed Kamran Mirza

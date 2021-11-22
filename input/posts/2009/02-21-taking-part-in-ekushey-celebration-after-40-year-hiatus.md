@@ -11,8 +11,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-02-21 20:43:40 +06:00
 Updated: 2009-07-09 18:16:52 +06:00
-RedirectFrom:
-  - 2009/02/21/taking-part-in-ekushey-celebration-after-40-year-hiatus/
+OldURL: 2009/02/21/taking-part-in-ekushey-celebration-after-40-year-hiatus/
 ---
 
 <div><span style="font-size: large; color: #008000; font-family: Garamond;"><strong>Taking part in Ekushey after 40-year hiatus!</strong></span></div>

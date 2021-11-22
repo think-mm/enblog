@@ -2,15 +2,13 @@
 Title: BD General Election and the shakened Minorities
 Tags:
   - bangladesh
-  - election 2008
+  - election
   - minorities
-  - politics
   - human rights
-  - Mukto-Mona Editor
+  - Ajoy Roy
 Published: 2008-12-28 14:43:26 +06:00
 Updated: 2008-12-28 14:43:26 +06:00
-RedirectFrom:
-  - 2008/12/28/bd-general-election-and-the-shakened-minorities/
+OldURL: 2008/12/28/bd-general-election-and-the-shakened-minorities/
 ---
 
 

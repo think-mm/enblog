@@ -1,18 +1,13 @@
 ---
 Title: Joan Baez and our Liberation War
 Tags:
-  - joan baez
-  - song of bangladesh
-  - avijit english
-  - culture
-  - mukto-mona
   - bangladesh
   - liberation war
+  - joan baez
   - Avijit Roy
 Published: 2008-12-16 19:32:40 +06:00
 Updated: 2016-12-27 22:32:49 +06:00
-RedirectFrom:
-  - 2008/12/16/joan-baez-and-our-liberation-war/
+OldURL: 2008/12/16/joan-baez-and-our-liberation-war/
 ---
 
 <p style="line-height: 200%" align="center"><span style="font-size: large; color: #800000;">Joan Baez and our Liberation War</span></p>

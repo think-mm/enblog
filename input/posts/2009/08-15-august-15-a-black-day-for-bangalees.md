@@ -11,8 +11,7 @@ Tags:
   - shabbir
 Published: 2009-08-15 21:42:51 +06:00
 Updated: 2009-08-16 00:51:22 +06:00
-RedirectFrom:
-  - 2009/08/15/august-15-a-black-day-for-bangalees/
+OldURL: 2009/08/15/august-15-a-black-day-for-bangalees/
 ---
 
 <span style="font-size: medium; font-family: Garamond;">Dear All, </span>

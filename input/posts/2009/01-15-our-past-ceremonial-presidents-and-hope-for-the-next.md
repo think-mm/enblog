@@ -9,8 +9,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-01-15 17:56:22 +06:00
 Updated: 2009-07-21 20:28:54 +06:00
-RedirectFrom:
-  - 2009/01/15/our-past-ceremonial-presidents-and-hope-for-the-next/
+OldURL: 2009/01/15/our-past-ceremonial-presidents-and-hope-for-the-next/
 ---
 
 

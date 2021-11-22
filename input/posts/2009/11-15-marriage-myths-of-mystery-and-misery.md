@@ -17,8 +17,7 @@ Tags:
   - William Gomes
 Published: 2009-11-15 00:57:46 +06:00
 Updated: 2009-11-15 00:57:46 +06:00
-RedirectFrom:
-  - 2009/11/15/marriage-myths-of-mystery-and-misery/
+OldURL: 2009/11/15/marriage-myths-of-mystery-and-misery/
 ---
 
 The institution of marriage and its history are as long and varied as the history of human race. Many dynasties rose and fell, notable novels and poems were written, and wars were fought over the issue of marriage. Laws were introduced in different parts of the world to protect the institution of marriage.

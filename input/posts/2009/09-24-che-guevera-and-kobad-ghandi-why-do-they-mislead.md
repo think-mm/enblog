@@ -9,8 +9,7 @@ Tags:
   - Biplab Pal
 Published: 2009-09-24 09:21:50 +06:00
 Updated: 2009-09-24 09:31:14 +06:00
-RedirectFrom:
-  - 2009/09/24/che-guevera-and-kobad-ghandi-why-do-they-mislead/
+OldURL: 2009/09/24/che-guevera-and-kobad-ghandi-why-do-they-mislead/
 ---
 
 No doubt for last two days, arrest of Kobad Ghandhi, a politburo member of the Maoist rebel group rocked the national media. Definitely what stirred the most is his sacrifice of career and Persian family fortune which he and his wife inherited during 1970. After he was baptized in Leninism in London, he continued to serve oppressed rural people of India and finally joined Maoist rebels during 1980's. One may think that rebels are just trigger happy gun master fighting against either Indian military force or Salua Julum but BBC interview of Kobad in 2008 clearly speaks volume for his work among the oppressed rural people in Madhya Pradesh.

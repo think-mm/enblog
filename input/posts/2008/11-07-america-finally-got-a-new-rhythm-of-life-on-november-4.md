@@ -4,8 +4,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-07 08:24:34 +06:00
 Updated: 2009-07-09 18:20:39 +06:00
-RedirectFrom:
-  - 2008/11/07/america-finally-got-a-new-%e2%80%98rhythm-of-life%e2%80%99-on-november-4/
+OldURL: 2008/11/07/america-finally-got-a-new-%e2%80%98rhythm-of-life%e2%80%99-on-november-4/
 ---
 
 

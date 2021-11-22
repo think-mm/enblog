@@ -14,8 +14,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-08-27 10:22:02 +06:00
 Updated: 2009-08-27 20:55:55 +06:00
-RedirectFrom:
-  - 2009/08/27/with-the-passing-of-senator-ted-kennedy-bangladesh-lost-a-very-dear-friend/
+OldURL: 2009/08/27/with-the-passing-of-senator-ted-kennedy-bangladesh-lost-a-very-dear-friend/
 ---
 
 

@@ -1,21 +1,17 @@
 ---
 Title: Homage to my martyr colleagues
 Tags:
-  - martyr intellectuals
-  - 1971
   - martyr intellectual day
-  - শহীদ বুদ্ধিজীবী দিবস
-  - culture
-  - mukto-mona
   - bangladesh
   - liberation war
-  - Mukto-Mona Editor
+  - 1971 genocide
+  - Ajoy Roy
 Published: 2008-12-14 22:14:27 +06:00
 Updated: 2008-12-14 22:38:55 +06:00
-RedirectFrom:
-  - 2008/12/14/homage-to-my-martyr-colleagues/
+OldURL: 2008/12/14/homage-to-my-martyr-colleagues/
 ---
 
+_Mukto-Mona Editor, On behalf of Dr. Ajoy K. Roy_
 
 <p align="center" class="MsoNormal"><font size="5" color="#000080">Homage to my martyr colleagues.</font></p>
 <p align="center" class="MsoNormal"><font size="4" color="#800000"> <a href="https://muktomona.com/Articles/ajoy/index.htm">Ajoy Roy</a></font></p>

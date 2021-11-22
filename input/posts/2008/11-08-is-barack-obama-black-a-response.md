@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-08 22:21:40 +06:00
 Updated: 2009-07-09 18:20:19 +06:00
-RedirectFrom:
-  - 2008/11/08/is-barack-obama-black-a-response/
+OldURL: 2008/11/08/is-barack-obama-black-a-response/
 ---
 
 

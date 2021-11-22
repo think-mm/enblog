@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-04 11:54:07 +06:00
 Updated: 2009-07-09 18:21:56 +06:00
-RedirectFrom:
-  - 2008/11/04/cheney%e2%80%99s-endorsement-is-like-a-%e2%80%98kiss-of-death%e2%80%99-to-mccain/
+OldURL: 2008/11/04/cheney%e2%80%99s-endorsement-is-like-a-%e2%80%98kiss-of-death%e2%80%99-to-mccain/
 ---
 
 

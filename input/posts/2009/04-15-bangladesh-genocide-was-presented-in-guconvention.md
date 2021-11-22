@@ -7,8 +7,7 @@ Tags:
   - Jahed
 Published: 2009-04-15 23:43:19 +06:00
 Updated: 2009-04-16 07:15:44 +06:00
-RedirectFrom:
-  - 2009/04/15/bangladesh-genocide-was-presented-in-guconvention/
+OldURL: 2009/04/15/bangladesh-genocide-was-presented-in-guconvention/
 ---
 
 Monmouth University of New Jersey hosted Global Understanding Convention at its campus on April 6<sup>th</sup> to understand the roots of all previous genocides. Dr. Nuran Nabi, a freedom Fighter of Bangladesh liberation war and currently a councilman of Plainsboro Township of New Jersey, was invited to speak on Bangladesh genocide during 1971. Dr. Skenderi of Pristhina University of Kosovo spoke on the genocide<span> </span>in former Yugoslavia during<span> </span>the 1990s.<span> </span>Dr. Adekunie spoke on the genocide in Rwanda in 1994 and the ongoing genocide in Darfur.

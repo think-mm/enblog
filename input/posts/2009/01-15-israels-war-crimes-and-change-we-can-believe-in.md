@@ -11,8 +11,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-15 23:00:45 +06:00
 Updated: 2009-01-15 23:09:55 +06:00
-RedirectFrom:
-  - 2009/01/15/israels-war-crimes-and-change-we-can-believe-in/
+OldURL: 2009/01/15/israels-war-crimes-and-change-we-can-believe-in/
 ---
 
 <p class="articleTitle">

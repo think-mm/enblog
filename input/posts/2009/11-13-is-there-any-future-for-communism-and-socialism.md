@@ -4,8 +4,7 @@ Tags:
   - Biplab Pal
 Published: 2009-11-13 10:01:53 +06:00
 Updated: 2009-11-13 10:01:53 +06:00
-RedirectFrom:
-  - 2009/11/13/is-there-any-future-for-communism-and-socialism/
+OldURL: 2009/11/13/is-there-any-future-for-communism-and-socialism/
 ---
 
 <a href="https://www.greenbusinessafrica.com/wp-content/uploads/2009/05/agriculture-in-africa.jpg"><img style="margin: 0px auto 10px; text-align: center; width: 500px; display: block; height: 327px;" src="https://www.greenbusinessafrica.com/wp-content/uploads/2009/05/agriculture-in-africa.jpg" border="0" alt="" /></a>

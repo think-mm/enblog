@@ -5,8 +5,7 @@ Tags:
   - Ripan
 Published: 2009-03-03 03:10:54 +06:00
 Updated: 2009-07-09 10:09:36 +06:00
-RedirectFrom:
-  - 2009/03/03/bdr-mutiny-a-real-test-for-the-new-government/
+OldURL: 2009/03/03/bdr-mutiny-a-real-test-for-the-new-government/
 ---
 
 <p style="line-height: 200%;" align="center"><strong><span style="color: #008000; font-family: Verdana;">BDR mutiny: A real test for the new government </span></strong></p>

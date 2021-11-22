@@ -4,8 +4,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-01-30 02:30:47 +06:00
 Updated: 2009-07-21 20:28:23 +06:00
-RedirectFrom:
-  - 2009/01/30/promised-digital-bangladesh-and-the-young-generation/
+OldURL: 2009/01/30/promised-digital-bangladesh-and-the-young-generation/
 ---
 
 <h2 style="text-align: center;"><span style="color: #008000;"><span style="font-size: 16pt;" lang="EN-GB">Promised digital Bangladesh and the young generation</span></span></h2>

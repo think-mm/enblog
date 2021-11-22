@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-03-03 02:37:12 +06:00
 Updated: 2009-03-03 02:37:12 +06:00
-RedirectFrom:
-  - 2009/03/03/the-bdr-mutiny-of-2009-too-shocking/
+OldURL: 2009/03/03/the-bdr-mutiny-of-2009-too-shocking/
 ---
 
 <p align="center"><span style="font-size: medium; color: #008000; font-family: Verdana;">The BDR Mutiny of 2009 - Too Shocking </span></p>

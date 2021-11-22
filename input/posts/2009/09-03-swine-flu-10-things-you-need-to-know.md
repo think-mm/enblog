@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-09-03 10:30:37 +06:00
 Updated: 2009-09-03 10:34:50 +06:00
-RedirectFrom:
-  - 2009/09/03/swine-flu-10-things-you-need-to-know/
+OldURL: 2009/09/03/swine-flu-10-things-you-need-to-know/
 ---
 
 <div id="wrapper">

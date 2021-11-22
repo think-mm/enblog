@@ -8,8 +8,7 @@ Tags:
   - Anindyasundar
 Published: 2009-09-12 02:46:08 +06:00
 Updated: 2009-09-16 02:47:05 +06:00
-RedirectFrom:
-  - 2009/09/12/demand-on-september-11-from-humanists-association-of-kolkata/
+OldURL: 2009/09/12/demand-on-september-11-from-humanists-association-of-kolkata/
 ---
 
 DEMAND on 11 September

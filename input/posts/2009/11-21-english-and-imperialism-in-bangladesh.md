@@ -15,8 +15,7 @@ Tags:
   - William Gomes
 Published: 2009-11-21 00:07:03 +06:00
 Updated: 2009-11-21 00:07:03 +06:00
-RedirectFrom:
-  - 2009/11/21/english-and-imperialism-in-bangladesh/
+OldURL: 2009/11/21/english-and-imperialism-in-bangladesh/
 ---
 
 Recently, a Bengali lecturer of an English course in a private university was unable to translate "Nogorayan" - a Bengali word that stands for "urbanization" - in a class when a student asked her for help. The teacher proudly said that she could not translate the word, since she was more familiar with English, had forgotten many Bengali words and felt more at home with English.

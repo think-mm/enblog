@@ -14,8 +14,7 @@ Tags:
   - Jahed
 Published: 2009-02-24 00:30:45 +06:00
 Updated: 2009-03-03 02:18:10 +06:00
-RedirectFrom:
-  - 2009/02/24/remembering-dr-ahmed-shariff-a-thinker-who-was-ahead-of-his-time/
+OldURL: 2009/02/24/remembering-dr-ahmed-shariff-a-thinker-who-was-ahead-of-his-time/
 ---
 
 (originally written on 24th Februray, 2008, on the ninth death anniversary of Prof. Ahmed Shariff)

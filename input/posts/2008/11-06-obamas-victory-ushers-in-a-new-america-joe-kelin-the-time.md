@@ -7,8 +7,7 @@ Tags:
   - Jahed
 Published: 2008-11-06 07:45:26 +06:00
 Updated: 2008-11-06 22:06:56 +06:00
-RedirectFrom:
-  - 2008/11/06/obamas-victory-ushers-in-a-new-america-joe-kelin-the-time/
+OldURL: 2008/11/06/obamas-victory-ushers-in-a-new-america-joe-kelin-the-time/
 ---
 
 _"Those who say Obama won because of the financial crisis are telling only half the story. He won because he reacted to the crisis in a measured, mature way. He won because...."_

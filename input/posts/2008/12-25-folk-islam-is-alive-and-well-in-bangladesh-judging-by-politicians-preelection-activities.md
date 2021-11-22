@@ -1,5 +1,5 @@
 ---
-Title: Folk Islam is alive and well in Bangladesh judging by politicians' preëlection activities
+Title: Folk Islam is alive and well in Bangladesh judging by politicians pre-election activities
 Tags:
   - bangladesh
   - islam
@@ -9,12 +9,11 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-12-25 23:06:39 +06:00
 Updated: 2009-07-09 18:18:59 +06:00
-RedirectFrom:
-  - 2008/12/25/folk-islam-is-alive-and-well-in-bangladesh-judging-by-politicians%e2%80%99-preelection-activities/
+OldURL: 2008/12/25/folk-islam-is-alive-and-well-in-bangladesh-judging-by-politicians%e2%80%99-preelection-activities/
 ---
 
 <font size="2" face="Arial"> </font>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>Folk Islam is alive and well in <span style="background: none transparent scroll repeat 0% 0%; cursor: hand; border-bottom: medium none" id="lw_1230222372_0" class="yshortcuts">Bangladesh</span> judging by politicians' preëlection activities</strong></font></p>
+<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>Folk Islam is alive and well in <span style="background: none transparent scroll repeat 0% 0%; cursor: hand; border-bottom: medium none" id="lw_1230222372_0" class="yshortcuts">Bangladesh</span> judging by politicians' pre-election activities</strong></font></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="4" face="Garamond"><strong><a href="https://muktomona.com/Articles/jaffor/">A.H. Jaffor Ullah</a></strong></font></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>

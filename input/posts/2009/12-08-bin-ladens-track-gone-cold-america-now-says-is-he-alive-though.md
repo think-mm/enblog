@@ -11,8 +11,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-12-08 11:57:13 +06:00
 Updated: 2009-12-08 11:57:13 +06:00
-RedirectFrom:
-  - 2009/12/08/bin-laden%e2%80%99s-track-gone-cold-america-now-says-is-he-alive-though/
+OldURL: 2009/12/08/bin-laden%e2%80%99s-track-gone-cold-america-now-says-is-he-alive-though/
 ---
 
 <span style="font-size: 10pt;"><span style="font-family: Times New Roman;">The defense secretary of America, Robert Gates, told American TV media on December 5, 2009 that American intelligence has no idea where Osama bin Laden is residing these days.<span style="mso-spacerun: yes;">  </span>This is quite a revelation! </span></span>

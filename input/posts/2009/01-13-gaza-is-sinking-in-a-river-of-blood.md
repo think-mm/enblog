@@ -11,8 +11,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-13 12:11:01 +06:00
 Updated: 2009-01-13 12:11:01 +06:00
-RedirectFrom:
-  - 2009/01/13/gaza-is-sinking-in-a-river-of-blood/
+OldURL: 2009/01/13/gaza-is-sinking-in-a-river-of-blood/
 ---
 
 

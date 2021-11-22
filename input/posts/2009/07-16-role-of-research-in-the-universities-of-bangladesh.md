@@ -8,8 +8,7 @@ Tags:
   - Bijon Sarma
 Published: 2009-07-16 22:08:34 +06:00
 Updated: 2009-07-16 22:10:32 +06:00
-RedirectFrom:
-  - 2009/07/16/role-of-research-in-the-universities-of-bangladesh/
+OldURL: 2009/07/16/role-of-research-in-the-universities-of-bangladesh/
 ---
 
 <p class="MsoNormal" align="center"><span style="font-size: large; color: #008000;"><strong>Role of Research in The Universities Of Bangladesh</strong></span></p>

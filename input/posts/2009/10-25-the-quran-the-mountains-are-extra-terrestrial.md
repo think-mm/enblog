@@ -4,8 +4,7 @@ Tags:
   - Mumin Salih
 Published: 2009-10-25 20:49:02 +06:00
 Updated: 2009-10-25 20:49:02 +06:00
-RedirectFrom:
-  - 2009/10/25/the-quran-the-mountains-are-extra-terrestrial/
+OldURL: 2009/10/25/the-quran-the-mountains-are-extra-terrestrial/
 ---
 
 

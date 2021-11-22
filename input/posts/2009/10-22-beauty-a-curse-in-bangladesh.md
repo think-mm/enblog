@@ -11,8 +11,7 @@ Tags:
   - William Gomes
 Published: 2009-10-22 21:32:56 +06:00
 Updated: 2009-10-22 21:32:56 +06:00
-RedirectFrom:
-  - 2009/10/22/beauty-a-curse-in-bangladesh/
+OldURL: 2009/10/22/beauty-a-curse-in-bangladesh/
 ---
 
 Some people might say that beauty becomes a curse for a woman who is raped. But I disagree with the idea that the woman's physical beauty is a curse, because it is not beauty that causes sexual violence; the main cause is the beast inside of man. Not all of the women or girls who get raped exhibit extreme physical beauty.

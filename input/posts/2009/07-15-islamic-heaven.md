@@ -11,8 +11,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-07-15 07:37:14 +06:00
 Updated: 2009-07-15 07:49:03 +06:00
-RedirectFrom:
-  - 2009/07/15/islamic-heaven/
+OldURL: 2009/07/15/islamic-heaven/
 ---
 
 <div><span style="font-size: x-large; color: #008000;">Islamic Heaven </span></div>

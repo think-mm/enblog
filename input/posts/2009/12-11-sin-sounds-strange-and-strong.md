@@ -20,8 +20,7 @@ Tags:
   - William Gomes
 Published: 2009-12-11 07:51:03 +06:00
 Updated: 2009-12-11 07:51:03 +06:00
-RedirectFrom:
-  - 2009/12/11/sin-sounds-strange-and-strong/
+OldURL: 2009/12/11/sin-sounds-strange-and-strong/
 ---
 
 "Some rise by sin, and some by virtue fall," wrote William Shakespeare, expressing the concept of sin in his own way, painting with his pen a vivid picture of "sin" and "sinners". The mysterious concept of sin starts in religion as a way of introducing the supremacy of a perfect God, while Satan emerges from mystery, as eternal evil seems to be produced out of an eternal entity. 

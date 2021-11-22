@@ -1,17 +1,12 @@
 ---
 Title: Quranic Erroneous Science and Contradictions!
 Tags:
-  - islam
   - science and religion
   - contradictions
-  - religion
-  - philosophy
-  - science
   - Syed Kamran Mirza
 Published: 2008-12-20 08:31:46 +06:00
 Updated: 2009-07-15 07:18:42 +06:00
-RedirectFrom:
-  - 2008/12/20/quranic-erroneous-science-and-contradictions/
+OldURL: 2008/12/20/quranic-erroneous-science-and-contradictions/
 ---
 
 

@@ -12,8 +12,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-01-21 19:41:48 +06:00
 Updated: 2009-07-09 18:17:41 +06:00
-RedirectFrom:
-  - 2009/01/21/would-any-aspiring-president-dare-to-emulate-bush%e2%80%99s-legacy/
+OldURL: 2009/01/21/would-any-aspiring-president-dare-to-emulate-bush%e2%80%99s-legacy/
 ---
 
 

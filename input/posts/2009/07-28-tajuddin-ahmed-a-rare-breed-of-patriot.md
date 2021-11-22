@@ -8,8 +8,7 @@ Tags:
   - Mozammel H Khan
 Published: 2009-07-28 00:53:28 +06:00
 Updated: 2009-07-31 21:38:40 +06:00
-RedirectFrom:
-  - 2009/07/28/tajuddin-ahmed-a-rare-breed-of-patriot/
+OldURL: 2009/07/28/tajuddin-ahmed-a-rare-breed-of-patriot/
 ---
 
 <p class="NoSpacing" align="justify"> </p>

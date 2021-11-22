@@ -7,8 +7,7 @@ Tags:
   - Jahed
 Published: 2008-11-28 10:26:34 +06:00
 Updated: 2008-11-29 04:36:17 +06:00
-RedirectFrom:
-  - 2008/11/28/who-are-the-attackers-bbc-video-report/
+OldURL: 2008/11/28/who-are-the-attackers-bbc-video-report/
 ---
 
 <p id="article-header">

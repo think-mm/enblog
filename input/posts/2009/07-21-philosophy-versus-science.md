@@ -7,8 +7,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-07-21 20:14:44 +06:00
 Updated: 2009-07-21 20:27:15 +06:00
-RedirectFrom:
-  - 2009/07/21/philosophy-versus-science/
+OldURL: 2009/07/21/philosophy-versus-science/
 ---
 
 <p class="MsoNormal" style="TEXT-ALIGN: center" align="center"><span style="font-size: large; color: #008000;"><span lang="EN-GB">Philosophy versus science</span></span></p>

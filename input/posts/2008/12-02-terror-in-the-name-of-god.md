@@ -13,8 +13,7 @@ Tags:
   - Jahed
 Published: 2008-12-02 06:55:42 +06:00
 Updated: 2008-12-02 06:55:42 +06:00
-RedirectFrom:
-  - 2008/12/02/terror-in-the-name-of-god/
+OldURL: 2008/12/02/terror-in-the-name-of-god/
 ---
 
 

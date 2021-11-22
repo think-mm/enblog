@@ -9,8 +9,7 @@ Tags:
   - Ripan
 Published: 2009-07-08 21:40:54 +06:00
 Updated: 2009-07-09 10:09:26 +06:00
-RedirectFrom:
-  - 2009/07/08/honor-them-before-death/
+OldURL: 2009/07/08/honor-them-before-death/
 ---
 
 <p style="margin: 0in 0in 0pt; text-align: center;"><span style="font-size: large; color: #008000; font-family: Garamond;"><strong>Honor them before death</strong></span></p>

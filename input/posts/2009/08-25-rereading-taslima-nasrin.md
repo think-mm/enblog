@@ -8,8 +8,7 @@ Tags:
   - Shabnam Nadiya
 Published: 2009-08-25 20:36:32 +06:00
 Updated: 2009-08-25 20:37:19 +06:00
-RedirectFrom:
-  - 2009/08/25/rereading-taslima-nasrin/
+OldURL: 2009/08/25/rereading-taslima-nasrin/
 ---
 
 <div><span style="font-size: medium; font-family: Garamond;">Hi all,</span></div>

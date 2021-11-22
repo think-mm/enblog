@@ -12,8 +12,7 @@ Tags:
   - Abul Kasem
 Published: 2009-09-29 04:37:40 +06:00
 Updated: 2009-10-06 21:44:03 +06:00
-RedirectFrom:
-  - 2009/09/29/muhammad-had-violated-the-quran-2/
+OldURL: 2009/09/29/muhammad-had-violated-the-quran-2/
 ---
 
 <strong> After</strong> <strong><span style="font-size: medium; font-family: Garamond;"><a href="https://enblog.muktomona.com/?p=583">Part-1</a></span></strong>

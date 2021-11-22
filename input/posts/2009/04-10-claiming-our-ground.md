@@ -9,8 +9,7 @@ Tags:
   - Shabnam Nadiya
 Published: 2009-04-10 15:03:16 +06:00
 Updated: 2009-08-25 20:05:06 +06:00
-RedirectFrom:
-  - 2009/04/10/claiming-our-ground/
+OldURL: 2009/04/10/claiming-our-ground/
 ---
 
 <p align="center"><span style="font-size: large; color: #008000;">Claiming Our Ground</span></p>

@@ -8,8 +8,7 @@ Tags:
   - Tarek Fatah
 Published: 2009-04-24 23:42:35 +06:00
 Updated: 2009-07-27 22:29:45 +06:00
-RedirectFrom:
-  - 2009/04/24/from-bangladesh-to-darfur-racism-among-muslims/
+OldURL: 2009/04/24/from-bangladesh-to-darfur-racism-among-muslims/
 ---
 
 <div><big><strong></strong></big></div>

@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-12-31 07:44:03 +06:00
 Updated: 2008-12-31 07:44:03 +06:00
-RedirectFrom:
-  - 2008/12/31/khaleda-zia-says-election-not-acceptable/
+OldURL: 2008/12/31/khaleda-zia-says-election-not-acceptable/
 ---
 
 <p class="header"><font size="5" color="#008000">Khaleda  Zia says election "not acceptable"</font>

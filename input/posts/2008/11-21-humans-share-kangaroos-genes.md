@@ -1,16 +1,12 @@
 ---
 Title: Humans share kangaroos genes
 Tags:
-  - humans
-  - kangaroos
   - evolution
-  - genes
   - science
   - A. H. Jaffor Ullah
 Published: 2008-11-21 23:52:44 +06:00
 Updated: 2009-07-09 18:19:38 +06:00
-RedirectFrom:
-  - 2008/11/21/humans-share-kangaroos-genes/
+OldURL: 2008/11/21/humans-share-kangaroos-genes/
 ---
 
  

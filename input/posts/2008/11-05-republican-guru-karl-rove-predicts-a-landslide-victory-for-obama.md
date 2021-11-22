@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-05 01:44:56 +06:00
 Updated: 2008-11-06 02:58:57 +06:00
-RedirectFrom:
-  - 2008/11/05/republican-guru-karl-rove-predicts-a-landslide-victory-for-obama/
+OldURL: 2008/11/05/republican-guru-karl-rove-predicts-a-landslide-victory-for-obama/
 ---
 
 

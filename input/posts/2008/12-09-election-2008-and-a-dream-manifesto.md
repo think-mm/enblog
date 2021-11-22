@@ -7,8 +7,7 @@ Tags:
   - Anwarul Kabir
 Published: 2008-12-09 07:46:50 +06:00
 Updated: 2009-07-21 20:29:47 +06:00
-RedirectFrom:
-  - 2008/12/09/election-2008-and-a-dream-manifesto/
+OldURL: 2008/12/09/election-2008-and-a-dream-manifesto/
 ---
 
 

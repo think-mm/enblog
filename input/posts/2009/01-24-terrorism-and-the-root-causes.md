@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-24 02:54:34 +06:00
 Updated: 2009-01-24 02:54:34 +06:00
-RedirectFrom:
-  - 2009/01/24/terrorism-and-the-root-causes/
+OldURL: 2009/01/24/terrorism-and-the-root-causes/
 ---
 
 

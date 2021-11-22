@@ -12,8 +12,7 @@ Tags:
   - Abul Kasem
 Published: 2009-05-17 09:23:08 +06:00
 Updated: 2009-05-17 09:38:11 +06:00
-RedirectFrom:
-  - 2009/05/17/cannibalizing-islam/
+OldURL: 2009/05/17/cannibalizing-islam/
 ---
 
 <h3><span style="font-size: 24pt; color: red;">Cannibalizing</span><span style="font-size: 24pt;"> <span style="color: green;">Islam</span></span></h3>

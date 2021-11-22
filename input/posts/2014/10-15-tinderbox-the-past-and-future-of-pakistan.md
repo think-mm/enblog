@@ -1,0 +1,43 @@
+---
+Title: TINDERBOX - THE PAST AND FUTURE OF PAKISTAN
+Tags:
+  - politics
+  - religion
+  - bangladesh
+  - india
+  - bangalee freethinker
+  - society
+  - activism
+  - Bhaskar
+Published: 2014-10-15 11:34:02 +06:00
+Updated: 2014-12-22 12:31:52 +06:00
+OldURL: 2014/10/15/tinderbox-the-past-and-future-of-pakistan/
+---
+
+M J Akbar, the well known Indian journalist, has written a book entitled, "Tinderbox – the past and future of Pakistan". It is a scholarly exposition of Pakistan's yesterday which gives hints for its tomorrow. Though no new information is available in the book, except some details about Pakistani terrorist groups and killing of Osama bin Laden in Abbottabad, it compels one to revisit and recapitulate the known facts in present context. 
+
+The psychological plight of Muslims of Indian sub-continent was first felt among Muslim gentry during latter part of eighteenth century when British East India Company was expanding its territory of control in the sub-continent. The final nail in the coffin of Muslim supremacy in the sub-continent was driven with the total collapse of Mughal Empire following 1857 mutiny. In previous 1000 years, though being minority, the Muslims were the ruling classes of Indian sub-continent. But coming of British rule in India under Empress Victoria suddenly made them feel about their small number in comparison with the vast majority of Hindus (a term which was still new then in present religious meaning)
+
+The awareness of helplessness and insult after 1857, particularly when Bahadur Shah Zafar was exiled to Burma, was a bolt from the blue for Muslim leaders of the sub-continent who became utterly jittery. Lack of vision and foresight about the modern secular democracy made them nervous. The immediate post-1857 'pro-Hindu anti-Muslim' policy of British administration also contributed to Muslim fear of being washed away by majority Hindus from socio-political arena of the sub-continent. In continuation of this, Muslims of the sub-continent became paranoid with the collapse of Caliphate in early nineteen twenties.
+
+Sir Syed (Mohammedan Anglo-Oriental College), Ahmed Raza Khan (<em>Barelvi</em>), Deoband (<em>Dar-ul-Ulum</em>), Ali Brothers, <em>Tablighi Jamaa</em>t, Muslim League (after 1935 with Mr. Jinnah in the front) and Moududi (<em>Jamaat-e-Islami</em>) primarily influenced and shaped the psyche and action of majority members of Muslim community of the sub-continent between 1857 and 1947 and even beyond 1947 of Muslim Pakistanis. The essence of such influences was unidirectional, i.e. 'Muslims are separate nation with a golden past'. Self serving distortion of history in Pakistan, which started with invasion of Sind by Muhammad bin Qasim in AD 712, has poisoned the minds of generations of Pakistanis towards India. All ruthless external Muslim invaders of Indian sub-continent are regarded in high esteem in Pakistan. (<strong>Author</strong>: <em>This distortion of history allows Pakistanis to forget conveniently about the conversion of many of their forefathers and foremothers to Islam under duress. Such self denial has been successfully inculcated by the Pakistani Islamic contractors</em>.)
+
+In August 14-15 of 1947, Pakistan was curved out of the then undivided India. Before independence, the fierce Muslim League activities were highly visible in present Uttar Pradesh and Bihar which remained in independent India. Religious bigotry created two wings of Pakistan separated by more than 1000 miles. It was not simply a separation of space; the two wings of Pakistan were actually separate from each other in more aspects than single similarity of religion. It is interesting to note that some leaders of undivided Bengal like Shaheed Suhrawardy and Sarat Bose were briefly keen for a united Bengal as a separate country during pre-partition days' turmoil. East Pakistan became Bangladesh in 1971 only to expose the hollowness of religion based "two nation theory".
+
+After independence, the 'Pakistani Gray Wolf' (Mr. Jinna) started losing control over Muslim League in Pakistan till death made him a photo framed '<em>Quad-e-Azam</em>' there in 1948. After the death of Mr Jinnah, Moududi became the 'God Father' of Pakistan. The first dark cloud of Islamic terrorism was noticed in Pakistan during early nineteen fifties with attack on <em>Ahmediyya</em> Muslims. In the later part of Ayub's rule, Islam was formally mixed with Pakistani politics and there has been no return from the downhill slide through 'whisky lover' Yahya Khan, 'bogus socialist' Z A Bhutto, 'Allah's General' Zia-ul-Haq, 'Daughter of East' Benazir Bhutto, 'Zia prodigy' Nawaz Sharif, 'Kargil architect' Pervez Musharraf and 'Mr ten per cent' Zardari. 
+
+<em>Jihad</em> was the main offspring of partition in the sub-continent. The infant <em>Jihad</em> which was born with terrorist infiltration from tribal area of Pakistan to Kashmir valley during September 1947 became adult through innumerable proxy wars in Kashmir and elsewhere, as well as, <em>Jihad</em> in Afghanistan during past decades. During this whole period, the main supply line of <em>Jihadis</em> was Pakistan. 
+
+The power structure of Pakistan has been limited to Army, Industrialist-land owning politicians and bureaucrats in that order. Islam (with its 1400 years old Arabic culture) has been the soul of Pakistan not because the power structure is very religious but because it serves the political purpose best in Pakistan. Of late, 'Good <em>Taliban</em>' (Pakistani <em>Taliban</em>) has become the fourth pillar of Pakistani power structure. 
+
+<strong>Author's remarks:</strong>
+
+The vast majority of Muslims who could not migrate from Indian part to Pakistan and stayed back in independent India after August 1947 did not do so out of choice but out of compulsion; because either they could not afford to migrate or they were living in hinter land of India. Muslim League party died in independent India and overnight all Muslim League supporters of independent India become supporters of Indian National Congress. 
+
+The secular minded Muslims or those Muslims who were convinced about the futility of religion based nation did not migrate to Pakistan; but they were very few in number. Interestingly two Muslim League leaders, viz: M C Chaghla (Bombay) and M H Chaudhury (Assam) later became Cabinet Ministers in India as Members of Parliament of Congress party. 
+
+The litmus test of India's secularism is the population growth of Indian Muslims after 1947 vis-à-vis steep population decline of non-Muslims in Pakistan. The peaceful and smooth transition of power between Congress, Janata Dal, different groups of political parties and BJP at Central level and between different local and national parties at State level, following elections in past decades is a testimony to the maturity of Indian democracy. I wonder what Sir Syed or Ahmed Raza Khan or Mr Jinna would have done against the current concept and practice of secular democracy in India. I am certain that because of partition, India could follow secularism and multi-party democracy; otherwise Muslims of supposed undivided India would not have allowed that as Islam is the antonym of 'secularism' and 'multi-party democracy'.
+
+It is irony that Muslims first practice their uniqueness and distinctiveness from others and latter criticize that they are not accepted by others. This problem with Muslims still persists in all parts of the world where Muslims are in minority including India. In Pakistan, Islamic contractors make every conscious effort to do away with anything remotely connected with Hindu culture of the sub-continent. In the process they simply ape old Arabic culture and remain neither here nor accepted there (as equal). 
+
+Recently six leaders of 'Good <em>Taliban</em>' have expressed allegiance towards ISIS and Vatican has welcomed homosexuals for the first time. This piece of information makes it clear that the mindset and action of religious power structure should change over the years, decades and centuries. Islam has failed to accept any change as thousands and thousands of semiliterate and literate <em>Ulema</em>, for their vested interest, have been imposing all the old and stagnant dogmas of Islam on all 'Priestess' Muslim communities across the world. The liberal and moderate Muslims do not raise voice against the <em>Ulema</em> and stagnant aspects of Islam <em>en masse</em>. This is unfortunate.

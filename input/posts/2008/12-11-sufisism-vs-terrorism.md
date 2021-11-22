@@ -1,16 +1,12 @@
 ---
 Title: Sufisism vs. Terrorism
 Tags:
-  - islam
-  - religion
+  - philosophy
   - terrorism
-  - sufisism
-  - culture
   - Sentu Tikadar
 Published: 2008-12-11 21:39:11 +06:00
 Updated: 2009-07-27 21:44:36 +06:00
-RedirectFrom:
-  - 2008/12/11/sufisism-vs-terrorism/
+OldURL: 2008/12/11/sufisism-vs-terrorism/
 ---
 
 

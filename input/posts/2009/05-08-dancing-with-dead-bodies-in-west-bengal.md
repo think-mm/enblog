@@ -12,8 +12,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-05-08 17:51:00 +06:00
 Updated: 2009-05-08 17:52:55 +06:00
-RedirectFrom:
-  - 2009/05/08/dancing-with-dead-bodies-in-west-bengal/
+OldURL: 2009/05/08/dancing-with-dead-bodies-in-west-bengal/
 ---
 
  

@@ -11,8 +11,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-09-03 08:03:20 +06:00
 Updated: 2009-09-03 08:03:20 +06:00
-RedirectFrom:
-  - 2009/09/03/%e2%80%98ramadan%e2%80%99-a-pure-islamic-deception/
+OldURL: 2009/09/03/%e2%80%98ramadan%e2%80%99-a-pure-islamic-deception/
 ---
 
  

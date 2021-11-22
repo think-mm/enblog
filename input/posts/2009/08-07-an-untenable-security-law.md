@@ -4,8 +4,7 @@ Tags:
   - Mozammel H Khan
 Published: 2009-08-07 10:10:20 +06:00
 Updated: 2009-08-07 21:59:13 +06:00
-RedirectFrom:
-  - 2009/08/07/an-untenable-security-law/
+OldURL: 2009/08/07/an-untenable-security-law/
 ---
 
 An untenable security law

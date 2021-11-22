@@ -5,8 +5,7 @@ Tags:
   - Jahed
 Published: 2009-03-01 22:04:16 +06:00
 Updated: 2009-03-01 22:04:16 +06:00
-RedirectFrom:
-  - 2009/03/01/bdr-mutiny-%e2%80%93-teaching-a-lesson-to-army/
+OldURL: 2009/03/01/bdr-mutiny-%e2%80%93-teaching-a-lesson-to-army/
 ---
 
 <p class="MsoNormal" style="margin: 0in 0in 0pt;"><span style="color: black;">By Monsur Ibrahim</span></p>

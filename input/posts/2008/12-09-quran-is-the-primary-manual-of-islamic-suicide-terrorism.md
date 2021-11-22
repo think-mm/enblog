@@ -11,8 +11,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2008-12-09 21:50:03 +06:00
 Updated: 2009-07-15 07:18:51 +06:00
-RedirectFrom:
-  - 2008/12/09/quran-is-the-primary-manual-of-islamic-suicide-terrorism/
+OldURL: 2008/12/09/quran-is-the-primary-manual-of-islamic-suicide-terrorism/
 ---
 
 

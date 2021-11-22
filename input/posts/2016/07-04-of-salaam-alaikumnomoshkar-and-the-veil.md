@@ -1,0 +1,21 @@
+---
+Title: Of salaam-alaikum,nomoshkar, and the veil
+Tags:
+  - Mahfuzur Rahman
+Published: 2016-07-04 00:12:36 +06:00
+Updated: 2016-07-04 00:12:36 +06:00
+OldURL: 2016/07/04/of-salaam-alaikumnomoshkar-and-the-veil/
+---
+
+                            Of salam-alaikum, nomoshkar, and the veil   
+
+                                                                                                       Mahfuzur Rahman
+         Let us assume that 90 percent of the population of Bangladesh is Hindu. No,  don't get mad at me. Or not yet. This is just an assumption and there is nothing wrong with making use of the device. It is employed in many professions, noble or otherwise. 
+         Now, the rest of the population, the 10 percent, is mostly Muslim, with a spattering of Buddhists and Christians. Next suppose the Muslim minority is fairly well represented in certain professions and in the media. Of the latter, the television is by far the most important in terms of visibility. (Let me also suppose, for the ease of exposition, and no offence intended for the men, that all TV newscasters are women.)  They are mostly a glamorous lot, holding their viewers in thrall as they unfold the news which they begin with a graceful Nomoshkar, the popular Hindu Bengali greeting, to the audience which is mostly Hindu. Such greeting comes to them naturally.  
+    However, a significant number of TV newscasters are Muslim, equals of their Hindu counterparts in grace and poise. The Muslim newscaster too is obliged to begin the newscast with a Nomoshkar, a mode of greeting that is not used among Muslims. The most natural greeting for her is salam-alaikum, also a graceful expression. She never uses Nomoshkar when addressing her fellow religionists and rarely uses it even when greeting a Hindu Bengali. For her Nomoshkar never comes from the heart. 
+  It is also fully within her right not to use Nomoshkar, and use only salam-alaikum while addressing her television audience. The constitution of the country guarantees such rights as a matter of personal choice.    
+    Now let us remove the assumption we started with and come back to the real world where some 90 percent of the population is Muslim. The non-Muslim 10 percent is fairly well represented as TV newscasters just as the Muslims were in the previous scenario. The difference is that they now say salam-alaikum, instead of Nomoshkar, although they never use that quintessentially Muslim greeting outside their TV studio, just as their Muslim colleagues never say Nomoshkar outside theirs. To see them say salam-alaikum to introduce the news is truly odd. It is strange that no voice is ever heard about the oddity. 
+    In parallel with the scenario described earlier, the Hindu broadcaster is within her right as a member of society not to say salam-alaikum, but begin her news broadcast  with a greeting which is genuinely her own, a Nomoshkar of  humility and grace. That too is a matter of personal freedom guaranteed by the constitution of the country. 
+    If you accept the above argument, then television channels of the country have been practising something grossly unfair and which is at odds with the principles of secularism and pluralism on which the country was founded. They need to allow their non-Muslim broadcasters to say Nomoshkar to their audience, while their Muslim colleagues continue to say salam-alaikum. 
+     Still on the matter of television news broadcasting: Among the half-a dozen television channels that I am connected to, I see on one particular channel non-Muslim telecasters wearing a light veil to partly cover their heads, Muslim-style, during Ramadan. None of the telecasters, Muslim or Hindu, at the other channels wear any veil. One wonders why this particular channel requires their newscasters, Muslim or Hindu, to cover their heads. This, again, is a clear infringement of the freedom of personal choice, as Hindu women are not required by their social custom to cover their heads. I am told the founder of the channel started his TV enterprise with the declared objective of propagating Islam. I think he should be pulled up and told that there are other ways of propagating his faith, ones that do not infringe upon personal freedom.    
+

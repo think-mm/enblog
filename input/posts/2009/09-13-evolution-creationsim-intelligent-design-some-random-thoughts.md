@@ -9,8 +9,7 @@ Tags:
   - farhad
 Published: 2009-09-13 14:59:45 +06:00
 Updated: 2009-09-23 20:07:04 +06:00
-RedirectFrom:
-  - 2009/09/13/evolution-creationsim-intelligent-design-some-random-thoughts/
+OldURL: 2009/09/13/evolution-creationsim-intelligent-design-some-random-thoughts/
 ---
 
 The human species has trouble getting a perspective on the sheer immensity of time that plays out through the evolutionary history of life on this planet. Time and numbers are keys in the evolutionary chain that has led from single cell life, to complex multicellular life, to greater complexity in specialized organs within living creatures. We live on this planet less than a century. Ten thousand centuries make up a million years. Life on this planet has been around for more than 2.5 thousand million years. DNA and genes can do a lot of random things in all that time with selectivity from best adaptations to the environment driving the evolutionary process. It's all about giving it the time to work the wonder that has led to the complex life that covers our planet today. There have been many setbacks through catastrophic climate altering events throughout that history. Some have created mass extinctions leading to the opening of new bio niches for better adapted species of life to enter and flourish. We as a species are constrained in our perception of all of this because we have a biological clock that delimits our lifespan to a very small segment in the very big picture. It's like looking at a single pixel and trying to figure out the entire picture.

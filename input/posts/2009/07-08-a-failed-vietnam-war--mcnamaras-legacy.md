@@ -8,8 +8,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-07-08 20:35:38 +06:00
 Updated: 2009-07-09 18:16:44 +06:00
-RedirectFrom:
-  - 2009/07/08/a-failed-vietnam-war-%e2%80%94-mcnamaras-legacy/
+OldURL: 2009/07/08/a-failed-vietnam-war-%e2%80%94-mcnamaras-legacy/
 ---
 
 <span style="font-family: Arial;"> </span>

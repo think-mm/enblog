@@ -10,8 +10,7 @@ Tags:
   - Abul Kasem
 Published: 2009-03-25 17:06:02 +06:00
 Updated: 2009-05-17 09:38:47 +06:00
-RedirectFrom:
-  - 2009/03/25/a-guide-to-the-qur%e2%80%99anic-contradictions-10-last-part/
+OldURL: 2009/03/25/a-guide-to-the-qur%e2%80%99anic-contradictions-10-last-part/
 ---
 
 <h2><span style="color: #008000;">A Guide to the Qur'anic Contradictions-10 (last part)</span></h2>

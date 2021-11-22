@@ -7,8 +7,7 @@ Tags:
   - teki_admin
 Published: 2009-09-03 09:07:34 +06:00
 Updated: 2009-09-03 09:07:34 +06:00
-RedirectFrom:
-  - 2009/09/03/mother-teresa%e2%80%99s-life-touched-uncountable-people/
+OldURL: 2009/09/03/mother-teresa%e2%80%99s-life-touched-uncountable-people/
 ---
 
 <p class="MsoNormal" style="margin: 0in 0in 0pt; text-align: justify;"><strong style="mso-bidi-font-weight: normal;"><span style="font-size: 14pt;"><span style="font-family: Times New Roman;"> </span></span></strong></p>

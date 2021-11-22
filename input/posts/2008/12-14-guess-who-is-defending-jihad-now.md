@@ -1,20 +1,13 @@
 ---
 Title: Guess who is Defending Jihad Now?
 Tags:
-  - islam
-  - jihad
-  - un general assembly
-  - criticism of islam
-  - politics
-  - culture
-  - philosophy
-  - international
+  - united nations
   - terrorism
+  - secularism
   - Abul Kasem
 Published: 2008-12-14 09:32:08 +06:00
 Updated: 2009-05-17 09:41:49 +06:00
-RedirectFrom:
-  - 2008/12/14/guess-who-is-defending-jihad-now/
+OldURL: 2008/12/14/guess-who-is-defending-jihad-now/
 ---
 
 

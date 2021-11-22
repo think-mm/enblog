@@ -7,8 +7,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-08-29 12:55:45 +06:00
 Updated: 2009-08-29 20:15:45 +06:00
-RedirectFrom:
-  - 2009/08/29/his-greatness-cannot-be-tarnished/
+OldURL: 2009/08/29/his-greatness-cannot-be-tarnished/
 ---
 
 <img src="https://enblog.muktomona.com/wp-content/uploads/2009/08/sheikh-mujib.jpg" alt="sheikh-mujib" width="384" height="400" class="alignnone size-full wp-image-522" />

@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-10-02 07:17:10 +06:00
 Updated: 2009-10-02 07:19:04 +06:00
-RedirectFrom:
-  - 2009/10/02/new-earliest-hominid-pre-%e2%80%9clucy%e2%80%9d-found/
+OldURL: 2009/10/02/new-earliest-hominid-pre-%e2%80%9clucy%e2%80%9d-found/
 ---
 
 <div id="doc4" class="yui-t6">

@@ -10,8 +10,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-09-24 00:30:06 +06:00
 Updated: 2009-09-24 07:56:33 +06:00
-RedirectFrom:
-  - 2009/09/24/the-new-atheism-prof-victor-stengers-new-book-is-just-out/
+OldURL: 2009/09/24/the-new-atheism-prof-victor-stengers-new-book-is-just-out/
 ---
 
 <h2 style="color: #000080;"><span style="font-family: Garamond;"><img style="width: 250px; height: 386px;" src="https://www.colorado.edu/philosophy/vstenger/Battle/NewAtheism.jpg" alt="The New Atheism Cover" hspace="20" align="left" /></span></h2>

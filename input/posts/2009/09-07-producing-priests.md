@@ -9,8 +9,7 @@ Tags:
   - Meera Nanda
 Published: 2009-09-07 08:20:33 +06:00
 Updated: 2009-09-07 08:22:25 +06:00
-RedirectFrom:
-  - 2009/09/07/producing-priests/
+OldURL: 2009/09/07/producing-priests/
 ---
 
 <p align="center">

@@ -8,8 +8,7 @@ Tags:
   - teki_admin
 Published: 2009-11-30 10:53:11 +06:00
 Updated: 2009-11-30 10:53:11 +06:00
-RedirectFrom:
-  - 2009/11/30/pat-robertson-said-it-again-but-what%e2%80%99s-with-bob-mcdonnell/
+OldURL: 2009/11/30/pat-robertson-said-it-again-but-what%e2%80%99s-with-bob-mcdonnell/
 ---
 
 <p class="MsoNormal" style="margin: 0in 0in 10pt; text-align: center;" align="center"><strong><span style="font-size: 14pt; line-height: 115%;"><span style="font-family: Times New Roman;">Pat Robertson Said It Again, But What's With Bob McDonnell??</span></span></strong></p>

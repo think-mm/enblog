@@ -14,8 +14,7 @@ Tags:
   - Srinivas Kakkilaya
 Published: 2009-01-27 19:13:39 +06:00
 Updated: 2009-08-27 23:08:09 +06:00
-RedirectFrom:
-  - 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
+OldURL: 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
 ---
 
  

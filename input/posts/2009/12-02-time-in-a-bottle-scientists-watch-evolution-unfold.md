@@ -5,8 +5,7 @@ Tags:
   - farhad
 Published: 2009-12-02 12:43:48 +06:00
 Updated: 2009-12-02 14:11:51 +06:00
-RedirectFrom:
-  - 2009/12/02/time-in-a-bottle-scientists-watch-evolution-unfold/
+OldURL: 2009/12/02/time-in-a-bottle-scientists-watch-evolution-unfold/
 ---
 
 "Time in a Bottle: Scientists Watch Evolution Unfold" is an article that appeared in "Science News" on October 19, 2009. My attention was drawn to it because the researcher, Professor Richard Lenski, Michigan State University, was interviewed in a column in the Toronto newspaper, The Globe &amp; Mail. The interview appeared on Saturday, November 21.

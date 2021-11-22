@@ -7,8 +7,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-02-18 07:54:55 +06:00
 Updated: 2009-07-21 20:28:13 +06:00
-RedirectFrom:
-  - 2009/02/18/roles-of-mps-in-light-of-the-constitution/
+OldURL: 2009/02/18/roles-of-mps-in-light-of-the-constitution/
 ---
 
 <p class="MsoNormal" style="text-align: center;" align="center"><strong><span lang="EN-GB"><span style="font-size: large; color: #008000;">Roles of MPs: In light of the constitution</span></span></strong></p>

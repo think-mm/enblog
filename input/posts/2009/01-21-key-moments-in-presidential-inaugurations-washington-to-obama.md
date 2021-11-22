@@ -6,8 +6,7 @@ Tags:
   - Farid
 Published: 2009-01-21 00:27:32 +06:00
 Updated: 2009-01-21 19:37:02 +06:00
-RedirectFrom:
-  - 2009/01/21/key-moments-in-presidential-inaugurations-washington-to-obama/
+OldURL: 2009/01/21/key-moments-in-presidential-inaugurations-washington-to-obama/
 ---
 
 <strong><span style="font-size: 13pt; color: blue; font-family: 'Arial Narrow'">Key Moments in Presidential Inaugurations: </span></strong><strong><span style="font-size: 13pt; color: red; font-family: 'Arial Narrow'">Washington to Obama</span></strong><strong><span style="font-size: 13pt; color: blue; font-family: 'Arial Narrow'"> </span></strong><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><font face="Times New Roman"><span style="font-size: 13pt"> </span><o:p></o:p></font><span style="font-size: 11pt; font-family: 'Arial Narrow'">Compiled by Jahed Ahmed </span><o:p></o:p><span style="font-size: 11pt; font-family: 'Arial Narrow'"> </span><o:p></o:p>

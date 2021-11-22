@@ -4,8 +4,7 @@ Tags:
   - Adil Mahmood
 Published: 2009-10-15 09:35:10 +06:00
 Updated: 2009-10-15 09:35:10 +06:00
-RedirectFrom:
-  - 2009/10/15/attention-please-someone-needs-our-help-desperately/
+OldURL: 2009/10/15/attention-please-someone-needs-our-help-desperately/
 ---
 
 Dear All,

@@ -10,8 +10,7 @@ Tags:
   - farhad
 Published: 2009-08-06 09:01:25 +06:00
 Updated: 2009-08-06 09:17:32 +06:00
-RedirectFrom:
-  - 2009/08/06/evolution-creationism-intelligent-design-some-random-thoughts/
+OldURL: 2009/08/06/evolution-creationism-intelligent-design-some-random-thoughts/
 ---
 
 <p class="MsoNormal" align="center"><span style="font-size: large; color: #008000; font-family: Garamond;"><strong><span lang="EN-GB">Evolution, Creationism, Intelligent Design: Some Random Thoughts</span></strong></span></p>

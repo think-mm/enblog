@@ -8,8 +8,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-01-19 06:03:32 +06:00
 Updated: 2009-07-09 18:17:53 +06:00
-RedirectFrom:
-  - 2009/01/19/yesterday-it-was-koko-today-it-is-khondeker-mosharraf-hossein/
+OldURL: 2009/01/19/yesterday-it-was-koko-today-it-is-khondeker-mosharraf-hossein/
 ---
 
 

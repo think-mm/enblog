@@ -9,8 +9,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-05-03 19:20:41 +06:00
 Updated: 2009-05-03 19:20:41 +06:00
-RedirectFrom:
-  - 2009/05/03/interview-with-professor-victor-stenger-on-the-future-of-naturalism/
+OldURL: 2009/05/03/interview-with-professor-victor-stenger-on-the-future-of-naturalism/
 ---
 
 <P>&nbsp;</P>

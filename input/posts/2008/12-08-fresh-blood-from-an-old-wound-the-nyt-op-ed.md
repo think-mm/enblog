@@ -4,8 +4,7 @@ Tags:
   - Jahed
 Published: 2008-12-08 08:55:51 +06:00
 Updated: 2008-12-08 08:55:51 +06:00
-RedirectFrom:
-  - 2008/12/08/fresh-blood-from-an-old-wound-the-nyt-op-ed/
+OldURL: 2008/12/08/fresh-blood-from-an-old-wound-the-nyt-op-ed/
 ---
 
 

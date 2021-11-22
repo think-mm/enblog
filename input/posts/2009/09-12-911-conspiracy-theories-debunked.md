@@ -12,8 +12,7 @@ Tags:
   - teki_admin
 Published: 2009-09-12 03:49:36 +06:00
 Updated: 2009-09-12 03:55:47 +06:00
-RedirectFrom:
-  - 2009/09/12/911-conspiracy-theories-debunked/
+OldURL: 2009/09/12/911-conspiracy-theories-debunked/
 ---
 
 <div class="Story">

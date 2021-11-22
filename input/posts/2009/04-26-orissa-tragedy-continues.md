@@ -14,8 +14,7 @@ Tags:
   - Ram Puniyani
 Published: 2009-04-26 03:20:08 +06:00
 Updated: 2009-07-15 08:39:31 +06:00
-RedirectFrom:
-  - 2009/04/26/orissa-tragedy-continues/
+OldURL: 2009/04/26/orissa-tragedy-continues/
 ---
 
 <span style="font-family: Verdana;"><strong>Ram Puniyani </strong></span>

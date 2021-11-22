@@ -1,0 +1,37 @@
+---
+Title: SAD STORY OF WEST BENGAL &amp; ITS BENGALIS
+Tags:
+  - politics
+  - culture
+  - bangladesh
+  - india
+  - bangalee freethinker
+  - activism
+  - Bhaskar
+Published: 2014-08-12 17:11:07 +06:00
+Updated: 2015-02-17 20:45:26 +06:00
+OldURL: 2014/08/12/what-harm-did-politics-to-west-bengal/
+---
+
+That Bengalis are cowards is a common saying in India outside West Bengal. That West Bengal has only a few industries in comparison with many other States of India is a naked fact. In this background I faced two uncomfortable questions from my daughter.
+
+While visiting the Cellular Jail (a national museum) in Andaman Islands some years back my daughter asked me since when Bengalis have become cowards? In the list of prisoners (freedom fighters) displayed in the Cellular Jail, most of the names were of Bengalis. Hence was the question. The second question was shot at me after she saw "<em>Shimabaddha</em>" the movie by legendary Satyajit Ray. She asked me as to why the corporate culture, which was so flourishing in Calcutta even up to nineteen sixties, was no more to find. I pondered over these two questions for some time and came to the conclusion that too much of interest and involvement in politics have led Bengalis to their mental and financial doom. Politics has made Bengalis of West Bengal argumentative, talkative and thinkers but not doers. They think and talk but rarely do anything constructive for them, as well as, society.
+
+The Communist movement in West Bengal (and the then Bengal) was oldest in India. During pre-independence period, the Communist movement could take root in Bengal. Following partition of Bengal during independence, the refugee problem mounted up un-employment, poverty and generalized dissatisfaction among a vast majority of Bengalis residing in West Bengal. Communist leaders filled the imagination of this large group of agitated and slogan shouting public with a rosy utopia. The Communist leaders inculcated a deep sense of deprivation among its followers. The Communist followers became perpetually frustrated and thought that revolution would come through shouting and not doing any purposeful work. They in turn prevented those who wanted to work hard and with sincerity. In government sector, senior officers were labeled as exploiters and in private sector the owners and management were termed as enemy of proletariats. 'Class Struggle' never happened, 'Armed Revolution' could not survive; Naxalite movement became a bad dream; the Communists folded tails between their legs and enter into electoral politics to capture power. And the damage was done. The State had by then become a land of "<em>Cholbe-na</em>" and "<em>Manchhi-na</em>".
+
+During early nineteen eighties, Jyoti Bose led Communist government of West Bengal declined to accept computerization wrongly arguing that it would increase unemployment. The Communist party, which has been pathologically obsessed with peasants and workers, saw the coming of  IT revolution through its tinted glass of skepticism and American capitalist conspiracy theory. The damage done has not bothered the ruling elites and their followers in West Bengal even after three decades. The Communists had romanticized poverty in West Bengal for becoming a party of poor. Under Communist rule, poor people felt proud to be poor. Poverty (mental and financial) has thus become the culture of the State. The present CM also does not want to make any change in the mindset of Bengalis of West Bengal. She is busy with film stars and event management from dais or gathering. She had all the opportunities to become a States-woman. But she has proved herself to be just another politician. She cannot tolerate any opposition. West Bengal is her political <em>Jamindari</em>. Leading a simple life is not enough to lead West Bengal. To her 'industry' means 'cottage industry'. She is also a painter of doubtful worth and her one painting was purchased by now notorious 'Sharadha Group' by paying about 20 million rupees. All is not her fault. Bengalis deserve CM like her only or the rule of '<em>bakyabagish</em>' Communists.
+
+The 'student politics' and '<em>parha</em> (locality) / village politics' are two most thriving, important and supposedly purposeful activities in West Bengal. Add to this the 'club culture' (an identified room or building with a club name where mostly un-employed and some employed male youths of the locality play 'Carom Board', view TV, do <em>adda</em> and perform annual <em>Baro-yaree Durga Puja</em> etc., etc.) and 'Union culture' (in office/industry etc). I wonder why a cohort study of people engaged in such activities was not done so far to find out what these student politicians, <em>parha</em> / village politicians, <em>dadas</em> of clubs and Union leaders do after two decades. My hunch is majority goes into oblivion and some becomes brokers. Most of the boys and girls (small in proportion) who finds importance in studies and carrier building leave West Bengal making the State to be of mediocre (<em>Modhyomedha</em>).
+
+The achievement for which West Bengal can really be proud of is its communal harmony. Bengalis of West Bengal can put their counterpart across the border in shame on that count. Physical movement, exchange of ideas and exposure to news between West Bengal and Bangladesh has been extremely easy since the birth of latter. But Bangladeshis have miserably failed to learn about this good lesson from West Bengal. The regressing population of religious minorities in Bangladesh is a testimony to that fact. The flip side of this goodness of West Bengal Bengalis is their vulnerability to Islamic terrorism. Indian Intelligence circle is full of factual information that Islamic terrorists cross over from Bangladesh and use West Bengal as a safe transit area. They definitely have many sympathizers/active members in West Bengal. Considering the recent rise of BJP in India, West Bengal may face difficult time in future if Islamic terrorism flares up in the State.  
+
+West Bengal has 19 districts with average population of 4.5 million per district. For better administration and developmental activities, there should have been at least 38 districts in the State. But the State does not have the resource to establish and maintain the running cost of 19 more districts. So people suffer and developments suffer and nobody is bothered about this important issue. 
+
+Generally speaking public in West Bengal is self-righteous, quarrelsome, cunning and hypocrite. They live in their make belief world. They have all rights under the Sun but no responsibility.
+-----------------------------------------
+<strong><em>Late PS</em></strong>: Sumit Mazumdar on August 14, 2014 wrote in www.bdnews24.com
+
+"Bangladesh has indeed made great progress, in spite of political unrest over the last many decades. However, you are wrong about West Bengal. Our state is 32nd out of 36 states in India when it comes to secondary education. In violence against women we are nearly number one. When it comes to political murders – we ARE number one. Industries have been decimated over three decades of communism and three years of Mamata's rule. Young people are leaving the state by the thousands. We are NOT superior to the general Indian"
+
+
+

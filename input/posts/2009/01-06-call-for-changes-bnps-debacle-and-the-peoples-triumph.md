@@ -8,8 +8,7 @@ Tags:
   - Anwarul Kabir
 Published: 2009-01-06 10:08:19 +06:00
 Updated: 2009-07-21 20:29:55 +06:00
-RedirectFrom:
-  - 2009/01/06/call-for-changes-bnp%e2%80%99s-debacle-and-the-peoples%e2%80%99-triumph/
+OldURL: 2009/01/06/call-for-changes-bnp%e2%80%99s-debacle-and-the-peoples%e2%80%99-triumph/
 ---
 
 

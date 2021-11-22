@@ -5,8 +5,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-11-11 06:46:26 +06:00
 Updated: 2009-11-12 03:16:29 +06:00
-RedirectFrom:
-  - 2009/11/11/quran-is-the-primary-manual-of-islamic-suicide-terrorism-re-posting/
+OldURL: 2009/11/11/quran-is-the-primary-manual-of-islamic-suicide-terrorism-re-posting/
 ---
 
 [<strong>Author's Note:</strong> This article about Islamic terrorism has been dedicated to those innocent and most patriotic American soldiers who lost their precious young lives in the recent jihadi rampage in Fort-Hood, Texas, due to the heinous and callous practices of "politically correctness" stupid culture of American liberal apologists, only to save Islamic terrorists who are hell bent to convert or kill all Americans, and establish Islamic sharia (the draconian) law. Proponents of American 'political correctness' do not know that, these Islamic jihadis are fighting from many fronts, in order to subdue American infidels to fulfill their holy wish of converting America into an Islamic nation, and to hoist Islamic flag over the White House. Super irresponsible political correctness may allow that to happen soon.]

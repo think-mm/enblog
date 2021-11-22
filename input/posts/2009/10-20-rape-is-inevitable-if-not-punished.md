@@ -10,8 +10,7 @@ Tags:
   - Ripan
 Published: 2009-10-20 07:14:49 +06:00
 Updated: 2009-10-20 07:14:49 +06:00
-RedirectFrom:
-  - 2009/10/20/rape-is-inevitable-if-not-punished/
+OldURL: 2009/10/20/rape-is-inevitable-if-not-punished/
 ---
 
 WE will not mind if Oscar-winning filmmaker Roman Polanski is tried per the same law that applies to anyone who commits such a crime, because letting this kind of crime go unpunished is not only a miscarriage of justice but also a slap to humanity. Polanski, 76, who drugged and raped a 13-year-old girl in California in 1977, was arrested on September 26, 2009 on a U.S. warrant by authorities in Switzerland.

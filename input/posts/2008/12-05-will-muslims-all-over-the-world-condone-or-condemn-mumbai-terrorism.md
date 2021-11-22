@@ -11,8 +11,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2008-12-05 02:36:00 +06:00
 Updated: 2009-07-15 07:19:17 +06:00
-RedirectFrom:
-  - 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-terrorism/
+OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-terrorism/
 ---
 
 

@@ -10,8 +10,7 @@ Tags:
   - Farida Majid
 Published: 2009-08-24 20:55:03 +06:00
 Updated: 2009-08-24 20:55:03 +06:00
-RedirectFrom:
-  - 2009/08/24/remembering-that-humayuns-assailants-are-still-roaming-free/
+OldURL: 2009/08/24/remembering-that-humayuns-assailants-are-still-roaming-free/
 ---
 
 <p align="justify"><span style="font-size: medium; font-family: Garamond;"><strong>Selectivity of "Freedom" Chokes People's Free Voice (2004)</strong> </span></p>

@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-12-30 21:16:29 +06:00
 Updated: 2008-12-30 21:17:26 +06:00
-RedirectFrom:
-  - 2008/12/30/birth-of-a-new-bangladesh-joy-bangla/
+OldURL: 2008/12/30/birth-of-a-new-bangladesh-joy-bangla/
 ---
 
 

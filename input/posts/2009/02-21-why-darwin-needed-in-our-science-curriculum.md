@@ -15,8 +15,7 @@ Tags:
   - Jahed
 Published: 2009-02-21 21:51:07 +06:00
 Updated: 2009-03-04 01:23:54 +06:00
-RedirectFrom:
-  - 2009/02/21/why-darwin-needed-in-our-science-curriculum/
+OldURL: 2009/02/21/why-darwin-needed-in-our-science-curriculum/
 ---
 
 <span style="font-size: 10pt;">-Jahed Ahmed</span>

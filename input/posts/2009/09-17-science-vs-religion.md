@@ -8,8 +8,7 @@ Tags:
   - farhad
 Published: 2009-09-17 10:50:34 +06:00
 Updated: 2009-09-23 20:06:46 +06:00
-RedirectFrom:
-  - 2009/09/17/science-vs-religion/
+OldURL: 2009/09/17/science-vs-religion/
 ---
 
 The basic incompatibility between religion and science was best summed up by the evolutionary biologist J.B.S. Haldane:

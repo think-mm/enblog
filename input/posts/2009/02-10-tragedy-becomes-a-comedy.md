@@ -9,8 +9,7 @@ Tags:
   - Sentu Tikadar
 Published: 2009-02-10 20:35:32 +06:00
 Updated: 2009-07-27 21:44:25 +06:00
-RedirectFrom:
-  - 2009/02/10/tragedy-becomes-a-comedy/
+OldURL: 2009/02/10/tragedy-becomes-a-comedy/
 ---
 
 <p align="center"><span style="font-size: large; color: #008000;">Tragedy Becomes a Comedy </span></p>

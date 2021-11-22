@@ -14,8 +14,7 @@ Tags:
   - Ripan
 Published: 2009-07-28 00:26:55 +06:00
 Updated: 2009-07-28 00:30:34 +06:00
-RedirectFrom:
-  - 2009/07/28/bangladesh-shouldn%e2%80%99t-be-a-place-to-hide-and-thrive/
+OldURL: 2009/07/28/bangladesh-shouldn%e2%80%99t-be-a-place-to-hide-and-thrive/
 ---
 
 <p class="MsoNormal" align="justify"><span style="font-size: medium; font-family: Garamond;">Their arrest reasonably left a cautious mark in what level Bangladesh is immune from the international terrorist activities.</span><span style="font-size: medium; font-family: Garamond;"> </span></p>

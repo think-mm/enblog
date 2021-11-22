@@ -9,8 +9,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-05-07 06:53:45 +06:00
 Updated: 2009-07-15 07:16:53 +06:00
-RedirectFrom:
-  - 2009/05/07/the-dreadful-islamic-hell/
+OldURL: 2009/05/07/the-dreadful-islamic-hell/
 ---
 
 <p align="center"><span style="font-size: large; color: #008000;">The Dreadful Islamic Hell </span></p>

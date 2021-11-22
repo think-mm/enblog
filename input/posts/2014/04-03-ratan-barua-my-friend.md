@@ -1,0 +1,38 @@
+---
+Title: Ratan Barua, My Friend
+Tags:
+  - religion
+  - bangladesh
+  - personality
+  - activism
+  - Jiten Roy
+Published: 2014-04-03 07:34:00 +06:00
+Updated: 2014-04-05 20:44:59 +06:00
+OldURL: 2014/04/03/ratan-barua-my-friend/
+---
+
+<!--[if !mso]&gt;-->
+<p class="MsoNormal" style="text-align: justify"><b>Ratan Barua left this world on Tuesday, April 1, 2014 at 6 AM. This write up is for those of you who did not get to know him before. I know - I can't tell you enough or all about him, but - I will try my best to give you a glimpse of his personality in this short write up.  He was unique in so many ways. I am not sure how to describe him; he was just different from most of us; never married, never had fascination for family-life; totally selfless. Thoughts of wellbeing of others always drove him forward. Whenever someone in the New York/tri-state area needed help for any reason, the first person he/she would remember to call for help was Ratan Barua. I am not sure how his void will be filled going forward.  </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>I had the privilege to work with him for more than 20 years in various organizations. He became the first president when Bangladesh Hindu, Buddhist, Christian Unity Council (BHCUC), USA was formed, I believe in 1990, and he had been with this organization ever since. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>From my own experiences and interactions with him for so many years, I can't find any other personality in the world to compare him with. I don't even know what to call him; was he a Saint or a social worker or a community leader? I don't know what to call him. Nothing seems to encompass his life fully. <span> </span></b></p>
+<p class="MsoNormal" style="text-align: justify"><b>He never accepted the religious divides, which usually compartmentalize so many people in boxes and people forget that they belong to the same human-race. While many of us prefer to identify as Hindu, Muslim, Buddhist, Christian, Jews, etc., he never identified himself as Buddhist; he would always say, "I belong to all communities; I am a human being; that is my identity." </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>Ratan-da was born in a Buddhist Family on June 30, 1954,<span>   </span>but his mind was never trapped in his own religious boundary alone; it churned across all religious divides. His heart bled for all human-being. He was the epitome of secularism. If any of us ever get confused about the real meaning of secularism, don't look for the dictionary, if you knew him, just flashback at the life of this great man. <span> </span>No dictionary can teach the real meaning of secularism better than the life of this great man. When I met him on his hospital bed on last Saturday, I came to know that one of his last wishes was to perform his funeral services in interfaith traditions (Buddhist, Hindu, Islamic, Christian, Jews, etc.). That was Ratan Barua.</b></p>
+<p class="MsoNormal" style="text-align: justify"><b>As I said before, he never cared for himself, always tried to help others. He could not help but be there by the side of the needy. He continued his services up to the last moment of his life. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>Only a few weeks back, I went to see a friend of mine after a major surgery at Mount Sinai Hospital. As I was talking to him on his hospital bed, Ratan-da entered into the room; he was panting as he walked in. I asked him, "Ratan-da, you are panting." He could not talk.</b></p>
+<p class="MsoNormal" style="text-align: justify"><b>He said, "I can't talk much anymore; I feel pain everywhere in my chest," </b></p>
+<p class="MsoNormal" style="text-align: justify"><b><span> </span>"You should have just called him instead," I told. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b><span> </span>"No, I felt the need to be here in person," he said. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>That's our Ratan-da; we all have so much to learn from this selfless human-being. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>Being in the field of cancer-care profession, I wanted to learn about his condition. So, I asked him to come with me downstairs at the end of the visit. I took him to the Starbuck café on the atrium of the Hospital. It's a nice area to sit back and relax. We had a long conversation over coffee, but not so much about him, mostly about the plights of religious minorities in Bangladesh. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>It was lunch time by then. I used to like the food in the cafeteria of this hospital, when I was working there. I asked him to join me for lunch in the cafeteria. He agreed. I was glad that I will be able to spend more time with him; I knew – his prognosis is not good, and he will not be with us for too long. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>We spend – some quality time again over lunch. During lunch, he mentioned that – he needs to attend a religious ceremony at 4 PM in the Temple at Hollis Hills. But, before that – he needs to pick up something from home at Wood-Heaven Blvd. </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>I said – "Are you sure – you want to go to the temple today?" </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>"I have to," he said, "This is a very important occasion, I have to be there." </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>I know I cannot stop him. So, I said don't' worry - I will drop you off to the temple before 4 PM."</b></p>
+<p class="MsoNormal" style="text-align: justify"><b><span> </span>I took him home first. He left the car; stood in front of the door for a while, then came back to the car again. I asked him – "Ratan-da, what's wrong? You never went into the house."</b><b> </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>He said, "Jiten-da, I am sorry, I don't have the key with me. Perhaps I left it inside when I left home in a hurry this morning." <span> </span></b></p>
+<p class="MsoNormal" style="text-align: justify"><b>We started for the temple, and reached there a few minutes before 4 PM. <span> </span></b></p>
+<p class="MsoNormal" style="text-align: justify"><b>Along this hour long journey, he was telling me how he approached interfaith societies and foreign governments after the recent atrocities on the Buddhist community in Bangladesh.<span>  </span>He organized a massive international protest against the atrocities on Buddhist community. As a result of this international pressure, Bangladesh government was forced to take action immediately to start rebuilding works in the affected areas under the supervision of Bangladesh Army Engineering Core. This is the first time in the history of Bangladesh - the government took prompt action on minority atrocity issue. I think he was proud of his latest achievement. I noticed, as he was telling these stories, he never had any trouble talking about it. I understood that - this was his passion and satisfaction.<span>  </span></b></p>
+<p class="MsoNormal" style="text-align: justify"><b>I feel so lucky today – that I had one last chance and privilege that day to spend some quality time with this great man.</b></p>
+<p class="MsoNormal" style="text-align: justify"><b>May God bless his departed soul in eternal peace and tranquility! </b></p>
+<p class="MsoNormal" style="text-align: justify"><b>Goodbye my friend, Good-bye!</b></p>

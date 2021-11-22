@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-05 22:10:25 +06:00
 Updated: 2009-07-09 18:20:49 +06:00
-RedirectFrom:
-  - 2008/11/05/braving-all-the-odds-obama-sweeps-to-victory/
+OldURL: 2008/11/05/braving-all-the-odds-obama-sweeps-to-victory/
 ---
 
 

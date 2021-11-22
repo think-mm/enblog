@@ -5,8 +5,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-02-25 13:43:52 +06:00
 Updated: 2009-02-25 13:43:52 +06:00
-RedirectFrom:
-  - 2009/02/25/heavy-gunfire-in-bangladesh-capital/
+OldURL: 2009/02/25/heavy-gunfire-in-bangladesh-capital/
 ---
 
  

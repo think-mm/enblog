@@ -10,8 +10,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-16 01:21:44 +06:00
 Updated: 2009-01-16 01:22:25 +06:00
-RedirectFrom:
-  - 2009/01/16/the-trial-we-are-waiting-for/
+OldURL: 2009/01/16/the-trial-we-are-waiting-for/
 ---
 
 

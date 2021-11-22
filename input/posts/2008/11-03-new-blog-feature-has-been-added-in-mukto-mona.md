@@ -5,8 +5,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-03 04:53:18 +06:00
 Updated: 2008-11-03 04:57:14 +06:00
-RedirectFrom:
-  - 2008/11/03/new-blog-feature-has-been-added-in-mukto-mona/
+OldURL: 2008/11/03/new-blog-feature-has-been-added-in-mukto-mona/
 ---
 
 

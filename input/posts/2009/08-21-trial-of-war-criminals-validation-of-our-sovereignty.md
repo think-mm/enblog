@@ -4,8 +4,7 @@ Tags:
   - Mozammel H Khan
 Published: 2009-08-21 09:12:55 +06:00
 Updated: 2009-08-21 09:12:55 +06:00
-RedirectFrom:
-  - 2009/08/21/trial-of-war-criminals-validation-of-our-sovereignty/
+OldURL: 2009/08/21/trial-of-war-criminals-validation-of-our-sovereignty/
 ---
 
 Trial of war criminals: validation of our sovereignty 

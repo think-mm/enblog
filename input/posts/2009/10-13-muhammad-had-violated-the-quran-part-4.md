@@ -12,8 +12,7 @@ Tags:
   - Abul Kasem
 Published: 2009-10-13 12:16:05 +06:00
 Updated: 2009-10-14 00:23:29 +06:00
-RedirectFrom:
-  - 2009/10/13/muhammad-had-violated-the-quran-part-4/
+OldURL: 2009/10/13/muhammad-had-violated-the-quran-part-4/
 ---
 
  

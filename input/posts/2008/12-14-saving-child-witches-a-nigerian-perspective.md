@@ -6,8 +6,7 @@ Tags:
   - Farid
 Published: 2008-12-14 17:47:39 +06:00
 Updated: 2008-12-14 17:52:33 +06:00
-RedirectFrom:
-  - 2008/12/14/saving-child-witches-a-nigerian-perspective/
+OldURL: 2008/12/14/saving-child-witches-a-nigerian-perspective/
 ---
 
 

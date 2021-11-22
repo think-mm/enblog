@@ -12,8 +12,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-02-12 10:08:25 +06:00
 Updated: 2009-02-12 10:15:32 +06:00
-RedirectFrom:
-  - 2009/02/12/my-struggle-to-teach-evolution-in-bangladesh/
+OldURL: 2009/02/12/my-struggle-to-teach-evolution-in-bangladesh/
 ---
 
 <h2><span style="color: #008000;">My Struggle to Teach Evolution in Bangladesh   </span></h2>

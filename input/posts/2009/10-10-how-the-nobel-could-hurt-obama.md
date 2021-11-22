@@ -7,8 +7,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-10-10 05:32:16 +06:00
 Updated: 2009-10-10 05:34:04 +06:00
-RedirectFrom:
-  - 2009/10/10/how-the-nobel-could-hurt-obama/
+OldURL: 2009/10/10/how-the-nobel-could-hurt-obama/
 ---
 
 <div id="doc4" class="yui-t6">

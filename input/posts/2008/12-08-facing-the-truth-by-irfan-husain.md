@@ -4,8 +4,7 @@ Tags:
   - Jahed
 Published: 2008-12-08 08:46:12 +06:00
 Updated: 2008-12-08 08:46:12 +06:00
-RedirectFrom:
-  - 2008/12/08/facing-the-truth-by-irfan-husain/
+OldURL: 2008/12/08/facing-the-truth-by-irfan-husain/
 ---
 
 <font size="4"><strong>                                                                      Facing the truth</strong></font><center><font size="3"><strong> By Irfan Husain</strong></font></center>

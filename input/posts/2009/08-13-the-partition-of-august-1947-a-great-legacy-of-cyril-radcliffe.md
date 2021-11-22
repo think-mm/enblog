@@ -2,16 +2,11 @@
 Title: The partition of August 1947 - a "great" legacy of Cyril Radcliffe
 Tags:
   - 1947 partition
-  - british raj
   - gandhi
-  - jinnah
-  - bengal
-  - punjab
   - A. H. Jaffor Ullah
 Published: 2009-08-13 09:42:14 +06:00
 Updated: 2009-08-13 09:42:14 +06:00
-RedirectFrom:
-  - 2009/08/13/the-partition-of-august-1947-a-great-legacy-of-cyril-radcliffe/
+OldURL: 2009/08/13/the-partition-of-august-1947-a-great-legacy-of-cyril-radcliffe/
 ---
 
 The partition of 1947 - a "great" legacy of Cyril Radcliffe

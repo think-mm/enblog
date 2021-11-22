@@ -2,12 +2,11 @@
 Title: I Am Voting For Obama And I Urge You To Do The Same
 Tags:
   - politics
-  - international
-  - Hassanal Abdullah
+  - barack obama
+  - Hassan Abdullah
 Published: 2008-11-04 11:26:24 +06:00
 Updated: 2009-10-24 08:43:25 +06:00
-RedirectFrom:
-  - 2008/11/04/i-am-voting-for-obama-and-i-urge-you-to-do-the-same/
+OldURL: 2008/11/04/i-am-voting-for-obama-and-i-urge-you-to-do-the-same/
 ---
 
 <font face="Times New Roman"></font><font face="Times New Roman">

@@ -7,8 +7,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-08 02:29:06 +06:00
 Updated: 2008-11-08 02:30:14 +06:00
-RedirectFrom:
-  - 2008/11/08/is-barak-obama-black/
+OldURL: 2008/11/08/is-barak-obama-black/
 ---
 
 

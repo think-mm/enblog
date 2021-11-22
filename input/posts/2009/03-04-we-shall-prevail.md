@@ -6,8 +6,7 @@ Tags:
   - Jahed
 Published: 2009-03-04 01:28:03 +06:00
 Updated: 2009-03-11 00:20:18 +06:00
-RedirectFrom:
-  - 2009/03/04/we-shall-prevail/
+OldURL: 2009/03/04/we-shall-prevail/
 ---
 
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: 10pt; font-family: Verdana;"><strong>Jahed Ahmed</strong></span></p>

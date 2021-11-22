@@ -7,8 +7,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-12-31 07:24:22 +06:00
 Updated: 2008-12-31 07:24:22 +06:00
-RedirectFrom:
-  - 2008/12/31/election-brief-post-update/
+OldURL: 2008/12/31/election-brief-post-update/
 ---
 
 

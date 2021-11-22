@@ -9,8 +9,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-01-21 01:58:07 +06:00
 Updated: 2009-01-21 01:59:52 +06:00
-RedirectFrom:
-  - 2009/01/21/president-obama-and-american-dreams-2/
+OldURL: 2009/01/21/president-obama-and-american-dreams-2/
 ---
 
 

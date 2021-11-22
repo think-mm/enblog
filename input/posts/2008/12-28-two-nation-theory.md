@@ -1,15 +1,12 @@
 ---
 Title: Two-nation theory
 Tags:
-  - bangladesh
-  - two-nation theory
-  - nizami
-  - politics
-  - Mukto-Mona Editor
+  - secularism
+  - liberation war
+  - Ishfaq Ilahi Choudhury
 Published: 2008-12-28 13:28:50 +06:00
 Updated: 2008-12-28 13:28:50 +06:00
-RedirectFrom:
-  - 2008/12/28/two-nation-theory/
+OldURL: 2008/12/28/two-nation-theory/
 ---
 
 

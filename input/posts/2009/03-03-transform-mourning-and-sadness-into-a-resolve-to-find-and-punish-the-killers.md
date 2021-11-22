@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-03-03 02:19:17 +06:00
 Updated: 2009-03-03 02:19:17 +06:00
-RedirectFrom:
-  - 2009/03/03/transform-mourning-and-sadness-into-a-resolve-to-find-and-punish-the-killers/
+OldURL: 2009/03/03/transform-mourning-and-sadness-into-a-resolve-to-find-and-punish-the-killers/
 ---
 
 <p style="line-height: 200%;" align="center"><strong><span style="color: #008000; font-family: Verdana;">Transform mourning and sadness into a resolve to find and punish the killers</span></strong></p>

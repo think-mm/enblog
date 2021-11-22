@@ -15,8 +15,7 @@ Tags:
   - William Gomes
 Published: 2009-11-15 09:38:36 +06:00
 Updated: 2009-11-15 09:38:36 +06:00
-RedirectFrom:
-  - 2009/11/15/the-man-behind-the-islamic-democratic-party/
+OldURL: 2009/11/15/the-man-behind-the-islamic-democratic-party/
 ---
 
 The Daily Star headline "The CID hunts for IDP adviser Azizul Huq" caught my eye recently. The government should dig out who is behind the formation of the Islamic Democratic Party (IDP); it is obviously not Kazi Azizul Huq or Sheikh Abdus Salam. The man behind the scenes has a careful plan behind forming the Islamic Democratic Party. 

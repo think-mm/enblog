@@ -10,8 +10,7 @@ Tags:
   - Mizan Rahman
 Published: 2009-11-04 01:25:22 +06:00
 Updated: 2009-11-04 01:25:22 +06:00
-RedirectFrom:
-  - 2009/11/04/anyone-remembers-nov3/
+OldURL: 2009/11/04/anyone-remembers-nov3/
 ---
 
 A nation that cannot remember its history cannot create one. Did anyone say this before? Must have. Such an obvious thing to say. And yet, the irony of it is that its central message is lost to most nations, including our own, especially our very own nation of Bangladesh.

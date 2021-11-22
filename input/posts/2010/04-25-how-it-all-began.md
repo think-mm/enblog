@@ -1,0 +1,25 @@
+---
+Title: How it all began?
+Tags:
+  - religion
+  - philosophy
+  - science
+  - society
+  - farhad
+Published: 2010-04-25 13:14:45 +06:00
+Updated: 2010-04-25 13:14:45 +06:00
+OldURL: 2010/04/25/how-it-all-began/
+---
+
+Do we really need to know "how it all began"? So much so that we will believe in any fantasy that claims to know the "truth." The Earth is 4 billion years old, the universe is older. Barring any major asteroid strikes, the Earth will still be around for another 2 billion years. We cannot know "where it all began." 
+
+Why do we take comfort in the claim that "God did it"? Let us be thankful because we are alive and evolved enough to enjoy this beautiful world. Let us behave like adults and get to work on the real problems of the world so that others can enjoy this life too.
+
+The concept of an infinite universe is impossible to understand when seen through the eyes of a single finite life. There is a defined birth, growth and death to every one of us who is human, and to every life form on our planet. This is the reworking of matter. We may pose the question "where did the essential carbon atom come from?" It came out of the nuclear furnaces of stars. So where did stars come from? Stars came from nebula that drifted through space coalescing and contracting until the space between molecules became so small that interaction occurred to the point of creating nuclear fusion. So where did nebula come from? The Big Bang created the base elements that became nebula. And where did the Big Bang come from? That's a tougher question to answer because that suggests a starting point to all of what follows. Some theorize that the Big Bang is a birth experience from a parallel universe in a multiverse. We are still trying to figure that one out. But we understand a great deal of what followed the Big Bang. I would pose this question. Where does a prime Alpha named God, Yahweh, Allah, (that is the common monotheistic godhead), or where do the pantheon of gods from other religions such as Hinduism come into play? Did they create the Big Bang? Did they then create space? Did they then organize the matter that formed after the Big Bang over billions of years into stars with planetary systems that resided in millions of galaxies which we can see when we point a telescope into the night sky? Did this or these Alpha figures then organize single stellar systems so that they would have habitable planets upon which solar energy would fall? Did they then come up with the idea of organizing the matter into wide ranging life forms covering every conceivable echo-niche, on this planet and many others? Did they then pick one species on the planet to become their personal charge, to carry their ideas and words and live by their ideals? Did they do this on thousands of planets around thousands of stars? And then did they inspire those species through free will to pursue screwing up the planet and life forms they created? And did they create all these other planets, Saturn, Jupiter, Mars, exoplanets by the thousands, all for that species to wonder about? It seems like such a colossal waste of both time and effort don't you think?
+
+Well, it's pretty obvious to me that science and religion conflict. Religion used to be the accepted "science." People wondered why the crops failed, why there were storms, why they got sick, etc. The priestly classes offered up their "scientific" explanation: there is a Big Sky Daddy (or Daddies) who we must appease, and those priests would be glad to act as go-between. Sometimes, the crops did better, sometimes they didn't, but the priestly classes were always able to snuff out doubt by using fear. Real science which really explains how things are was held back, but the truth always "will out." Science has continued its progress to the point that religion has now been driven to hide behind the Big Bang as the "last refuge" of God. Why don't we just give up on this fantasy called religion and focus on the real world and its problems?
+
+In this topic the challenge for most of us is to get outside of our comfort zones and see the evidence around us. I was brought up in a quasi-religious home but was given access to a vast library of books on science, history, philosophy. I always wanted to understand a world view from entirely different perspectives. Religion fascinates me largely because it is so uniquely a construct of our cultural roots. It certainly wasn't Darwin's intention to disprove believe in faith when he made his observations and shared them with the world. But what he certainly has done is moved people from what was comfortable because there was always an explanation, to what is no longer comfortable, the randomness of it all, the potential of a multiverse that gives birth to new Big Bangs, the end of our anthropocentric view.
+
+I like being outside my comfort zone. It makes me ask a lot of questions. It confirms my atheism while helping me understand how others see the world and this universe, both human and non-human. It is enjoyable to read how others are wrestling with this subject and drawing conclusions of their own.
+

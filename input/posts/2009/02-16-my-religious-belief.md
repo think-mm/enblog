@@ -10,8 +10,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-02-16 09:22:37 +06:00
 Updated: 2009-02-16 09:35:57 +06:00
-RedirectFrom:
-  - 2009/02/16/my-religious-belief/
+OldURL: 2009/02/16/my-religious-belief/
 ---
 
  

@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-05 09:51:29 +06:00
 Updated: 2009-07-09 18:21:32 +06:00
-RedirectFrom:
-  - 2008/11/05/my-red-state-blues/
+OldURL: 2008/11/05/my-red-state-blues/
 ---
 
 

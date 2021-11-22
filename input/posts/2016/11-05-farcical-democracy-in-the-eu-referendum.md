@@ -1,0 +1,39 @@
+---
+Title: Farcical democracy in the EU referendum
+Tags:
+  - politics
+  - philosophy
+  - international
+  - human rights
+  - activism
+  - A Rahman
+Published: 2016-11-05 20:32:03 +06:00
+Updated: 2016-11-17 23:13:37 +06:00
+OldURL: 2016/11/05/farcical-democracy-in-the-eu-referendum/
+---
+
+On 3<sup>rd</sup> of November 2016, three senior most judges of the British high court gave a landmark ruling that the British Parliament alone, not the government, has the ultimate authority to trigger Article 50, the formal process to exit the European Union. The government had so far insisted that it does not require any parliamentary authority as royal prerogative powers were sufficient to proceed. When government's contention was legally challenged by a handful of well intentioned public, the lord chief justice of the high court declared, "The government does not have power under the crown's prerogative to give notice pursuant to article 50 for the UK to withdraw from the EU."
+
+This monumental ruling goes to the root of democratic system segregating the rights and domains of responsibility of the legislature and the executive arms. But my inquiry here is concerned with two fundamental issues: <strong>(i) Can this referendum, whether Britain remains within the EU or leaves, be regarded to be within the premises of democratic process? and (ii) Is the outcome of this starkly binary process acceptable within the bounds of democracy?  </strong>
+
+Let me try to dissect the first inquiry first. The United Kingdom of Great Britain and Northern Ireland joined the EEC back in 1973. Since then the EEC has evolved and expanded politically, socially and economically into a 28 Member States having a single market allowing free movement of goods, services, capital and labour. Even a single currency, Euro, had been introduced, although Britain opted out of the single currency block, called the Eurozone.
+
+When a local or national election is held under a democratic system, electorates are asked to choose one of the many candidates, when each candidate comes up with his or her manifesto, priorities, programmes etc. to reflect the hopes and aspirations as well as concerns of the electorates. A candidate may belong to a national party, which produces a manifesto giving an overarching policy directive to which the local candidate may associate himself wholly or partially. In any case, the electorates know exactly what they are voting for and how the prescribed manifesto would be realised.
+
+But in the EU referendum, there were no candidates, no plans or programmes, no defined narrative except wildly exaggerated mendacious presumptions by opportunistic individuals claiming the "future would be bright". The referendum question was simply binary - Do you want to stay within the EU or leave? And the answer required was: Yes or No. There was no subset question pertaining to remaining or leaving the EU.
+
+The government took a firm decision to remain within the EU following intensive negotiations with the EU Member States (MS) addressing concerns and issues important to Britain. So confident was the government of the day that there was no preparation at all in case of leave vote. The opportunistic politicians of the ruling party and xenophobic elements of British politics ganged up to lead the populace out of the EU and into the wilderness. All negative factors, from unemployment to housing shortage, from bed shortages in the NHS to obesity, from flood damages to train overcrowding, everything was laid to the doors of the EU. On top of all these, totally egregious claims of imminent arrival in Britain of 80 million Turks were made. No rational discourse, no discussions of perceived or actual problem were possible in the highly charged atmosphere of fear factors.
+
+People's grievances were blown out of all proportions and egregious claims were piled up by the xenophobic elements to reject EU. All sorts of lies and claims such as additional £350 million per week to be available to the NHS (savings from the EU subscription) disregarding the fact that more than two thirds of this amount are normally given back to the UK as farm subsidies, university grants, research grants, environmental protection etc. The norms and accuracy of facts in local or national elections were totally flouted deliberately.
+
+One may legitimately ask, can this referendum be considered within the premises of democracy? In an election where a large number of candidates of various persuasions are elected throughout the whole country, almost all views and ideas are represented in one form or other in the final mix. The party with the majority may have a mandate to implement their programmes, but there may be a number of elected representatives who do not subscribe wholly to highly controversial mandates. In addition, the opposition parties are always there to water down controversial programmes. So, there are always representation of various views; no view is totally ignored or rejected. Take, for example, Mrs Thatcher's poll tax. Despite Tories overwhelming majority and Mrs Thatcher's firm authority in the parliament, poll tax was so much despised by the public that not only Mrs Thatcher failed to implement it but also she had been thrown out of power.
+
+But in the referendum, it is a binary choice, it is all or nothing. In the referendum, 51.9% voted for Brexit and 48.1% voted to remain, giving a net margin of 3.8% for Brexit. Now the government wants to leave the EU and thereby totally rejecting the wishes of 48.1% of electorates. There is no attempt to accommodate of "remain" opinions. Surely this cannot be sensible outcome of a fair democracy.
+
+The very word "democracy" is derived from Greek word <em>demoskratos </em>where <em>demos</em> (the people) are assigned the responsibility of <em>kratos</em> (to rule). In other words, "the general will" of the people was used to be the guiding principle for the running of the government. In the formation of this "general will", people needed to be armed with facts not fiction, knowledge not opinion, rational discourse not emotion. When fiction, emotion and opinions are fed to the public by mischievously opinionated politicians for their personal gains and gratification, the end product becomes so distorted that the interests of the majority as well as the national interests become redundant. The sheer exercise of counting numbers of deluded people by feeding egregious facts cannot remotely be called a democratic process.
+
+Let me turn to the second issue. In addition to this pretentious exercise of democracy, no rational discussions of the aftermath of Brexit, its consequences, repercussions and so forth were presented to the public. People were overwhelmed with the propaganda that "the future is bright" following Brexit. Whereas the World Bank, International Monetary Fund (IMF), OECD and other international financial institutions of repute had warned that there would be adverse consequences, the Brexiters kept claiming that "the future is bright" and the British democracy must be taken back from the EU.
+
+The whole of this referendum process, if it could be called a democratic process, was nothing but corrupt as it was based on lies and deception. It can at best be compared with the much-despised mis-selling of Payment Protection Insurance (PPI) plan to the public, where there was hardly any payment protection at all, only profit margins for the sellers. Similarly, this Brexit is for the benefit of the xenophobic leaders at tremendous costs to the demos (the many). This is nothing but a farcical demonstration of democratic process.  The judiciary of the democratic system is now absolutely right to ask the legislative body to review the process before it is passed on to the executive body.
+
+&nbsp;

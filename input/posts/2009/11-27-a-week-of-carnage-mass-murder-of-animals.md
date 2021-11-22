@@ -7,8 +7,7 @@ Tags:
   - Dipen Bhattacharya
 Published: 2009-11-27 13:20:37 +06:00
 Updated: 2009-11-27 13:20:37 +06:00
-RedirectFrom:
-  - 2009/11/27/a-week-of-carnage-mass-murder-of-animals/
+OldURL: 2009/11/27/a-week-of-carnage-mass-murder-of-animals/
 ---
 
 This is the week of carnage. Apparently, God, gods and goddesses have given the sign – they demand blood. Man's inhumanity attains a crescendo when he sacrifices innocent animals on the altar. During this week, Nepal's ground will be soaked with blood from decapitated heads of thousands and thousands of buffalos. This is all to satisfy the whims of goddess Gadhimai. Do people really believe she would deliver the goods? 

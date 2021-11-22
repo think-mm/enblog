@@ -1,0 +1,19 @@
+---
+Title: Yet Another Atheist Killed
+Tags:
+  - Mohsin Siddique
+Published: 2015-05-13 21:02:27 +06:00
+Updated: 2015-05-13 21:02:27 +06:00
+OldURL: 2015/05/13/yet-another-atheist-killed/
+---
+
+Once again we are outraged at the shocking killing of Ananta Bijoy by thugs recruited by self-assigned protectors of Islam that is supposed to be so fragile that this 1300+ year old religion followed by several billion people around the world is in danger of being taken down by a few atheists. Rumor has it that these 'protectors' might really be after a much sought reward earmarked for killing non-believers, preferably by chopping the victim up: a sure entry into heaven plus 40 virgins to f..k. Hopefully a side order of Viagra will come with it! One could speculate how pathetic these cretins are; but the thing to worry about is how powerful they are, and why so.
+
+The ease with which these killings are taking place is depressing. I know of no case where the authorities have been able to reveal the network behind the killings. These are not random acts; these have objectives, and are results of deliberation, decision, planning, recruitment, logistics, resource and execution. I seriously doubt that all the law enforcement authorities are too dumb not to know that. Most likely, they are either incapable of figuring this out, or unwilling to pursue and reveal to the public the forces that are engineering this carnage. If it is the first, they ought to be fired for incompetence; if it is the second, they ought to be hanged for collaborating with the assassins, after appropriate trials, off course. 
+
+The front end responsibility for this is with the party in power. They party out of power is responsible for enabling the resurgence of religious politics and legitimizing a political party and ideology that was explicitly and boldly against creation of Bangladesh. Further, their goal is to get back with Pakistan in some form or fashion – they are open about it. 
+
+The current party in power is responsible in that it has refused to take steps to eliminate the curse of politics of religious hatred, has sought alliance with those forces and engaged in appeasement with these evil incarnate. It has exposed its true nature by refusing to reinstall the secular provision in the constitution. Above all, it is a declaration of intolerance, disregard of democratic principles, and encouragement of religious violence. It has no interest in confronting it, even less so in stopping the killings of people like Ananta. Refusal to accept that people cannot be stopped from thinking, and chances are that some will turn nonbelievers and/or skeptics, and that such people have always existed, everywhere, reveals how divorced the politicians are from common sense. Banning atheism is indicative of low-intelligence, self-absorbed, self-serving, cynical, lumpen political class that has gained power and is planning to hold on to it at any cost. Stealing elections, kidnapping opponents, beating up on children protesting on the street, protecting their future leaders practicing sexual assault on innocent on women out on the street – whatever, it takes, they are willing to deploy. 
+
+For this, the people of Bangladesh are responsible: these policies are implemented in their name. It is their responsibility to dethrone incompetent corrupt governments. If they are unable to do so, I see no reason for them to exist as a country. As long as people cannot justify their existence as a country by controlling the politics, its institutions and its politicians, it will exist at best as a failed state.  A state fails when democracy fails in it because of intolerance of other views. In such an environment the few rational, questioning, curious individuals such as Ananat left in the society, are not going to be spared.
+

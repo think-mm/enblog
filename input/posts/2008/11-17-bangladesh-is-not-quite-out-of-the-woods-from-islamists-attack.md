@@ -7,8 +7,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-17 21:45:28 +06:00
 Updated: 2009-07-09 18:19:50 +06:00
-RedirectFrom:
-  - 2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack/
+OldURL: 2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack/
 ---
 
 <font size="2" face="Arial"> </font>

@@ -7,8 +7,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-03-14 07:17:25 +06:00
 Updated: 2009-03-14 07:17:25 +06:00
-RedirectFrom:
-  - 2009/03/14/the-global-crisis-and-the-bail-out-plan-a-misguided-approach/
+OldURL: 2009/03/14/the-global-crisis-and-the-bail-out-plan-a-misguided-approach/
 ---
 
 <h2 style="text-align: center;"><span style="color: #800000;"><strong><span lang="EN-GB">The Global Crisis and the Bail-out Plan: A Misguided Approach</span></strong></span></h2>

@@ -4,8 +4,7 @@ Tags:
   - Jahed
 Published: 2009-04-24 23:15:31 +06:00
 Updated: 2009-04-24 23:15:31 +06:00
-RedirectFrom:
-  - 2009/04/24/dance-with-dead-bodies-and-the-administrations-silence/
+OldURL: 2009/04/24/dance-with-dead-bodies-and-the-administrations-silence/
 ---
 
 <p class="MsoNormal" style="text-align: center; line-height: 150%;"><!--[if gte mso 9]><xml> <w:WordDocument> <w:View>Normal</w:View> <w:Zoom>0</w:Zoom> <w:PunctuationKerning /> <w:ValidateAgainstSchemas /> <w:SaveIfXMLInvalid>false</w:SaveIfXMLInvalid> <w:IgnoreMixedContent>false</w:IgnoreMixedContent> <w:AlwaysShowPlaceholderText>false</w:AlwaysShowPlaceholderText> <w:Compatibility> <w:BreakWrappedTables /> <w:SnapToGridInCell /> <w:WrapTextWithPunct /> <w:UseAsianBreakRules /> <w:DontGrowAutofit /> </w:Compatibility> <w:BrowserLevel>MicrosoftInternetExplorer4</w:BrowserLevel> </w:WordDocument> </xml><![endif]--><!--[if gte mso 9]><xml> <w:LatentStyles DefLockedState="false" LatentStyleCount="156"> </w:LatentStyles> </xml><![endif]--> <!--[if gte mso 10]>

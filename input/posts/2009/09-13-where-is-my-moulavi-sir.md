@@ -7,8 +7,7 @@ Tags:
   - Jiten Roy
 Published: 2009-09-13 03:03:39 +06:00
 Updated: 2009-09-23 20:07:52 +06:00
-RedirectFrom:
-  - 2009/09/13/where-is-my-moulavi-sir/
+OldURL: 2009/09/13/where-is-my-moulavi-sir/
 ---
 
 <div></div>

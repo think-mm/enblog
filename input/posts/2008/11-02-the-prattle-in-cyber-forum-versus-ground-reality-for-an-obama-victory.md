@@ -5,8 +5,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-11-02 11:14:40 +06:00
 Updated: 2009-07-09 18:22:20 +06:00
-RedirectFrom:
-  - 2008/11/02/the-prattle-in-cyber-forum-versus-ground-reality-for-an-obama-victory/
+OldURL: 2008/11/02/the-prattle-in-cyber-forum-versus-ground-reality-for-an-obama-victory/
 ---
 
 

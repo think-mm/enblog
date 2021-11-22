@@ -2,15 +2,12 @@
 Title: My Response to a Pakistani School Student
 Tags:
   - bangladesh
-  - pakistan
-  - 1971
-  - genocide
+  - 1971 genocide
   - liberation war
   - Abul Kasem
 Published: 2008-12-24 02:14:09 +06:00
 Updated: 2009-05-17 09:41:25 +06:00
-RedirectFrom:
-  - 2008/12/24/my-response-to-a-pakistani-school-student/
+OldURL: 2008/12/24/my-response-to-a-pakistani-school-student/
 ---
 
 

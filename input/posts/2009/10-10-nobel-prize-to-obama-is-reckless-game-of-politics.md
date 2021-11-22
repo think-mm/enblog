@@ -5,8 +5,7 @@ Tags:
   - Biplab Pal
 Published: 2009-10-10 16:21:09 +06:00
 Updated: 2009-10-10 16:22:00 +06:00
-RedirectFrom:
-  - 2009/10/10/nobel-prize-to-obama-is-reckless-game-of-politics/
+OldURL: 2009/10/10/nobel-prize-to-obama-is-reckless-game-of-politics/
 ---
 
 Nobel peace prize has always been controversial. Just imagine a terrorist like Yasser Arafat or an war criminal like Henry Kissinger was awarded for their contribution to 'humanity' where as Gandhi never won Nobel Prize in peace! I guess the last information was enough to puncture the glory of Nobel peace prize and this year's award to US president Barack Obama is just another straw in the same hat of ignominy and disrepute known as Nobel Peace Prize. I am not saying he would not have won it one day because of his peace effort but I believe that is as much as saying, I am trying to discover dark matter and I have a equation too! Then why not Nobel Prize to me? Just imagine this year Nobel winner in Physics, Charles Cao discovered optical fiber in 1978 and he has to wait a bloody 31 years before Nobel committee could agree on his honor and achievement. By 1991, it was extremely clear that optical fiber is the future of backbone long haul communication but even then, it took Nobel committee 18 years to recognize it.

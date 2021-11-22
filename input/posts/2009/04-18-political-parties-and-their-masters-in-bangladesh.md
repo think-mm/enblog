@@ -7,8 +7,7 @@ Tags:
   - Bijon Sarma
 Published: 2009-04-18 10:38:09 +06:00
 Updated: 2009-07-16 22:13:32 +06:00
-RedirectFrom:
-  - 2009/04/18/political-parties-and-their-%e2%80%9cmasters%e2%80%9d-in-bangladesh/
+OldURL: 2009/04/18/political-parties-and-their-%e2%80%9cmasters%e2%80%9d-in-bangladesh/
 ---
 
 <p class="MsoNormal" style="margin-bottom: 0.0001pt; text-align: center; line-height: normal;" align="center"><strong></strong></p>

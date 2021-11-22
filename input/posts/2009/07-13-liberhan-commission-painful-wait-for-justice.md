@@ -8,8 +8,7 @@ Tags:
   - Ram Puniyani
 Published: 2009-07-13 20:15:34 +06:00
 Updated: 2009-07-15 08:39:42 +06:00
-RedirectFrom:
-  - 2009/07/13/liberhan-commission-painful-wait-for-justice/
+OldURL: 2009/07/13/liberhan-commission-painful-wait-for-justice/
 ---
 
 <p align="center"><span style="font-size: large; color: #008000;">Liberhan Commission; Painful Wait For Justice </span></p>

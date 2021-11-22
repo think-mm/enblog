@@ -8,8 +8,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-12-29 12:48:27 +06:00
 Updated: 2009-07-09 18:18:48 +06:00
-RedirectFrom:
-  - 2008/12/29/which-alliance-may-come-out-victorious-in-this-b%e2%80%99desh-election/
+OldURL: 2008/12/29/which-alliance-may-come-out-victorious-in-this-b%e2%80%99desh-election/
 ---
 
 <font size="2" face="Arial"> </font>

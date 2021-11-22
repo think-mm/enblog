@@ -8,8 +8,7 @@ Tags:
   - Mozammel H Khan
 Published: 2009-04-12 19:48:34 +06:00
 Updated: 2009-07-28 00:48:47 +06:00
-RedirectFrom:
-  - 2009/04/12/political-vengeance-or-overdue-correction/
+OldURL: 2009/04/12/political-vengeance-or-overdue-correction/
 ---
 
 <p style="text-align: center;"><strong><span style="font-size: medium;">Mozammel H. Khan</span></strong></p>

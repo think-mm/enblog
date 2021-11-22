@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-08 02:37:30 +06:00
 Updated: 2008-11-08 02:52:01 +06:00
-RedirectFrom:
-  - 2008/11/08/mukto-mona-member-freed/
+OldURL: 2008/11/08/mukto-mona-member-freed/
 ---
 
 

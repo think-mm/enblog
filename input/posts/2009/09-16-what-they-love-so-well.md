@@ -9,8 +9,7 @@ Tags:
   - Shabnam Nadiya
 Published: 2009-09-16 21:52:30 +06:00
 Updated: 2009-09-16 21:54:02 +06:00
-RedirectFrom:
-  - 2009/09/16/what-they-love-so-well/
+OldURL: 2009/09/16/what-they-love-so-well/
 ---
 
 <p align="center"><span class="bd"><span style="font-size: medium; font-family: Garamond;"><img style="border-color: #000000;" src="https://www.newagebd.com/2009/sep/16/eidspecial09/07.jpg" border="0" alt="" /> </span></span></p>

@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2008-12-01 21:38:48 +06:00
 Updated: 2009-07-09 18:19:12 +06:00
-RedirectFrom:
-  - 2008/12/01/thanksgiving-day-mumbai-massacre-%e2%80%93-lesson-for-india/
+OldURL: 2008/12/01/thanksgiving-day-mumbai-massacre-%e2%80%93-lesson-for-india/
 ---
 
 

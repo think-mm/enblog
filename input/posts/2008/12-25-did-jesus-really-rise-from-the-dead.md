@@ -1,27 +1,21 @@
 ---
 Title: Did Jesus Really Rise From The Dead?
 Tags:
-  - jesus
-  - myth
-  - rise from the dead
-  - religion
-  - culture
-  - philosophy
-  - Mukto-Mona Editor
+  - christianity
+  - Avijit Roy
 Published: 2008-12-25 10:13:40 +06:00
 Updated: 2008-12-25 22:24:07 +06:00
-RedirectFrom:
-  - 2008/12/25/did-jesus-really-rise-from-the-dead/
+OldURL: 2008/12/25/did-jesus-really-rise-from-the-dead/
 ---
 
 
 <blockquote><font color="#008000"><strong>[Moderator's note: </strong>The following article is excerpted from Dan Barker's recent book,  "Godless". Dan Barker (born June 25, 1949) is a prominent American atheist activist who served as a Christian preacher and musician for 20 years, but left Christianity in 1984. After almost 20 years of evangelical preaching, missionizing, and Christian songwriting, Dan Barker <a href="https://ffrf.org/books/lfif/?t=lostfaith">started loosing his faith in faith</a>. In Godless, Barker describes the intellectual and psychological path he followed in moving from fundamentalism to freethought. Godless includes sections on biblical morality, the historicity of Jesus, biblical contradictions, the unbelievable resurrection, and much more. It is an arsenal for skeptics and a direct challenge to believers. Along the way, Barker relates the positive benefit readers will experience from learning to trust in reason and human kindness instead of living in fear of false judgment and moral condemnation. He is the current co-president of the <a href="https://ffrf.org/">Freedom From Religion Foundation</a>, an American Freethought organization that promotes the separation of church and state.</font>
 
-<font color="#008000">-Avijit Roy </font>
-<a href="https://muktomona.com/">www.muktomona.com</a> ]
+<font color="#008000">-Avijit Roy </font> ]
+
 <p align="center"><embed height="147" width="309" src="https://www.freethoughtassociation.com/barker.mp3"></embed></p>
 </blockquote>
-<hr /><center></center>
+<hr />
 <h2 align="center"><font color="#008000">Did Jesus Really Rise From The Dead?</font></h2>
 <h3 align="center"><font color="#000080">Dan Barker</font></h3>
 <p align="center"><img src="https://ffrf.org/news/images/barker_3.jpg" /></p>

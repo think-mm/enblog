@@ -9,8 +9,7 @@ Tags:
   - Bijon Sarma
 Published: 2009-07-27 22:06:44 +06:00
 Updated: 2009-07-27 22:06:44 +06:00
-RedirectFrom:
-  - 2009/07/27/india%e2%80%99s-hydro-electric-project-at-tipaimukh-and-the-hot-debate-in-bangladesh/
+OldURL: 2009/07/27/india%e2%80%99s-hydro-electric-project-at-tipaimukh-and-the-hot-debate-in-bangladesh/
 ---
 
 INDIA'S HYDRO-ELECTRIC PROJECT AT TIPAIMUKH AND THE HOT DEBATE IN BANGLADESH 

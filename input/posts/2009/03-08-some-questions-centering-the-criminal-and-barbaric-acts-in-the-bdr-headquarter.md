@@ -9,8 +9,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-03-08 01:51:32 +06:00
 Updated: 2009-03-08 01:51:32 +06:00
-RedirectFrom:
-  - 2009/03/08/some-questions-centering-the-criminal-and-barbaric-acts-in-the-bdr-headquarter/
+OldURL: 2009/03/08/some-questions-centering-the-criminal-and-barbaric-acts-in-the-bdr-headquarter/
 ---
 
 <p class="MsoNormal" style="line-height: 200%;" align="center"><strong><span style="font-size: 12pt; font-family: Verdana;"><span style="color: #008000;">Some Questions Centering the Criminal and Barbaric Acts in the BDR Headquarter</span></span></strong><span style="color: #008000; font-family: Verdana;"> </span></p>

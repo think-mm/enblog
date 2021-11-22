@@ -6,8 +6,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-01-15 17:30:39 +06:00
 Updated: 2009-07-09 18:18:21 +06:00
-RedirectFrom:
-  - 2009/01/15/would-%e2%80%98kokogate%e2%80%99-spare-khaleda-zia%e2%80%99s-family/
+OldURL: 2009/01/15/would-%e2%80%98kokogate%e2%80%99-spare-khaleda-zia%e2%80%99s-family/
 ---
 
 

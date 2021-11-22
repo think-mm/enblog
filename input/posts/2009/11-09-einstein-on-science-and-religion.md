@@ -4,8 +4,7 @@ Tags:
   - farhad
 Published: 2009-11-09 12:12:03 +06:00
 Updated: 2009-11-09 12:12:03 +06:00
-RedirectFrom:
-  - 2009/11/09/einstein-on-science-and-religion/
+OldURL: 2009/11/09/einstein-on-science-and-religion/
 ---
 
 The religion of the future will be a cosmic religion. It should transcend personal God and avoid dogma and theology. Covering both the natural and the spiritual, it should be based on a religious sense arising from the experience of all things natural and spiritual as a meaningful unity. Buddhism answers this description. If there is any religion that could cope with modern scientific needs it would be Buddhism. (Albert Einstein)

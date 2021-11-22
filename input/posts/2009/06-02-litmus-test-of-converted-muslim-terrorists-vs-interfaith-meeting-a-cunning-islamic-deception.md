@@ -7,8 +7,7 @@ Tags:
   - Syed Kamran Mirza
 Published: 2009-06-02 11:13:48 +06:00
 Updated: 2009-07-15 07:16:41 +06:00
-RedirectFrom:
-  - 2009/06/02/litmus-test-of-converted-muslim-terrorists-vs-interfaith-meeting-a-cunning-islamic-deception/
+OldURL: 2009/06/02/litmus-test-of-converted-muslim-terrorists-vs-interfaith-meeting-a-cunning-islamic-deception/
 ---
 
 <p class="MsoNormal" align="center"><strong><span style="font-size: 16pt; color: #333399;">Litmus test of Converted Muslim terrorists vs. Interfaith Meeting: A cunning Islamic deception! </span></strong></p>

@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-06-02 11:05:17 +06:00
 Updated: 2009-06-02 11:05:17 +06:00
-RedirectFrom:
-  - 2009/06/02/education-let-us-think/
+OldURL: 2009/06/02/education-let-us-think/
 ---
 
 <p class="MsoNormal" style="text-align: center;" align="center"><span style="color: #008000; font-family: Verdana;"><strong><span style="font-size: 16pt;">Education: Let Us Think</span></strong></span></p>

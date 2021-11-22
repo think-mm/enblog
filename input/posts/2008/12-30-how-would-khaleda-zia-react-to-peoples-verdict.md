@@ -1,19 +1,15 @@
 ---
-Title: How would Khaleda Zia react to peoples' verdict?
+Title: How would Khaleda Zia react to peoples verdict?
 Tags:
   - bangladesh
-  - election 2008
-  - khaleda zia
-  - peoples' verdict
+  - election
   - politics
   - A. H. Jaffor Ullah
 Published: 2008-12-30 09:30:45 +06:00
 Updated: 2009-07-09 18:18:33 +06:00
-RedirectFrom:
-  - 2008/12/30/how-would-khaleda-zia-react-to-peoples-verdict/
+OldURL: 2008/12/30/how-would-khaleda-zia-react-to-peoples-verdict/
 ---
 
-<font size="2" face="Arial"> </font>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><u><font size="4" color="#800080" face="Times New Roman"><strong>An election Post script </strong></font></u></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>How would <span id="lw_1230607068_0" class="yshortcuts">Khaleda Zia</span> react to peoples' verdict?</strong></font></p>

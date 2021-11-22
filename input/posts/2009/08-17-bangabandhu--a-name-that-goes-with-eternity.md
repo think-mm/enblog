@@ -9,8 +9,7 @@ Tags:
   - shazzad
 Published: 2009-08-17 04:42:29 +06:00
 Updated: 2009-08-17 04:42:29 +06:00
-RedirectFrom:
-  - 2009/08/17/bangabandhu-%e2%80%93-a-name-that-goes-with-eternity/
+OldURL: 2009/08/17/bangabandhu-%e2%80%93-a-name-that-goes-with-eternity/
 ---
 
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"><span lang="EN-GB">Embracing Bangabandhu at the Algiers Non-Aligned Summit in 1973, Cuba's Fidel Castro remarked, "I have not seen the Himalayas. But I have seen Sheikh Mujib. In personality and in courage, this man is the Himalayas. I have thus had the experience of witnessing the Himalayas."</span></span></p>

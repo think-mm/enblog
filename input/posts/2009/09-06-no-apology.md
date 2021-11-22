@@ -11,8 +11,7 @@ Tags:
   - adnan
 Published: 2009-09-06 21:48:23 +06:00
 Updated: 2009-09-07 05:02:28 +06:00
-RedirectFrom:
-  - 2009/09/06/no-apology/
+OldURL: 2009/09/06/no-apology/
 ---
 
 The Koran was burning, and I was shivering like I had a fever, a kind that I never had before.  I was scared.  My best friend was standing right next to me, eyes about to pop out.  We were waiting for something wild to happen.  I read in a newspaper that a priest in Africa burned a Koran, and when the burning was done, his hands disappeared and he went nuts or he had a heart attack, something like that, I can't really remember exactly.  When I read this I was still a believer - I believed in Allah and I was a Muslim.  I was about ten years old.  But I had doubts about that story, it just didn't make sense.  How could one's hands disappear?  Does it just go, or it starts from the finger tips?  Or does it start from the other end, and it floats on the air, and disappear very slowly?  Do you bleed?  I immediately wanted to test it out, since I also loved science, in fact I still do.  But the next part was tough; I wasn't brave enough to burn the Koran alone, on my own, the holy book of Islam.  What ifs started to show up, and soon it was a huge crowd.  And in front of that crowed I was a speck of dust, waiting for a stampede.

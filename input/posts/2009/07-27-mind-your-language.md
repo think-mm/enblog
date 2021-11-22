@@ -8,8 +8,7 @@ Tags:
   - Ram Puniyani
 Published: 2009-07-27 21:55:59 +06:00
 Updated: 2009-07-27 21:56:58 +06:00
-RedirectFrom:
-  - 2009/07/27/mind-your-language/
+OldURL: 2009/07/27/mind-your-language/
 ---
 
 <strong>Mind your language </strong>

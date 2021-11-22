@@ -8,8 +8,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2009-02-12 09:51:01 +06:00
 Updated: 2009-02-12 09:53:38 +06:00
-RedirectFrom:
-  - 2009/02/12/darwin-day-celebration-the-international-recognition-of-darwin-science-and-humanity/
+OldURL: 2009/02/12/darwin-day-celebration-the-international-recognition-of-darwin-science-and-humanity/
 ---
 
 <h2><span style="color: #008000;">Darwin day celebration: the International Recognition of Darwin, Science, and Humanity. </span></h2>

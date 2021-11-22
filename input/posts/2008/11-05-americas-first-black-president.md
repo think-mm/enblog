@@ -6,8 +6,7 @@ Tags:
   - Mukto-Mona Editor
 Published: 2008-11-05 10:21:16 +06:00
 Updated: 2008-11-06 02:56:10 +06:00
-RedirectFrom:
-  - 2008/11/05/americas-first-black-president/
+OldURL: 2008/11/05/americas-first-black-president/
 ---
 
 <a href="https://www.yahoo.com/s/982583"><img width="428" src="https://l.yimg.com/a/i/ww/news/2008/10/30/barack-wins-xo-spirit.jpg" alt="Democrat Barack Obama.(AP)" height="213" /><font color="#ffffff"> </font></a>

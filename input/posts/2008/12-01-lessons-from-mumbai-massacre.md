@@ -10,8 +10,7 @@ Tags:
   - Abul Kasem
 Published: 2008-12-01 21:00:21 +06:00
 Updated: 2009-05-17 09:41:59 +06:00
-RedirectFrom:
-  - 2008/12/01/lessons-from-mumbai-massacre/
+OldURL: 2008/12/01/lessons-from-mumbai-massacre/
 ---
 
 

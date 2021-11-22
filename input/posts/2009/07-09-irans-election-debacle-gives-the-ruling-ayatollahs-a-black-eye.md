@@ -10,8 +10,7 @@ Tags:
   - A. H. Jaffor Ullah
 Published: 2009-07-09 19:51:50 +06:00
 Updated: 2009-07-09 19:52:46 +06:00
-RedirectFrom:
-  - 2009/07/09/iran%e2%80%99s-election-debacle-gives-the-ruling-ayatollahs-a-black-eye/
+OldURL: 2009/07/09/iran%e2%80%99s-election-debacle-gives-the-ruling-ayatollahs-a-black-eye/
 ---
 
 <div>

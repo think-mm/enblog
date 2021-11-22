@@ -6,8 +6,7 @@ Tags:
   - Bijon Sarma
 Published: 2009-04-12 20:10:29 +06:00
 Updated: 2009-07-16 22:13:48 +06:00
-RedirectFrom:
-  - 2009/04/12/power-crisis-the-first-challenge-before-the-awami-league-government/
+OldURL: 2009/04/12/power-crisis-the-first-challenge-before-the-awami-league-government/
 ---
 
 <p style="text-align: center;"><span style="font-size: 10pt; line-height: 115%; font-family: Arial;" lang="EN-CA"> PROF. BIJON B. SARMA</span><strong><span style="font-size: 12pt; font-family: Arial;" lang="EN-CA">

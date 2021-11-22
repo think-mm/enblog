@@ -10,8 +10,7 @@ Tags:
   - Nripen Sarker
 Published: 2009-08-25 19:17:52 +06:00
 Updated: 2009-08-25 19:17:52 +06:00
-RedirectFrom:
-  - 2009/08/25/grameen-bank-%e2%80%93-as-i-see-it-waning/
+OldURL: 2009/08/25/grameen-bank-%e2%80%93-as-i-see-it-waning/
 ---
 
 <p class="MsoNormal" style="margin: 0in 0.7pt 0pt;"><span style="font-family: Garamond;"></span></p>

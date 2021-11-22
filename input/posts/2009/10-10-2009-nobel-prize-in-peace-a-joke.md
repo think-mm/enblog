@@ -5,8 +5,7 @@ Tags:
   - adnan
 Published: 2009-10-10 05:06:48 +06:00
 Updated: 2009-10-10 08:08:02 +06:00
-RedirectFrom:
-  - 2009/10/10/2009-nobel-prize-in-peace-a-joke/
+OldURL: 2009/10/10/2009-nobel-prize-in-peace-a-joke/
 ---
 
 2009 Nobel Prize in Peace: A Joke

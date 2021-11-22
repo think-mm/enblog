@@ -17,8 +17,7 @@ Tags:
   - William Gomes
 Published: 2009-12-06 20:18:42 +06:00
 Updated: 2009-12-06 20:19:31 +06:00
-RedirectFrom:
-  - 2009/12/06/bangladesh-the-race-for-education/
+OldURL: 2009/12/06/bangladesh-the-race-for-education/
 ---
 
 There is a very famous old saying in Bangladesh: "Lekha pora kore Je Gari Gora chore se" (Those who are educated will succeed). This traditional thinking of education as the ticket to the good life emerges in different ways and degrees in Bangladesh. Education is seen as something that is received rather than achieved, and education has become increasingly dependent on certificates. 

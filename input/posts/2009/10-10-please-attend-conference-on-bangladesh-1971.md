@@ -12,8 +12,7 @@ Tags:
   - Bangladesh Genocide Studies
 Published: 2009-10-10 06:20:52 +06:00
 Updated: 2009-10-10 06:43:37 +06:00
-RedirectFrom:
-  - 2009/10/10/please-attend-conference-on-bangladesh-1971/
+OldURL: 2009/10/10/please-attend-conference-on-bangladesh-1971/
 ---
 
 <p style="margin: 0in 0in 10pt;"><span style="font-size: medium; font-family: Garamond;"><img class="size-full wp-image-647 alignnone" title="bangladeshgenocide" src="https://enblog.muktomona.com/wp-content/uploads/2009/10/bangladeshgenocide.jpg" alt="bangladeshgenocide" width="250" height="326" /></span></p>

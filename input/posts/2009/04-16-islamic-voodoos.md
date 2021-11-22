@@ -10,8 +10,7 @@ Tags:
   - Abul Kasem
 Published: 2009-04-16 21:29:43 +06:00
 Updated: 2009-09-05 13:51:48 +06:00
-RedirectFrom:
-  - 2009/04/16/islamic-voodoos/
+OldURL: 2009/04/16/islamic-voodoos/
 ---
 
 <p align="center"><span style="font-size: large; color: #008000;">Islamic Voodoos</span></p>

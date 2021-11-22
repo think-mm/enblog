@@ -10,8 +10,7 @@ Tags:
   - Abul Kasem
 Published: 2008-12-18 11:46:05 +06:00
 Updated: 2009-05-17 09:41:33 +06:00
-RedirectFrom:
-  - 2008/12/18/allah-plays-with-his-souls-part-3/
+OldURL: 2008/12/18/allah-plays-with-his-souls-part-3/
 ---
 
 
