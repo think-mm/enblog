@@ -1,7 +1,8 @@
 ---
 Title: HINDU TERRORISM - MYTH OR REALITY?
 Tags:
-  - NULL
+  - secularism
+  - hinduism
 Published: 2010-10-30 14:27:59 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2010/10/30/hindu-terrorism-myth-or-reality/

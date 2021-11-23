@@ -1,13 +1,12 @@
 ---
 Title: THE DEADLY ALLAH VIRUS
 Tags:
-  - NULL
+  - islam
+  - Sujit Das
 Published: 2011-04-22 17:54:46 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2011/04/22/the-deadly-allah-virus/
 ---
-
- 
 
 <strong><span style="text-decoration: underline">THE DEADLY ALLAH VIRUS</span></strong>
 

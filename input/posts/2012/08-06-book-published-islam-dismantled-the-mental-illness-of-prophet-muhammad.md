@@ -1,7 +1,8 @@
 ---
 Title: BOOK PUBLISHED - Islam Dismantled, The Mental Illness of Prophet Muhammad
 Tags:
-  - NULL
+  - islam
+  - Sujit Das
 Published: 2012-08-06 00:34:05 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2012/08/06/book-published-islam-dismantled-the-mental-illness-of-prophet-muhammad/

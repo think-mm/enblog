@@ -1,6 +1,7 @@
 ---
-Title: Tip*
+Title: Tip
 Tags:
+  - Fiction
   - Mehedi Hassan
 Published: 2015-05-11 23:50:11 +06:00
 Updated: 2015-05-11 23:50:11 +06:00

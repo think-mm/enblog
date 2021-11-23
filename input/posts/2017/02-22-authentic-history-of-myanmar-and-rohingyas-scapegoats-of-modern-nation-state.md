@@ -1,5 +1,5 @@
 ---
-Title: Authentic' History of Myanmar and Rohingyas - Scapegoats of Modern Nation-State
+Title: Authentic History of Myanmar and Rohingyas - Scapegoats of Modern Nation-State
 Tags:
   - international
   - bangladesh

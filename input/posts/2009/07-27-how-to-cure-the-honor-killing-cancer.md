@@ -1,14 +1,9 @@
 ---
-Title: How to cure the honour killings 'cancer
+Title: How to cure the honor killings cancer
 Tags:
   - islam
-  - honour killing
   - honor killing
-  - muslim society.
-  - religion
   - human rights
-  - society
-  - women
   - Tarek Fatah
 Published: 2009-07-27 22:41:19 +06:00
 Updated: 2009-07-29 08:03:16 +06:00

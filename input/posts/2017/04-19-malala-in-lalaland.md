@@ -1,11 +1,8 @@
 ---
 Title: Malala in Lalaland
 Tags:
-  - religion
-  - mukto-mona
   - international
   - human rights
-  - activism
   - A Rahman
 Published: 2017-04-19 14:23:59 +06:00
 Updated: 2017-04-21 06:53:31 +06:00

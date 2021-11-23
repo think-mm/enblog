@@ -1,7 +1,8 @@
 ---
 Title: HOLY ISLAM -- HOLY ILLITERACY, HOLY POVERTY, HOLY BACKWARDNESS
 Tags:
-  - NULL
+  - islam
+  - Sujit Das
 Published: 2011-04-04 16:58:36 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2011/04/04/holy-islam-holy-illiteracy-holy-poverty-holy-backwardness/

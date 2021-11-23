@@ -1,12 +1,10 @@
 ---
 Title: Bar Moudud Ahmed, May I Have Your Attention Please
 Tags:
-  - moudud ahmed
-  - declaration of independence
   - bangladesh
   - liberation war
   - 1971 genocide
-  - shazzad
+  - Shazzad Khan
 Published: 2009-07-13 20:30:18 +06:00
 Updated: 2009-08-17 04:51:15 +06:00
 OldURL: 2009/07/13/381/
@@ -90,8 +88,6 @@ OldURL: 2009/07/13/381/
 
 <hr />
 <p class="MsoNormal" style="text-align: justify;"><span style="font-family: Garamond;" lang="en-gb"><span style="font-size: medium;">The author can be reached at <a href="mailto:npfreethinker@yahoo.com">npfreethinker@yahoo.com</a> </span></span></p>
-<p class="MsoNormal" style="text-align: justify;"><span style="color: black; font-family: Garamond;" lang="EN-GB"><span style="font-size: medium;"> </span></span></p>
 
- 
 
 </span></span>

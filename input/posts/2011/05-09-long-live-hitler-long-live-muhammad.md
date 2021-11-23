@@ -1,7 +1,8 @@
 ---
 Title: LONG LIVE HITLER, LONG LIVE MUHAMMAD
 Tags:
-  - NULL
+  - islam
+  - Sujit Das
 Published: 2011-05-09 11:31:10 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2011/05/09/long-live-hitler-long-live-muhammad/
@@ -9,7 +10,7 @@ OldURL: 2011/05/09/long-live-hitler-long-live-muhammad/
 
 <strong><span style="text-decoration: underline">LONG LIVE HITLER, LONG LIVE MUHAMMAD</span></strong>
 
-By, Sujit Das
+_Sujit Das_
 
 During the Third Reich (from 1933 to 1945, the prime time of the Nazis in Germany), it was a strict law to greet the Fuehrer with <em>'Heil Hitler'</em>. People were put into concentration camps if they refused to use this greeting (<em>Schirrmacher, 1992</em>). <em>'Heil'</em> is the German word for 'salvation', which is extensively used in the German Bible translations. <em>'Salvation Hitler</em>' or <em>'Salvation through Hitler'</em> was the message that almost every German daily preached to others. <em>Hitler</em> addressed to his fellowship, "<em>Workers, you must look upon me as your guarantor.</em>" (<em>Hitler's speech: December </em><em>10</em><em>, </em><em>1940. </em><em>Berlin</em>). The message was clear: everybody should accept that <em>Hitler</em> is the salvation for Germany and for the world.
 

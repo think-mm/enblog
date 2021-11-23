@@ -3,14 +3,12 @@ Title: SUJIT DAS INTERVIEWS HIMSELF
 Tags:
   - religion
   - terrorism
-  - NULL
 Published: 2010-10-31 02:32:01 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2010/10/31/sujit-das-interviews-himself/
 ---
 
 <p class="MsoNormal" style="margin: 0in 0in 0pt;">
-<p class="MsoNormal" style="margin: 0in -0.2in 0pt -0.3in;"><span style="mso-ansi-language: EN-US;"></span></p>
 
 <span style="mso-ansi-language: EN-US;"><span style="font-size: small; font-family: Times New Roman;"> </span></span>
 <p class="MsoNormal" style="margin: 0in 0in 0pt;"><span style="font-size: small;"><span style="font-family: Times New Roman;"><em><span lang="BN">"One travels</span></em><em><span style="mso-ansi-language: EN-US;" lang="BN"> </span><span lang="BN">more usefully when alone, because he reflects more". </span></em><em><span style="mso-ansi-language: EN-US;"></span></em></span></span></p>
