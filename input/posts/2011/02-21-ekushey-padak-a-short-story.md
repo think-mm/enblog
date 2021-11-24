@@ -6,7 +6,7 @@ Tags:
   - bangalee freethinker
   - literature
   - activism
-  - adnan
+  - Adnan Lermontov
 Published: 2011-02-21 07:49:24 +06:00
 Updated: 2011-02-21 11:13:17 +06:00
 OldURL: 2011/02/21/ekushey-padak-a-short-story/

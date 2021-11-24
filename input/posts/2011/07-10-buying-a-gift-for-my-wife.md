@@ -7,7 +7,7 @@ Tags:
   - education
   - literature
   - book
-  - adnan
+  - Adnan Lermontov
 Published: 2011-07-10 16:57:53 +06:00
 Updated: 2011-07-10 17:03:56 +06:00
 OldURL: 2011/07/10/buying-a-gift-for-my-wife/

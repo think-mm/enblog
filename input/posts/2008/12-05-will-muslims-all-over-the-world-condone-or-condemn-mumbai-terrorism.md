@@ -50,7 +50,7 @@ OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-ter
 <p align="justify" class="MsoNormal"><font face="Verdana">But not as bad as the <a target="_blank" href="https://www.revolutionmuslim.com/index.php?option=com_content&amp;view=article&amp;id=305:do-you-think-the-mumbai-attack-was-collateral-punishment-for-the-usa-and-britains-foreign-policies-&amp;catid=8:voicesoftheummah&amp;Itemid=9#yvComment" style="color: blue; text-decoration: underline; text-underline: single" title="https://www.revolutionmuslim.com/index.php?option=com_content&amp;view=article&amp;id=305:do-you-think-the-mumbai-attack-was-collateral-punishment-for-the-usa-and-britains-foreign-policies-&amp;catid=8:voicesoftheummah&amp;Itemid=9#yvComment">comments other Muslims have made on his blog</a>. For instance "Salafiyyah" from Nigeria who it seems thinks Cohen is not strong enough in his support for the Indian massacre. Or Omar who proclaims: </font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">Allahu akbar...May Allah aid and guide the mujahideen and help every other muslim male support the ummah of Muhammad(saws)</font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">Or Bilal who claims to be from Britain and identifies himself with the followers of Omar Bakri Muhammad with the website <a target="_blank" href="https://islam4uk.com/" style="color: blue; text-decoration: underline; text-underline: single" title="https://islam4uk.com/">islam4uk.com</a>: </font></p>
-<p align="justify" class="MsoNormal">&nbsp;</p>
+
 <p align="justify" class="MsoNormal"><font face="Verdana">It was pleasantly refreshing to hear they targeted Chabad Lubavitch. Allah will destroy His enemies wherever they are in the world. You will know when the Muslims have ignited in an insurrection when there is blood on the streets of London and New York like there is blood on the streets of Fallujah (and Mumbai). There is nowhere they can hide from the wrath of Allah and His soldiers.</font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">Or Abu Aisha who, like Ayman al-Zawahiri, seems to be a Malcolm X fan: </font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">The crimes of the kuffaar are coming back to haunt them. its chicken come home to roose </font></p>
@@ -59,12 +59,12 @@ OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-ter
 <p align="justify"><font face="Verdana">UPDATE: Via Stable Hand, just when you thought it couldn't get worse, from Joseph Cohen's forum: <a target="_blank" href="https://www.revolutionmuslim.com/forum/index.php?showtopic=1349" style="color: blue; text-decoration: underline; text-underline: single" title="https://www.revolutionmuslim.com/forum/index.php?showtopic=1349">Happy Thanksgiving: USA Blood Pudding Stuffing, dead jews in Bombay today, God Willing</a></font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">It is good to Give Thanks that jews may very well die as brother Bilal pointed out as the jewish from Crown Heights Brooklyn had set up occupation in that city as well and is now under threat of death in this lovely lovely and happy episode of a Thanksgivings Day adventure. Williamsburg and Crown Heights in New York are so well guarded even by their own Chasid jew police besides New York's police, and what with the islands and limited on and off access and the bridges you almost cannot imagine that a God Damned jew can be killed there. I'm glad they came to Bomb bay to hopefully, God Willing, be killed in it.</font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">Oh, God........</font></p>
-<p align="justify" class="MsoNormal">&nbsp;</p>
+
 <p align="justify" class="MsoNormal"><font face="Verdana">Please click to this URL to listen an incredible video: </font></p>
-<p align="justify" class="MsoNormal">&nbsp;</p>
+
 <p align="justify" class="MsoNormal"><font face="Verdana"><a href="https://mypetjawa.mu.nu/archives/195176.php" style="color: blue; text-decoration: underline; text-underline: single" title="https://mypetjawa.mu.nu/archives/195176.php">https://mypetjawa.mu.nu/archives/195176.php</a></font></p>
-<p align="justify" class="MsoNormal">&nbsp;</p>
+
 
 <hr />
-<p align="justify" class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal"> Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at <a href="mailto:Mirza.syed@gmail.com">Mirza.syed@gmail.com</a></p>

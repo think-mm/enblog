@@ -1,7 +1,7 @@
 ---
 Title: World of Inquiry - Muktomona
 Tags:
-  - freethinking
+  - humayun azad
   - Md Maruf Hasan
 Published: 2021-09-15 03:07:28 +06:00
 Updated: 2021-09-15 03:14:33 +06:00

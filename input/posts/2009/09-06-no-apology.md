@@ -2,12 +2,7 @@
 Title: No Apology
 Tags:
   - islam
-  - no apology
-  - burning quran
-  - burning koran
-  - religion
-  - culture
-  - society
+  - richard dawkins
   - adnan
 Published: 2009-09-06 21:48:23 +06:00
 Updated: 2009-09-07 05:02:28 +06:00

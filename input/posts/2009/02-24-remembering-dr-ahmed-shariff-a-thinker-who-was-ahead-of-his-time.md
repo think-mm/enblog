@@ -2,16 +2,9 @@
 Title: Remembering Dr. Ahmed Shariff - A thinker who was ahead of his time
 Tags:
   - dr. ahmed shariff
-  - dr. ahmed sharif
-  - bengali atheist
-  - benglai freethinker
-  - philosophy
-  - mukto-mona
   - bangladesh
-  - personality
-  - celebration
-  - bangalee freethinker
-  - Jahed
+  - philosophy
+  - Jahed Ahmed
 Published: 2009-02-24 00:30:45 +06:00
 Updated: 2009-03-03 02:18:10 +06:00
 OldURL: 2009/02/24/remembering-dr-ahmed-shariff-a-thinker-who-was-ahead-of-his-time/

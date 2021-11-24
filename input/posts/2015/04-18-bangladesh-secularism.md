@@ -1,11 +1,8 @@
 ---
-Title: BANGLADESH &amp; SECULARISM
+Title: BANGLADESH And SECULARISM
 Tags:
-  - politics
-  - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - secularism
+  - violence
   - Bhaskar
 Published: 2015-04-18 17:03:52 +06:00
 Updated: 2015-07-03 15:58:40 +06:00

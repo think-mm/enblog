@@ -2,15 +2,12 @@
 Title: Some Odd Things Regarding BD Politics
 Tags:
   - bangladesh
-  - khaleda
+  - politics
   - election
-  - Ernesto Guevara
 Published: 2008-11-14 21:22:37 +06:00
 Updated: 2008-11-14 21:22:37 +06:00
 OldURL: 2008/11/14/some-odd-things-regarding-bd-politics/
 ---
-
-_Mukto-Mona Editor, on behalf of Ernesto Guevara_
 
 <p align="center"><font size="4" color="#008000" face="Verdana">Some Odd Things Regarding BD Politics</font></p>
 <p align="center"><strong><font face="Verdana">Ernesto Guevara</font></strong></p>
@@ -39,3 +36,5 @@ _Mukto-Mona Editor, on behalf of Ernesto Guevara_
 
 <hr />
 <p align="justify">Etnesto Guenara is a member of Mukto-Mona and writes from Bangladesh. He can be reached at <a href="mailto:cheguevara28@yahoo.com">cheguevara28@yahoo.com</a></p>
+
+_Mukto-Mona Editor, on behalf of Ernesto Guevara_

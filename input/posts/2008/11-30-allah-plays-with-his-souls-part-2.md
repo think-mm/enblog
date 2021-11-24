@@ -2,11 +2,6 @@
 Title: Allah Plays with His Souls (part-2)
 Tags:
   - islam
-  - allah
-  - soul
-  - religion
-  - culture
-  - philosophy
   - Abul Kasem
 Published: 2008-11-30 06:46:38 +06:00
 Updated: 2009-05-17 09:42:06 +06:00
@@ -37,20 +32,20 @@ OldURL: 2008/11/30/allah-plays-with-his-souls-part-2/
 <p style="margin-top: 12pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">Jalalyn writes that the Ruh in 21:91 was Gabriel, and Gabriel breathed into the opening of Mary's garment and she became pregnant.</span></font></p>
 <p class="MsoNormal"><font face="Verdana"><span lang="EN-AU">Let us read in full what ibn Kathir writes on 21:91:</span></font></p>
 
-<p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><strong><span lang="EN-AU">`Isa and Maryam the True Believer</span></strong><span lang="EN-AU">
-Here Allah mentions the story of Maryam and her son `Isa, just after mentioning Zakariyya and his son Yahya, may peace be upon them all. He mentions the story of Zakariyya first, followed by the story of Maryam because the one is connected to the other. The former is the story of a child being born to an old man of advanced years, from an old woman who had been barren and had never given birth when she was younger. Then Allah mentions the story of Maryam which is even more wondrous, for in this case a child was born from a female without (the involvement of) a male. These stories also appear in Surah Al `Imran and in Surah Maryam. Here Allah mentions the story of Zakariyya and follows it with the story of Maryam, where He says:</span></font>
+<p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><strong><span lang="EN-AU">'Isa and Maryam the True Believer</span></strong><span lang="EN-AU">
+Here Allah mentions the story of Maryam and her son 'Isa, just after mentioning Zakariyya and his son Yahya, may peace be upon them all. He mentions the story of Zakariyya first, followed by the story of Maryam because the one is connected to the other. The former is the story of a child being born to an old man of advanced years, from an old woman who had been barren and had never given birth when she was younger. Then Allah mentions the story of Maryam which is even more wondrous, for in this case a child was born from a female without (the involvement of) a male. These stories also appear in Surah Al 'Imran and in Surah Maryam. Here Allah mentions the story of Zakariyya and follows it with the story of Maryam, where He says:</span></font>
 <p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU"> (And she who guarded her chastity,) means, Maryam (peace be upon her). This is like the Ayah in Surah At-Tahrim: </span></font></p>
-<p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU"> (And Maryam, the daughter of `Imran who guarded her chastity. And We breathed into it [her garment] through Our Ruh) [66:12]. </span></font></p>
+<p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU"> (And Maryam, the daughter of 'Imran who guarded her chastity. And We breathed into it [her garment] through Our Ruh) [66:12]. </span></font></p>
 <p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU"> (and We made her and her son a sign for the nations. ) means, evidence that Allah is able to do all things and that He creates whatever He wills; verily, His command, when He intends a thing, is only that He says to it, "Be'' -- and it is! This is like the Ayah: </span></font></p>
 <p style="margin: 0pt 70.9pt 10.5pt 42.55pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And (We wish) to appoint him as a sign to mankind) [19:21] </span></font></p>
 <p class="MsoNormal"><font face="Verdana"><span lang="EN-AU">The above interpretation means the angel (Gabriel) implanted Allah's seed inside Mary's womb. It might seem incredible but let us read ibn Kathir's interpretation of verse 66:12 where he repeats the theme. This verse says that Mary was the daughter of Imran; she guarded her chastity (sexual organ) and was a virgin before she became pregnant through Allah; Allah breathed His spirit into Mary's body. </span></font></p>
 <p style="margin: 0pt 42.75pt 10.5pt 71.25pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">Ibn Kathir writes:</span></font></p>
-<p style="margin: 0pt 42.55pt 10.5pt 70.9pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And Maryam, the daughter of `Imran who guarded her chastity (private part) meaning, who protected and purified her honor, by being chaste and free of immorality, </span></font></p>
-<p style="margin: 0pt 42.55pt 10.5pt 70.9pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And We breathed into it (private part) through Our Ruh,) meaning, through the angel Jibril. Allah sent the angel Jibril to Maryam, and he came to her in the shape of a man in every respect. Allah commanded him to blow into a gap of her garment and that breath went into her womb through her private part; this is how `Isa was conceived. This is why Allah said here, </span></font></p>
+<p style="margin: 0pt 42.55pt 10.5pt 70.9pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And Maryam, the daughter of 'Imran who guarded her chastity (private part) meaning, who protected and purified her honor, by being chaste and free of immorality, </span></font></p>
+<p style="margin: 0pt 42.55pt 10.5pt 70.9pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And We breathed into it (private part) through Our Ruh,) meaning, through the angel Jibril. Allah sent the angel Jibril to Maryam, and he came to her in the shape of a man in every respect. Allah commanded him to blow into a gap of her garment and that breath went into her womb through her private part; this is how 'Isa was conceived. This is why Allah said here, </span></font></p>
 <p style="margin: 0pt 42.55pt 10.5pt 70.9pt" class="MsoNormal"><font face="Verdana"><span lang="EN-AU">(And We breathed into it through Our Ruh, and she testified to the truth of her Lords Kalimat, and His Kutub,) meaning His decree and His legislation. </span></font></p>
 <p class="MsoNormal"><font face="Verdana"><span lang="EN-AU">Even ibn Kathir admits that Jesus carried Allah's seed. The Soul of Allah, Gabriel, implanted seed of Allah inside Mary's womb, and Mary became pregnant with Allah's seed. </span></font></p>
 <p class="MsoNormal"><font face="Verdana"><span lang="EN-AU">It appears that the Qur'an supports the Christians assertion that Jesus is the son of Allah.</span></font></p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <h2><font color="#008000" face="Verdana"><span lang="EN-AU">Jesus is Allah's Soul (Spirit)</span></font></h2>
 <p class="MsoNormal"><font face="Verdana"><a name="004.171"></a><span lang="EN-AU">The</span> scenario of the creation of Jesus can be summed up in this manner:</font></p>

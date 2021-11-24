@@ -2,7 +2,7 @@
 Title: 2009 Nobel Prize in Literature
 Tags:
   - literature
-  - adnan
+  - Adnan Lermontov
 Published: 2009-10-07 22:22:38 +06:00
 Updated: 2009-10-08 22:17:04 +06:00
 OldURL: 2009/10/07/2009-nobel-prize-in-literature/

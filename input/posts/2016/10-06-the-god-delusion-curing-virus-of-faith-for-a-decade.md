@@ -2,12 +2,9 @@
 Title: The God Delusion - Curing virus of faith for a decade!
 Tags:
   - politics
-  - religion
-  - mukto-mona
+  - richard dawkins
   - science
   - terrorism
-  - celebration
-  - book
   - avijit roy
   - Raihan Abir
 Published: 2016-10-06 20:29:49 +06:00
@@ -22,7 +19,7 @@ The fight for a secular Bangladesh is a hard one. During the 2015 Dhaka Book Fai
 <a href="https://enblog.muktomona.com/2016/10/06/the-god-delusion-curing-virus-of-faith-for-a-decade/image-from-kazi-mahbook-hassan/" rel="attachment wp-att-4828"><img src="https://enblog.muktomona.com/wp-content/uploads/2016/10/Image-from-Kazi-Mahbook-Hassan-236x300.jpg" alt="image-from-kazi-mahbook-hassan" width="236" height="300" class="aligncenter size-medium wp-image-4828" /></a>
 Cover: Official Bengali translation of The God Delusion. Photo: Kazi Mahboob Hassan Twitter account. 
 
-The day Rodela publication was shut down, Avijit Roy, the founder of the secular blog <a href="https://enblog.muktomona.com/">Mukto-Mona</a>, arrived in Dhaka from Atlanta to attend the Book Fair and to celebrate the publication of his two new books there. One of these books explored the relationship between Rabindranath Tagore and the Argentinian writer and intellectual Victoria Ocampo. The other one was a popular science book on cosmology, coauthored with the late mathematician Professor Mizan Rahman, that expounded on the idea of creating the Universe from nothing.
+The day Rodela publication was shut down, Avijit Roy, the founder of the secular blog <a href="https://en.muktomona.com/">Mukto-Mona</a>, arrived in Dhaka from Atlanta to attend the Book Fair and to celebrate the publication of his two new books there. One of these books explored the relationship between Rabindranath Tagore and the Argentinian writer and intellectual Victoria Ocampo. The other one was a popular science book on cosmology, coauthored with the late mathematician Professor Mizan Rahman, that expounded on the idea of creating the Universe from nothing.
  
 The first Bengali book inspired by The New Atheism movement in Bangladesh was a collaboration between Avijit Roy and me. <a href="https://www.goodreads.com/book/show/17281078">The Philosophy of Disbelief (অবিশ্বাসের দর্শন) </a>, first published in 2011, was scheduled to be released in an updated third edition by Jagriti Publisher. The owner of Jagriti, <a href="https://www.bbc.com/news/world-asia-34688245">Faisal Arefin Dipon</a>, was heinously hacked to death by Islamist extremists in October, 2015 for publishing our books. 
 
@@ -31,8 +28,6 @@ In The Philosophy of Disbelief, we argued that God, as defined by the major reli
 
 
 <blockquote>The Philosophy of Disbelief, written by Avijit Roy and Raihan Abir, is a must read for Bengali speaking skeptics, agnostics, atheists, humanists and for all free thinkers. Filled with modern scientific discoveries and data, this book shows the hope of building a secular, humane Bangladesh free from blind faith, superstition, man made class, race and division.</blockquote>
-
-
  
 <a href="https://mmindex.wpengine.com/">Ananta Bijoy Das</a> was also hacked to death in a cowardly act by extremists in May of 2015. 
 
@@ -47,8 +42,3 @@ Muslim Ummah was once contributed much to science, medicine, astronomy, and math
 It is, therefore, very important that we who live or have lived in a part of world where religion continues to dominate private and public life and society and where government bans or limits the transfer of knowledge, the translation of books like The God Delusion continues. It is also important to keep promoting the idea of secular world by writing new books in native languages. We must do so, so that people are exposed to important and provocative ideas, so that they can think independently and not afraid to ask questions, especially about religious "truths". Once people are free from the virus of faith, they can contribute more towards our real, earthly challenges: creating peace, inclusion, freedom, and participating in the urgent work of building a human, secular world for next generations.
  
 It is my great pleasure to thank Richard Dawkins for writing The God Delusion. I personally want to tell him that it has changed my life. The book has influenced a generation of young Bangladeshis. I also want to thank him for his tireless promotion of science and reason. In spite of the tragedy that the secular and atheist writers have faced in Bangladesh and in many parts of the world, our work, shaped by people like Richard Dawkins and Avijit Roy, will continue.
- 
-
-
-
-

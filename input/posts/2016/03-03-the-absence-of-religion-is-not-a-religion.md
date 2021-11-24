@@ -1,7 +1,7 @@
 ---
 Title: The absence of religion is not a religion
 Tags:
-  - Stephan Pomp
+  - 
 Published: 2016-03-03 18:20:54 +06:00
 Updated: 2016-03-03 18:21:27 +06:00
 OldURL: 2016/03/03/the-absence-of-religion-is-not-a-religion/
@@ -28,3 +28,6 @@ Notes:
 [3] Though I might be wrong with my "<a href="https://www.realsimple.com/health/mind-mood/why-people-believe-in-ghosts">significant majority</a>" believe here.
 [4] And you might be okay with it as long as the person does not try to convince you and does not do you any harm based on this ghost-believing thing.
 [5] Wow, look at the list of authors at the end of this <a href="https://physics.aps.org/featured-article-pdf/10.1103/PhysRevLett.116.061102">paper</a> and compare it with the author list of some "holy" scripture ...</div>
+
+
+_MM Editor on behalf of Stephan Pomp_

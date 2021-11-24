@@ -1,9 +1,9 @@
 ---
-Title: 5 "do not"s for black and white if Obama wins  --)
+Title: 5 do nots for black and white if Obama wins  --)
 Tags:
   - politics
   - international
-  - Mukto-Mona Editor
+  - Jahed Ahmed
 Published: 2008-11-05 05:49:48 +06:00
 Updated: 2008-11-06 02:56:39 +06:00
 OldURL: 2008/11/05/5-do-nots-for-black-and-white-if-obama-wins/

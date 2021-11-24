@@ -1,7 +1,7 @@
 ---
 Title: The Nobel Prize, 2011
 Tags:
-  - adnan
+  - Adnan Lermontov
 Published: 2011-10-02 21:54:04 +06:00
 Updated: 2011-10-06 22:41:58 +06:00
 OldURL: 2011/10/02/the-nobel-prize-2011/
@@ -17,7 +17,6 @@ The first decade of this millennium convinced me that the Twenty-First Century w
 
 
 Having said that, I predict, in 2011 there could be multiple Muslim Nobel Prize winners.  And these winners could be atheists, but they will all have an Islamic background. The Nobel Prize in Peace and Nobel Prize in Literature will for sure meet the prediction. And from the scientific categories, I am predicting at least one winner to meet the prediction as well. In short, it could be a great year for the Muslims or people with an Islamic background. If that happens I would be very satisfied, simply because it will send a clear message that though the world is predictable, it is not one-sided. At least the world tries to be fair and united, and it supports multiple narratives or sensitivities.
-
 
 Adnan Lermontov
 adnan.lermontov@yahoo.com

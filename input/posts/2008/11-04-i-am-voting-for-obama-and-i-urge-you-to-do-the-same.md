@@ -3,7 +3,6 @@ Title: I Am Voting For Obama And I Urge You To Do The Same
 Tags:
   - politics
   - barack obama
-  - Hassan Abdullah
 Published: 2008-11-04 11:26:24 +06:00
 Updated: 2009-10-24 08:43:25 +06:00
 OldURL: 2008/11/04/i-am-voting-for-obama-and-i-urge-you-to-do-the-same/
@@ -36,3 +35,5 @@ OldURL: 2008/11/04/i-am-voting-for-obama-and-i-urge-you-to-do-the-same/
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font face="Times New Roman">Mukto-Mona member Hassanal Abdullah is a <span id="lw_1225776008_13" class="yshortcuts">New York City High School</span> math teacher, poet and the author of 15 books in Bengali and one book is English. He is also the editor of a bilingual poetry journal, <em>Shabdaguchha</em>.</font></span></p>
 
 </font></font>
+
+_This is single post of Hassanal Abdullah who is a poet, novelist, critic and the author of 18 books including 10 collections of poetry. He lives in New York. Hassanal is the editor of a bilingual poetry journal, Shabdaguchha._

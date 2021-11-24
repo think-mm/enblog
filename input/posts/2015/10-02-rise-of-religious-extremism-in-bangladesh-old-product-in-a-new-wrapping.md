@@ -3,7 +3,7 @@ Title: Rise of religious extremism in Bangladesh - Old product in a new wrapping
 Tags:
   - bangladesh
   - terrorism
-  - activism
+  - richard dawkins
   - avijit roy
   - Guest Writer
 Published: 2015-10-02 09:19:26 +06:00
@@ -21,7 +21,8 @@ Things were changing before my eyes, but I was too young to understand everythin
 Jamaat-e-Islam is not planning to turn Bangladesh into East Pakistan anymore, rather it wants to proclaim the country with an ideology they had during 1971: to change the law and the culture in the name of Islam, to feed the controversy of whether Bangla culture is Hindu culture or whether decorating Shahid Minar with flowers is a sin. 
 
 Wasn't it the same during '71? What's new? I really don't see anything new except the point that more people are embracing their ideology. 
-I wonder how we came to this stage. Just think about the situation of 1975. Bangladesh was a young nation. It was still fragile and with many of its intellectuals killed during 1971 almost rudderless. Then Sheikh Mujib and his family were assassinated. A new power came and with it came the war criminals who promptly started sowing the seeds of extremism in the heads of poor, hungry, and uneducated people. In time Bangladesh became a fertile land for Hijbut Tahiri or other such militant organizations. 
+I wonder how we came to this stage. Just think about the situation of 1975. Bangladesh was a young nation. It was still fragile and with many of its intellectuals killed during 1971 almost rudderless. Then Sheikh Mujib and his family were assassinated. A new power came and with it came the war criminals who promptly started sowing the seeds of extremism in the heads of poor, hungry, and uneducated people. In time Bangladesh became a fertile land for Hijbut Tahiri or other such militant organizations.
+
 So, I think, our country has given a platform to an idea to grow, the idea of extremism in the form of religious sentiment. However, it really isn't exclusively all about 'Islam'. It's about the power of religion to control people, and showing them a dream. I couldn't agree more with Richard Dawkins with this: this idea of a better future in the afterlife is as powerful as nuclear weapons, or maybe even more powerful than that. 
 
 I also see a rise of a group of élite extremists who don't even see themselves as extreme people. They argue with logic and try to indoctrinate others. They have built a strong network in Bangladesh and have different names for their brotherhoods or sisterhoods. They are also active outside the country. For example, I knew some very educated women, employee of well-known organizations, who espoused the idea that Bangla culture is equivalent to Hindu culture. For them, 'wearing tip', instead of a cultural tradition, would be a satanic practice. 

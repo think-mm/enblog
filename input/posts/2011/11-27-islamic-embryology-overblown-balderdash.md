@@ -36,7 +36,7 @@ He spends a fair amount of time pointing out that both Aristotle and Galen had a
 
 (4) <strong>"a clinging form"</strong>. It seems that the word used here means just about anything.
 
-<blockquote>The Qur'an describes the next stage of the developing human embryo with the word `alaqah. This word carries various meanings including: to hang, to be suspended, to be dangled, to stick, to cling, to cleave and to adhere. It can also mean to catch, to get caught, to be affixed or subjoined. Other connotations of the word `alaqah include a leech-like substance, having the resemblance of a worm; or being of a 'creeping' disposition inclined to the sucking of blood. Finally, its meaning includes clay that clings to the hand and thick, clotted blood - because of its clinging together.</blockquote>
+<blockquote>The Qur'an describes the next stage of the developing human embryo with the word 'alaqah. This word carries various meanings including: to hang, to be suspended, to be dangled, to stick, to cling, to cleave and to adhere. It can also mean to catch, to get caught, to be affixed or subjoined. Other connotations of the word 'alaqah include a leech-like substance, having the resemblance of a worm; or being of a 'creeping' disposition inclined to the sucking of blood. Finally, its meaning includes clay that clings to the hand and thick, clotted blood - because of its clinging together.</blockquote>
 
 I could call the embryo a sticky blob, too, and stretch and twist the words to match it in the vaguest possible way to a technical description, too…but it doesn't make it a technical description, and it doesn't make it informative.
 
@@ -50,7 +50,7 @@ No. I refuse. I'm sorry, but this is patently ridiculous. You do not get to quot
 
 (6) <strong>"into bones"</strong>. Yeah. There is a mingling of fluids in sex, and at birth you have a baby with bones. Somewhere in between, bones must have formed. You do not get credit for noting the obvious without any specifics. Furthermore, turning the phrase "into bones" ('idhaam) into this:
 
-<blockquote>There are clear parallels between the qur'anic `idhaam stage and the view modern embryology takes i.e. the development of the axial, limb and appendicular skeleton.</blockquote>
+<blockquote>There are clear parallels between the qur'anic 'idhaam stage and the view modern embryology takes i.e. the development of the axial, limb and appendicular skeleton.</blockquote>
 
 is pure hyperbole and bunkum. But then, that's all we get from Tzortzis.
 

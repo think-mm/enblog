@@ -2,10 +2,6 @@
 Title: Mumbai Attacks - A slap in the face
 Tags:
   - terrorism
-  - mumbai
-  - attack
-  - politics
-  - culture
   - india
   - Mukto-Mona Editor
 Published: 2008-12-04 00:46:56 +06:00
@@ -16,7 +12,7 @@ OldURL: 2008/12/04/mumbai-attacks-a-slap-in-the-face/
 
 <p align="center" class="MsoNormal"><font size="5" color="#800000">Mumbai Attacks: A slap in the face</font></p>
 <p align="center" class="MsoNormal"><font size="4" color="#333333" face="Verdana"><span style="color: #000080; font-family: Verdana">Rajesh Kandadai</span></font></p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p align="justify" class="MsoNormal"><font size="2" color="#333333" face="Verdana"><span style="font-size: 10pt; color: #333333; font-family: Verdana">The memories of mayhem are indelible and the wounds of carnage are still fresh. The Mumbai attacks have re-ignited the nationalism that has been dormant since our independence and justifiably, the failure to prevent this massacre was swiftly shouldered on to our cosy politicians and never in the Indian political history are the politicians so vehemently vilified. This attack has slapped every thinking Indian on their faces, a strong gesture to wake up from the complacency and apathy and confront the stark reality of the dysfunctional and dangerous world that we are living in. The slap sobered up the drunken state that we are in and reminded us of the true colours of our lackadaisical and hopeless politicians. The slap was so resounding that we frantically started searching for answers for the thorny questions that we should have posed decades earlier. Sixty years after independence, the voter for the first time realized that he shot himself in the foot.
 

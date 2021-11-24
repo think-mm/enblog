@@ -5,18 +5,11 @@ Tags:
   - avijit roy
   - bangladesh
   - human rights
-  - personality
-  - 1971 genocide
-  - education
-  - free speech
-  - freethinking
-  - Guest Writer
+  - Jahed Ahmed
 Published: 2019-12-14 09:45:17 +06:00
 Updated: 2019-12-14 10:03:44 +06:00
 OldURL: 2019/12/14/professor-ajoy-roy-a-profile-in-patriotism-human-rights-and-science/
 ---
-
-<strong>By: Jahed Ahmed</strong>
 
 Ajoy Roy has worn many hats throughout his life—as a bright scientist; professor of physics; human rights and secular activist; author; and perhaps, most significant of all, as a valiant freedom fighter. It is indeed hard to come up with an example of a Bangladeshi as decorated as Prof Roy. To sum up, the life of Prof Roy epitomises the famous Kennedy dictum, "Ask not what your country can do for you, ask what you can do for your country."
 
@@ -38,6 +31,5 @@ I do not know what the fighting in the field felt like in 1971 for Ajoy Roy but 
 
 In 2012, the Bangladesh government bestowed upon Ajoy Roy the country's highest civilian honour, the Ekushey Padak. Though ceremonial, it was long due and a praiseworthy step. However, the administration has failed a father who, at 84 with ailing health and in a wheelchair, had been, for four years, attending the court hearing of his son's murder case without a visible headway. Tragically he had to leave this world on December 9 without getting any justice.
 
+~ Jahed Ahmed
 [Writer Jahed Ahmed lives and works in New York. Email: humanistnyc@hotmail.com]
-
-

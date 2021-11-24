@@ -1,11 +1,8 @@
 ---
-Title: Remembering that Humayun's assailants are still roaming free
+Title: Remembering that Humayuns assailants are still roaming free
 Tags:
-  - remembering humayun azad
+  - humayun azad
   - politics
-  - culture
-  - bangladesh
-  - personality
   - terrorism
   - Farida Majid
 Published: 2009-08-24 20:55:03 +06:00

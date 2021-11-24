@@ -3,7 +3,7 @@ Title: Crisis of God in 21st Century and Some Thoughts on Writings of Avijit Roy
 Tags:
   - avijit roy
   - blogger killing
-  - freethinking
+  - richard dawkins
   - Md Maruf Hasan
 Published: 2021-09-04 23:18:56 +06:00
 Updated: 2021-09-04 23:18:56 +06:00

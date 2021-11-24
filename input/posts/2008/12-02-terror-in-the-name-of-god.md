@@ -3,14 +3,9 @@ Title: Terror in the Name of God
 Tags:
   - islam
   - india
-  - jihad
-  - pakistan
-  - terror
-  - religion
-  - international
   - human rights
   - terrorism
-  - Jahed
+  - Jahed Ahmed
 Published: 2008-12-02 06:55:42 +06:00
 Updated: 2008-12-02 06:55:42 +06:00
 OldURL: 2008/12/02/terror-in-the-name-of-god/
@@ -49,3 +44,5 @@ OldURL: 2008/12/02/terror-in-the-name-of-god/
 
 <hr />
 <p style="text-align: justify">Yoginder Sikand is a freelance writer, working out of Bangalore and Delhi. He is the author of several books on Islam-related issues in India. He is the editor and primary writer of Qalandar, a monthly electronic publication covering relations between Muslims and followers of other religions. Mr. Sikand is a staunch and a strident critic of Hindutva organizations.</p>
+
+_Jahed Ahmed on behalf of Yoginder Sikand_

@@ -1,7 +1,7 @@
 ---
 Title: The Nobel Prize in Literature, 2010
 Tags:
-  - adnan
+  - Adnan Lermontov
 Published: 2010-10-07 05:54:31 +06:00
 Updated: 2010-10-07 05:55:58 +06:00
 OldURL: 2010/10/07/the-nobel-prize-in-literature-2010/

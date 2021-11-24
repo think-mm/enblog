@@ -1,7 +1,7 @@
 ---
 Title: Seamus Heaney/The Bogman
 Tags:
-  - adnan
+  - Adnan Lermontov
 Published: 2011-01-14 06:38:30 +06:00
 Updated: 2011-01-14 06:38:30 +06:00
 OldURL: 2011/01/14/seamus-heaneythe-bogman/

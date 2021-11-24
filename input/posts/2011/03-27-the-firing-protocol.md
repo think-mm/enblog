@@ -10,7 +10,7 @@ Tags:
   - literature
   - book
   - activism
-  - adnan
+  - Adnan Lermontov
 Published: 2011-03-27 09:48:00 +06:00
 Updated: 2011-03-27 09:48:00 +06:00
 OldURL: 2011/03/27/the-firing-protocol/

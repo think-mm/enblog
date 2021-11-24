@@ -3,7 +3,7 @@ Title: Key Moments in Presidential Inaugurations - Washington to Obama
 Tags:
   - politics
   - international
-  - Farid
+  - Jahed Ahmed
 Published: 2009-01-21 00:27:32 +06:00
 Updated: 2009-01-21 19:37:02 +06:00
 OldURL: 2009/01/21/key-moments-in-presidential-inaugurations-washington-to-obama/
@@ -58,3 +58,5 @@ OldURL: 2009/01/21/key-moments-in-presidential-inaugurations-washington-to-obama
 <li style="margin: 0in 0in 0pt; text-align: justify; tab-stops: list .5in" class="MsoNormal"><span style="font-size: 11pt; font-family: 'Arial Narrow'">During Bush's inaugural oath in 2001, he was interrupted by two protestors who managed to get around the security checkpoints. When they stripped naked 20 yards away from Bush, the words "No Mandate" and "Hail to the Thief" could be seen written across their bodies.</span><o:p></o:p></li>
 </ul>
 <span style="font-size: 11pt; font-family: 'Arial Narrow'"> </span><o:p></o:p><span style="font-size: 11pt; font-family: 'Arial Narrow'">Today Barack Obama is being sworn in as the America's 44<sup>th</sup> president on Lincoln's bible of 1865 and then would take part in a luncheon that has a menu featuring some of Lincoln's favorite dishes. </span><o:p></o:p><span style="font-size: 11pt; font-family: 'Arial Narrow'">01.20.2009</span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span style="font-size: 11pt; font-family: 'Arial Narrow'">New York </span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span style="font-size: 11pt; font-family: 'Arial Narrow'">Source: <a href="https://abcnews.go.com/">https://abcnews.go.com/</a></span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span><o:p><font face="Times New Roman"> </font></o:p></span>
+
+_Farid, on behalf of Jahed Ahmed_

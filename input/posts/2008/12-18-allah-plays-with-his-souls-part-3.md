@@ -2,11 +2,6 @@
 Title: Allah Plays with His Souls (Part-3)
 Tags:
   - islam
-  - allah
-  - soul
-  - religion
-  - culture
-  - philosophy
   - Abul Kasem
 Published: 2008-12-18 11:46:05 +06:00
 Updated: 2009-05-17 09:41:33 +06:00
@@ -21,9 +16,9 @@ OldURL: 2008/12/18/allah-plays-with-his-souls-part-3/
 
 <h2><font color="#008000">On the Resurrection Day Allah's Souls will Stand in Rows</font></h2>
 <p class="MsoNormal">In parts 1 and 2 we have noted some of the incredible feats of Allah's Souls. To further confuse His Ummah, Allah says that on the Resurrection Day His Soul, along with other angels, will stand right in front of Him. These creatures will be arrayed in ranks. Before Allah commences His judgment none will be able to speak except the one whom Allah will permit. The Qur'an does not say clearly, who that special Soul is; neither do we have any clue about the entity that Allah will permit to speak. However, many <em>tafsir </em>writers indicate that the Soul referred to is the archangel Gabriel, along with his garrison; and the entity which Allah will allow to speak (or intercede) is Muhammad.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">To discern a clearer picture let us read the verse 78:38 and its interpretations from various sources.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p class="MsoNormal"><strong>78:38
 <span lang="EN-AU">YUSUFALI:</span></strong><span lang="EN-AU"> The Day that the Spirit and the angels will stand forth in ranks, none shall speak except any who is permitted by (Allah) Most Gracious, and He will say what is right.</span>
@@ -51,16 +46,16 @@ n.</em> 3224 (p.969): <em>Ruh ul‑Amin,</em> the epithet of Gabriel, who came w
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Yusuf Ali's commentary on verse 70:4
 </em>n. 5677 (p.1605): <em>Ruh:</em> "The Spirit", cf. lxxviii.38, "The Spirit and the angels": and xcvii.4, "the angels and the Spirit". In xvi.2 we have translated <em>Ruh </em> by "inspiration". Some commentators understand the angel Gabriel by "the Spirit". But I think a more general meaning is possible, and fits the context better. Man is gifted with the Spirit of God: xv.29. in the spiritual kingdom we are all raised to the height of Countenance of God and His Glory transforms us.
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">And, this is what Yusuf Ali writes in connection with verse 78:38</p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Yusuf Ali's commentary on 78:38
 </em>n. 5911 (p.1677): <em>The Spirit: </em>see note 5677 to lxx.4. some commentators understand by "the Spirit" the angel Gabriel as he is charged with bringing Message to human Apostles: see xx1.193, n.3224. Or perhaps he may be considered the chief of the angels. But it is better to take a wider meaning—the souls of men collectively as they rise to the <em>Judgment Seat</em> of God.
 [<strong>Readers, please note: there is an error, perhaps printing, there is no verse xxl.193. n.3224 actually refers to xxvi.193]</strong>
 <p style="margin-right: 70.9pt" class="MsoNormal">&nbsp;</p>
 <p style="margin-right: 70.9pt" class="MsoNormal">Yusuf Ali confuses us more. He considers Allah's Soul as the <em>Judgment Seat</em> of Allah. That is: on the Resurrection Day Allah's Soul, the Judgment Seat, will stand in front of Allah, and seemingly, behind that <em>Seat </em>will be arrayed other angels. We may wonder how an inanimate object, such as Allah's <em>Seat</em>, could have the ability to become Allah's Soul.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal"><strong><span lang="EN-AU">Hilali and Khan:</span></strong><span lang="EN-AU"> </span>78:38: The Day that Ar-Rûh [Jibrael (Gabriel) or another angel] and the angels will stand forth in rows, none shall speak except him whom the Most Beneficent (Allâh) allows, and he will speak what is right.</p>
 <p class="MsoNormal"><span lang="EN-AU"></span></p>
 <p class="MsoNormal"><span lang="EN-AU">Clearly, Hilali and Khan were perturbed at what the Qur'an says. So they had to insert their comments (Jibril or another angel) inside parenthesis and square brackets.</span></p>
@@ -72,9 +67,9 @@ n.</em> 3224 (p.969): <em>Ruh ul‑Amin,</em> the epithet of Gabriel, who came w
 <span style="font-size: 13pt">Commentary number 78/24: According to most commentators, "the Spirit" implies the Angel Gabriel (peace be on him), who has been mentioned separately from the angels because of his high rank and position with Allah. </span>
 <p class="MsoNormal"><span lang="EN-AU"></span></p>
 <p class="MsoNormal"><strong>Maulana Asad</strong>: 78:38:On the day when all [human] souls and all the angels will stand up in ranks: none will speak but he to whom the Most Gracious will have given leaves; and [everyone] will say [only] what is right.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">In a footnote Maulana Asad writes:</p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Maulana Asad's comment</em> on 78:38<em>
 </em>Footnote 18: Lit., the "soul", in the singular but implying a plural. This is according to Ibn 'Abbas, Qatadah and Al-Hasan (all of them quoted by Tabari), the meaning of ar-Ruh in the above context.
@@ -86,34 +81,34 @@ n.</em> 3224 (p.969): <em>Ruh ul‑Amin,</em> the epithet of Gabriel, who came w
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Tafsir ibn Abbas </em>on 78:38
 (On the day when the angels and the Spirit) Gabriel; and it is also said: this is a created being whose tremendousness only Allah knows; Ibn Mas'ud also said: the Spirit is an angel greater than every thing save the Throne, and this angel glorifies Allah each day 12,000 formulas of glorification, and which each glorification he utters Allah creates an angel who seeks forgiveness for the believers until the Day of Judgement <em>(sic)</em>; it is also said this refers to a group of angels who have feet and hands like those of humans (stand arrayed, they speak not) to intercede, (saving him whom the Beneficent alloweth) to intercede (and who speaketh right) truly "there is no deity save Allah".
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Tafsir Jalalyn</em> <em>on</em> 78:38
 on the day (yawma is the adverbial qualifier for lā yamlikūna, 'they will not be able to') when the Spirit, Gabriel, or God's hosts, and the angels stand arrayed (saffan is a circumstantial qualifier, in other words, mustaffīna). They, <em>creatures</em>, will not speak, except him whom the Compassionate One permits, to speak, and who says what is right, from among the believers and the angels: as if [meaning] that they will intercede for he whom He approves of.
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">[Please note: the above quotes are <span lang="EN-AU">from <a href="https://www.altafsir.com/Tafasir.asp?tMadhNo=0&amp;tTafsirNo=74&amp;tSoraNo=78&amp;tAyahNo=38&amp;tDisplay=yes&amp;UserProfile=0">Jordanian Government (</a></span><a href="https://www.altafsir.com/Tafasir.asp?tMadhNo=0&amp;tTafsirNo=74&amp;tSoraNo=78&amp;tAyahNo=38&amp;tDisplay=yes&amp;UserProfile=0"><em>Royal Aal al-Bayt Institute for Islamic Thought<span style="color: black; font-style: normal">, Jordan) </span></em><span lang="EN-AU">website on Islamic affairs</span></a><span lang="EN-AU">. The translation is by Dr Feras Hamza, who is the English translator of <em>Tafsir al‑Jalalyn,and ibn.Abbas.</em>]<u> </u></span></p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">The above <em>tafsirs </em>mean Allah's Soul, Gabriel, will stand in front of Allah, along with a group of angels who are human like, that is; these angels have hands, feet, mouth, head and other body parts which are just like humans.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">This means Allah made some angels to resemble human beings.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">Another must‑read commentary on the Qur'an is <em>Tafsir Maariful Qur'an.</em> This <em>tafsir</em> is quite recent. The Saudi Government has translated it into various languages and distributes it <em>gratis</em> whoever wants it.</p>
 
 <h2 style="margin: 12pt 70.9pt 3pt 42.55pt"><span style="font-weight: normal; font-size: 12pt; font-family: Times New Roman">Tafsir Maariful Qur'an on </span><span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman">78:38</span>
 <span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman">Commentary (p.1433): In some traditions it is believed that the </span><span style="font-weight: normal; font-size: 12pt; font-family: Times New Roman">Ruh</span><span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman"> is a ponderous garrison of Allah. It is not angels. These creatures have heads, feet and hands. According to this </span><span style="font-weight: normal; font-size: 12pt; font-family: Times New Roman">tafsir</span><span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman"> there will be two ranks—one for the </span><span style="font-weight: normal; font-size: 12pt; font-family: Times New Roman">Ruh</span><span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman">, the other for the angels.</span></h2>
 <h2 style="margin: 12pt 70.9pt 3pt 42.55pt"><span style="font-weight: normal; font-size: 12pt; font-style: normal; font-family: Times New Roman">[Please note: the original text in Urdu is by Hazrat Maulana Mufti Muhammad Shafi. Translated into Bengali by Maulana Muhiuddin Khan. Publisher: Medina Publications, 38/2 Bangla Bazar, Dhaka, Bangladesh. The English translation is by the author.]</span></h2>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">And lastly, let us read the most famous <em>tafsir</em> writer ibn Kathir:</p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em>Tafsir Ibn Kathir on </em>78:38<em>
-</em>(The Day that Ar-Ruh and the angels will stand forth in rows, they will not speak) (78:38). The word Ruh here is referring to the angel Jibril. This has been said by Ash-Sha`bi, Sa`id bin Jubayr and Ad-Dahhak. This is as Allah says, (Which the trustworthy Ruh has brought down. Upon your heart that you may be of the warners.) (26:193-194) Muqatil bin Hayyan said, "The Ruh is the noblest of the angels, the closest of them to the Lord, and the one who delivers the revelation.''…
+</em>(The Day that Ar-Ruh and the angels will stand forth in rows, they will not speak) (78:38). The word Ruh here is referring to the angel Jibril. This has been said by Ash-Sha'bi, Sa'id bin Jubayr and Ad-Dahhak. This is as Allah says, (Which the trustworthy Ruh has brought down. Upon your heart that you may be of the warners.) (26:193-194) Muqatil bin Hayyan said, "The Ruh is the noblest of the angels, the closest of them to the Lord, and the one who delivers the revelation.''…
 <p style="margin: 0pt 42.55pt 0pt 70.9pt" class="MsoNormal">&nbsp;</p>
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal">[Please note: ibn Kathir's <em>tafsir</em> is very lengthy. Only the relevant texts are included here.]</p>
 
 <h2><font color="#008000">Allah created Muhammad as His dearest soul</font></h2>
 <p class="MsoNormal">After the death of Khadijah, Muhammad's first wife, he became depressed, lonely, and desperate. Soon, his uncle and protector, Abu Talib too died. To find solace, he went to the house of Umm Hani, his cousin sister, and old love. When young, Muhammad had once asked Abu Talib for the hand of Umm Hani (her own name was Fakhitah) in marriage. But Abu Talib turned him down, as Muhammad was a vagabond with no future. Muhammad had never forgotten the humiliation and the pain of rejection. When Muhammad moved to live with Umm Hani she lived alone in her house, her husband away on business. She was kind to Muhammad, provided solace, love, and warmth. He slept in her house, perhaps in her bed. When this news spread the Quraysh asked Muhammad what he was up to. He told them his incredible night journey to <em>Baitul Maqdis</em> in Jerusalem, and then from there to the seven Heavens to meet Allah. The listeners were incredulous when he told them that a spirit (Gabriel) came to him with a <em>Buraq</em>, a half‑horse, half‑female carriage. A few Jews became interested to know who this Spirit was. Muhammad could not provide a credible answer. So Allah told him to inform the Jews that the knowledge of Spirit or Soul is with Allah.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">Let us read the following verse:</p>
 
 <p class="MsoNormal"><strong>17:85
@@ -122,7 +117,7 @@ YUSUFALI:</strong> They ask thee concerning the Spirit (of inspiration). Say: "T
 <p style="margin-top: 12pt" class="MsoNormal">According to ibn Kathir, when Muhammad was resting in a date‑palm garden, a group of Jews approached him and asked him the question of <em>Ruh</em> or spirit. For a while, Muhammad kept quiet. When Gabriel brought from Allah this verse; the Jews rejected his explanation as they considered Gabriel their enemy.</p>
 <p style="margin-top: 12pt" class="MsoNormal">Ibn Kathir states that this incidence probably happened in Medina. It could be that a few years after this incidence Muhammad left Mecca and went to Medina. Perhaps the Jews had heard about this story of Muhammad, and became interested, as Muhammad claimed he was also the promised Prophet of the Jews.</p>
 <p style="margin-top: 12pt" class="MsoNormal">According to ibn Abbas Allah revealed this verse when the people of Mecca, Abu Jahl and his host asked Muhammad this question. This explanation is more plausible as Abu Jahl was Muhammad's uncle, and he was perturbed that Muhammad was sleeping with one of his married cousin sisters. Abu Jahl was also agitated that to hide the truth Muhammad was concocting the story of the Spirit, who, purportedly took him for the night journey.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">In the following verse Allah swears by Muhammad.</p>
 
 <p class="MsoNormal"><strong><span lang="EN-AU">15:72
@@ -130,18 +125,18 @@ YUSUFALI:</span></strong><span lang="EN-AU"> Verily, by thy life (O Prophet), in
 <strong>Hilali and Khan:</strong>Verily, by your life (O Muhammad), in their wild intoxication, they were wandering blindly.</span>
 <p class="MsoNormal"><span lang="EN-AU"></span></p>
 <p class="MsoNormal">It means Muhammad was purer/holier than Allah Himself. So swearing by Muhammad's name, Allah told him that the people of Lot were absolute arrant and intoxicated.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">Ibn Kathir writes that Allah never swore by anyone else. Allah has never created or made or formed any soul that is dearer to him than Muhammad.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">So, according to ibn Kathir, Muhammad is Allah's dearest Soul. Previously, we read that Gabriel is Allah's Soul. Then we learned Jesus is Allah's Soul. Now, this verse tells us that Muhammad is also Allah's Soul—the dearest Soul.</p>
 <p class="MsoNormal">Here is the complete comment by ibn Kathir:</p>
 <p class="MsoNormal"><span lang="EN-AU"></span></p>
 
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><em><span lang="EN-AU">Ibn Kathir's comment on</span></em><span lang="EN-AU"> 15:72:
-…All of this happened while they were still unaware of the inevitable calamity and punishment that was about to befall them the following morning. Hence Allah, may He be exalted, said to Muhammad, (Verily, by your life, in their wild intoxication, they were wandering blindly.) Allah swore by the life of His Prophet , which is an immense honor reflecting his high rank and noble status. `Amr bin Malik An-Nakari reported from Abu Al-Jawza' that Ibn `Abbas said: "</span><strong><span style="font-size: 14pt" lang="EN-AU">Allah has never created or made or formed any soul that is dearer to him than Muhammad.</span></strong><span lang="EN-AU"> I never heard that Allah swore by the life of anyone else. Allah says, (Verily, by your life, in their wild intoxication, they were wandering blindly.) meaning, by your life and the length of your stay in this world, (in their wild intoxication, they were wandering blindly.) This was reported by Ibn Jarir.
+…All of this happened while they were still unaware of the inevitable calamity and punishment that was about to befall them the following morning. Hence Allah, may He be exalted, said to Muhammad, (Verily, by your life, in their wild intoxication, they were wandering blindly.) Allah swore by the life of His Prophet , which is an immense honor reflecting his high rank and noble status. 'Amr bin Malik An-Nakari reported from Abu Al-Jawza' that Ibn 'Abbas said: "</span><strong><span style="font-size: 14pt" lang="EN-AU">Allah has never created or made or formed any soul that is dearer to him than Muhammad.</span></strong><span lang="EN-AU"> I never heard that Allah swore by the life of anyone else. Allah says, (Verily, by your life, in their wild intoxication, they were wandering blindly.) meaning, by your life and the length of your stay in this world, (in their wild intoxication, they were wandering blindly.) This was reported by Ibn Jarir.
 
 Qatadah said:
-(in their wild intoxication) "It means - in their misguided state; (they were wandering blindly) means - they were playing. '' `Ali bin Abi Talhah reported that Ibn `Abbas said:(Verily, by your life) means by your life, and (in their wild intoxication, they were wandering blindly.) means that they were confused.''</span>
+(in their wild intoxication) "It means - in their misguided state; (they were wandering blindly) means - they were playing. '' 'Ali bin Abi Talhah reported that Ibn 'Abbas said:(Verily, by your life) means by your life, and (in their wild intoxication, they were wandering blindly.) means that they were confused.''</span>
 <p style="margin: 0pt 70.9pt 0pt 42.55pt" class="MsoNormal"><span lang="EN-AU"> (Note: the bold emphasis is mine).</span></p>
 <p class="MsoNormal"><span lang="EN-AU"></span></p>
 <p class="MsoNormal"><span lang="EN-AU">Here is another verse where Allah is swearing by <strong>the</strong> Soul:</span></p>
@@ -152,34 +147,34 @@ Qatadah said:
 
 <h2><font color="#008000">Conclusions:</font></h2>
 <p class="MsoNormal">This essay has attempted to demonstrate that the concept of Allah's Soul is truly silly. Modern exegetes of the Qur'an have tacitly accepted this premise, but they resort to justify the impossible through convoluted and incongruous arguments.</p>
-<p class="MsoNormal">&nbsp;</p>
+
 <p class="MsoNormal">In general, we might conclude the following:</p>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">Allah has a confused concept of His own Soul. He is often unsure, hesitant, and imprecise about the Soul. It is hard to believe that the all‑powerful, all‑knowing, ubiquitous Allah will write such a document like the Qur'an that exposes Him as imbecile, obtuse, demented, banal, and a gormless creator.</li>
 </ul>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">The Qur'an is balderdash of a person/s who constructed it with extreme carelessness and dementia.</li>
 </ul>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">It is no wonder that because of the convoluted and confused structure of the Qur'an, many Islamist scholars are also confused, incoherent, incongruent, and irrational. Many translators even completely change the meaning of verses if the verses seem to be illogical, incoherent and meaningless. This senselessness spreads throughout the Ummah.</li>
 </ul>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">One fact remains true though, the older the <em>tafsirs</em> the closer they reflect the mindset of Allah, and consequently of Muhammad. Thus, we may say that ibn Abbas, who was contemporary of Muhammad, probably speaks the truth about the meaning of Qur'anic verses.</li>
 </ul>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">The more recent the <em>tafisrs</em> are, the further they are away from the reality. Thus, Muhammad Asad's exegesis might be more unreliable than Yusuf Ali's. For the same reason Yusuf Ali's explanation is more unreliable than ibn Kathir or Jalalyn.</li>
 </ul>
-<p class="MsoNormal">&nbsp;</p>
+
 
 <ul type="square" style="margin-top: 0pt; margin-bottom: 0pt">
 <li class="MsoNormal">It is important that a person who wants to extract the 'real' account of a Qur'anic verse must consult a number of exegetes. A serious learner of the Qur'an must consult the earliest <em>tafsir</em> writers.</li>

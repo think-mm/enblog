@@ -1,12 +1,8 @@
 ---
 Title: Maths or strings?
 Tags:
-  - religion
-  - philosophy
+  - richard dawkins
   - science
-  - society
-  - seminar
-  - Stephan Pomp
 Published: 2015-12-14 19:25:17 +06:00
 Updated: 2015-12-14 19:32:30 +06:00
 OldURL: 2015/12/14/maths-or-strings/
@@ -59,5 +55,6 @@ Ok, with this we are back at religion and, besides science, a key topic of the a
 <b>The event - which, hopefully, will </b><b><b>eventually </b>be available on youtube - was ended with an all too short discussion led by Sturmark and with Dawkins, Tegmark, Danielsson and Ulvaeus on stage. The last question posed by Sturmark was which problem everyone really would like to see solved. There was not discussion about it and everyone agreed. It is what <a href="https://www.ted.com/talks/david_chalmers_how_do_you_explain_consciousness?language=en" target="_blank">David Chalmers</a> called the <a href="https://en.wikipedia.org/wiki/Hard_problem_of_consciousness" target="_blank">hard problem</a>; <a href="https://www.iep.utm.edu/consciou/" target="_blank">consciousness</a>.</b>
 
 About the Author:
-
 Stephan Pomp <span class="goog-text-highlight">was born in 1968 and Dipl. Phys. </span>from the University of Erlangen-Nuremberg, Germany, PhD in experimental nuclear physics in 1999. Professor in Applied Nuclear Physics at Uppsala University. Engaged in Society Science and Popular Education. He is also a die hard atheist and a member of the Swedish Humanists. Website: <a href="https://stephanpomp.blogspot.se/">https://stephanpomp.blogspot.se/</a>
+
+_MM Editor on behalf of Stephan Pomp_

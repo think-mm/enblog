@@ -1,9 +1,7 @@
 ---
 Title: Reason Rally, Washington DC, 2016
 Tags:
-  - activism
-  - free speech
-  - freethinking
+  - richard dawkins
   - Mukto-Mona Editor
 Published: 2016-06-05 01:50:05 +06:00
 Updated: 2016-06-05 02:52:11 +06:00

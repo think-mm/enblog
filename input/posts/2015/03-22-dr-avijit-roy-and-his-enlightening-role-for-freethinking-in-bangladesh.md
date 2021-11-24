@@ -1,14 +1,12 @@
 ---
 Title: Dr. Avijit Roy and His Enlightening Role for Freethinking in Bangladesh
 Tags:
-  - shabbir
+  - avijit roy
+  - Shabbir Ahmed
 Published: 2015-03-22 04:50:24 +06:00
 Updated: 2015-03-22 04:50:24 +06:00
 OldURL: 2015/03/22/dr-avijit-roy-and-his-enlightening-role-for-freethinking-in-bangladesh/
 ---
-
-Shabbir Ahmed
-
 
 Dr. Avijit Roy was hacked to death just outside the Dhaka Book Fair by assailants with machetes on February 26, 2015. The assailants attacked him from behind as we learned from the news report. These killers were not different from those who picked up Bengali intellectuals and killed them mercilessly in 1971. At the end of our liberation war in 1971, the military wing (Al-Badrs and Al-Shams) of Jamaat-I-Islami and other Islamic forces brutally killed many intellectuals. These forces re-organized themselves in various forms to continue this killing of selected intellectuals even after our independence. There are many manifestations of Al-Badrs and Al-Shams namely, Jamaatul Mujahedin, Harkatul Jiahad al Islam, Bangla Ansar, Jagrata Muslim Janata, etc. If the government bans the activities of one, the terrorists form one more with a different name to advance the causes of Al-Badrs and Al-Shams or in other words, the causes of their parent organization named Bangladesh Jamaat-I-Islami. The recent killing of Dr. Avijit Roy is the continuation of the process of elimination of maverick writers so that the forces of darkness can continue spreading their philosophy of obscurantism unabatedly in Bangladesh. 
 
@@ -22,3 +20,5 @@ Dr. Roy was always active in helping many secular humanists, who were attacked a
 
 We have lost a profoundly erudite secular humanist. We all are saddened for what happened to Dr. Roy. He only wrote to enlighten others. He did not have any enmity with anyone. He had different perspectives on beliefs based on his in-depth study and analysis. He asked questions and gave answers based on his views, which could be different from the views of the extremists. Unfortunately, a big group of the believers of the "peaceful religion" Islam do not understand inquisitiveness and differences in views. They consider any inquisitive analyst as their enemy. They also consider anyone as their enemy, who differs with their views. These vicious followers of this "peaceful religion" take arms to suppress the views of others. Did these groups become successful in suppressing the views of the freethinkers in Bangladesh? I do not think so. In 2004, they attacked a renowned freethinker and a university professor named Dr. Humayun Azad. He later died. After Dr. Humayun Azad, Dr. Avijit Roy emerged with full vigor. After Dr. Avijit Roy, many more freethinkers have emerged in Bangladesh. The forces of darkness will be defeated by the brightness of these Bengali freethinkers in Bangladesh. Dr. Avijit Roy and his legacy will always remain alive with these freethinkers.
 
+
+~ _Shabbir Ahmed_

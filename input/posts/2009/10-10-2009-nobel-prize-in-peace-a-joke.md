@@ -2,7 +2,7 @@
 Title: 2009 Nobel Prize in Peace - A Joke
 Tags:
   - human rights
-  - adnan
+  - Adnan Lermontov
 Published: 2009-10-10 05:06:48 +06:00
 Updated: 2009-10-10 08:08:02 +06:00
 OldURL: 2009/10/10/2009-nobel-prize-in-peace-a-joke/

@@ -4,7 +4,7 @@ Tags:
   - terrorism
   - literature
   - book
-  - adnan
+  - Adnan Lermontov
 Published: 2011-05-05 10:46:30 +06:00
 Updated: 2011-05-05 10:46:30 +06:00
 OldURL: 2011/05/05/chasing-dali/

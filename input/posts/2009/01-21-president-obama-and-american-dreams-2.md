@@ -3,10 +3,7 @@ Title: President Obama and American Dreams
 Tags:
   - obama
   - politics
-  - america
-  - i have a dream
-  - international
-  - Mukto-Mona Editor
+  - Jahed Ahmed
 Published: 2009-01-21 01:58:07 +06:00
 Updated: 2009-01-21 01:59:52 +06:00
 OldURL: 2009/01/21/president-obama-and-american-dreams-2/
@@ -44,5 +41,5 @@ OldURL: 2009/01/21/president-obama-and-american-dreams-2/
 <p class="MsoNormal"><span style="font-size: 8pt; font-family: Verdana">01.20.09</span></p>
 
 <hr />
-<p class="MsoNormal">&nbsp;</p>
+
 <p style="text-align: justify" class="MsoNormal"><em><span style="font-family: Verdana"><font size="2">Jahed Ahmed, an employee of the NY state government, is a secular activist and writer. He's involved with <a href="https://muktomona.com/" style="color: blue; text-decoration: underline; text-underline: single">www.muktomona.com</a>, a humanist network and "muktwanesha"-a Bangla magazine on science and rationalism published from Dhaka. </font></span><span style="font-family: Verdana" lang="FR"><font size="2">E-mail: </font></span><span style="font-family: Verdana"><a href="mailto:worldcitizen73@yahoo.com" style="color: blue; text-decoration: underline; text-underline: single"><span lang="FR"><font size="2">worldcitizen73@yahoo.com</font></span></a></span></em></p>

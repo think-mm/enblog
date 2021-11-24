@@ -1,12 +1,9 @@
 ---
-Title: The New Atheism  - Prof. Victor Stenger's new book is just out!
+Title: The New Atheism - Prof Victor Stengers new book is just out!
 Tags:
-  - the new atheism
-  - the new book of victor stenger
+  - richard dawkins
   - philosophy
   - science
-  - literature
-  - book
   - Mukto-Mona Editor
 Published: 2009-09-24 00:30:06 +06:00
 Updated: 2009-09-24 07:56:33 +06:00
@@ -52,11 +49,9 @@ Links to sample chapters in <span style="font-weight: bold; color: #000080; font
 <a href="https://www.colorado.edu/philosophy/vstenger/Battle/01Offensive.pdf"><span style="font-size: medium;">Chapter 1</span></a><span style="font-size: medium;">. Atheism On the Offensive.
 </span><a href="https://www.colorado.edu/philosophy/vstenger/Battle/02Folly.pdf"><span style="font-size: medium;">Chapter 2.</span></a><span style="font-size: medium;"> The Folly of Faith
 </span><a href="https://www.colorado.edu/philosophy/vstenger/Battle/10Future.pdf"><span style="font-size: medium;">Chapter 10.</span></a><span style="font-size: medium;"> The Future of Atheism</span>
-
- </blockquote>
+</blockquote>
  
 
 <span style="font-size: medium; font-family: Garamond;">We congratulate Prof <a href="https://muktomona.com/Articles/vstenger/">Victor Stenger</a>, the reputed physicist and honorary member of Mukto-Mona, for his ongoing success.</span>
-
  
 <p align="center"><span style="font-size: medium; font-family: Garamond;"><a href="https://www.amazon.com/New-Atheism-Taking-Science-Reason/dp/1591027519/ref=ntt_at_ep_dpt_1">Buy the book from Amazon</a></span></p>

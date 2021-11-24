@@ -2,17 +2,11 @@
 Title: Why Darwin is needed in our science curriculum
 Tags:
   - darwin day celebration
-  - darwin day
-  - darwin day celebration 2009
-  - darwin
-  - darwin in science curriculum
   - politics
-  - religion
-  - mukto-mona
   - bangladesh
-  - science
-  - celebration
-  - Jahed
+  - evolution
+  - richard dawkins
+  - Jahed Ahmed
 Published: 2009-02-21 21:51:07 +06:00
 Updated: 2009-03-04 01:23:54 +06:00
 OldURL: 2009/02/21/why-darwin-needed-in-our-science-curriculum/
@@ -41,8 +35,3 @@ OldURL: 2009/02/21/why-darwin-needed-in-our-science-curriculum/
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: 8pt;">About the writer: Jahed Ahmed is employed in the New York State Dept. of Agriculture and Markets. He is involved <span style="color: black;">with <a href="https://muktomona.com/"><span style="color: black;">www.muktomona.com</span></a>, a South Asian network of humanists and freethinkers, and the Muktanwesha, a science and reason based magazine published from Dhaka. E-mail: <a href="mailto:worldcitizen73@yahoo.com"><span style="color: black;">worldcitizen73@yahoo.com</span></a></span></span></p>
 <p align="center"><span style="font-size: 8pt;"><span style="color: black;"><span style="color: black;"></span></span></span></p>
 <p align="center"><span style="color: black;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/index.htm"><span style="font-size: medium;">Mukto</span><span style="font-size: medium;">-Mona Celebrates Darwin Day 2009</span></a></span></p>
-
-<span style="font-size: 8pt;"><span style="color: black;"><span style="color: black;"></span></span></span>
-<p align="center"><span style="font-size: medium;">
-</span>
-<p align="center"></p>
