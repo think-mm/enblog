@@ -19,7 +19,7 @@ OldURL: 2009/01/17/hitler-and-modi-prof-ram-puniyani-interviewed/
 
 
 <p align="center"><font size="5" color="#008000">"Hitler and Modi"-Prof Ram Puniyani Interviewed</font></p>
-<p align="center"><font size="5"><a href="https://muktomona.com/Articles/biplab_pal/index.htm">Biplab pal</a></font></p>
+<p align="center"><font size="5"><a href="https://gold.mukto-mona.com/Articles/biplab_pal/index.html">Biplab pal</a></font></p>
 <font face="Verdana">During 1927-1933 in Gemany, capitalists wanted Hitler to rise in power because it seemed nobody except Hitler could give that kind of strong leadership. Recently in India, we saw Ambanis, Tatas were all in praise for Modi to make him prime minister of India because Modi is outperforming other chief Ministers in industrial development. However, this also happened to be a very well known trademark in Fascist history that Fascism rise to power with promise of faster development. </font>
 
 <font face="Verdana">Prof Puniyani recently wrote an artice on the same topic and therefore, I decided to interview on the same to illuminate our readers on danger of Hindu Fascism. However, I also think, while blaming Hitler and Modi, we also forget pathetic failure of the leftists in both communal and development front which paved the way for Fascism more easily. We discussed this interesting point as well. </font>

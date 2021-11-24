@@ -15,7 +15,7 @@ OldURL: 2009/03/25/a-guide-to-the-qur%e2%80%99anic-contradictions-10-last-part/
 
 <h2><span style="color: #008000;">A Guide to the Qur'anic Contradictions-10 (last part)</span></h2>
 <p class="MsoNormal" style="text-align: center;" align="center"> </p>
-<p class="MsoNormal" style="text-align: center;" align="center"><strong><a href="https://muktomona.com/Articles/kasem/index.htm"><span style="font-size: medium;">Abul</span><span style="font-size: medium;"> Kasem</span></a></strong></p>
+<p class="MsoNormal" style="text-align: center;" align="center"><strong><a href="https://gold.mukto-mona.com/Articles/kasem/index.html"><span style="font-size: medium;">Abul</span><span style="font-size: medium;"> Kasem</span></a></strong></p>
 <p class="MsoNormal" style="text-align: center;" align="center"> </p>
 <p class="MsoNormal"> </p>
 <p class="MsoNormal">After <a href="https://enblog.muktomona.com/?p=212">Part-9</a></p>

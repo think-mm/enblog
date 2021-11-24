@@ -12,7 +12,7 @@ OldURL: 2008/11/03/is-dawkins-a-fundamentalist/
 
 <font color="#008000"><strong>Is Richard Dawkins a Fundamentalist?</strong></font>
 
-<a href="https://muktomona.com/Articles/aparthib/index.htm"><font face="Verdana">Aparthib</font></a> 
+<a href="https://gold.mukto-mona.com/Articles/aparthib/index.html"><font face="Verdana">Aparthib</font></a> 
 
 I am a bit taken aback by Audrey's labelling of Dawkins as Fundamentalist(atheist) in <a target="_blank" href="https://groups.yahoo.com/group/mukto-mona/message/50476">mukto-mona forum</a>.  Her exact quote is stated below-
 <blockquote><font color="#000080">[Fundamentalist atheists such as Dawkins, Hitchens and Harris do not differ much from fundamentalist religionists. They all believe they are right and the others are wrong.]</font></blockquote>
@@ -37,6 +37,6 @@ Let me try to clarify this issue here again.
 
 =========================================
 
-<span style="font-size: 12pt; font-family: 'Times New Roman'">[Aparthib has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, <span> </span>religion and various social issues.<span>  </span>His artcles in Mukto-Mona can be read at https://muktomona.com/Articles/aparthib/index.htm. He lives in<span>  </span>US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US.<span>   </span>He can be reached at aparthib@yahoo.com<span>  </span>]</span>
+<span style="font-size: 12pt; font-family: 'Times New Roman'">[Aparthib has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, <span> </span>religion and various social issues.<span>  </span>His artcles in Mukto-Mona can be read at https://gold.mukto-mona.com/Articles/aparthib/index.html. He lives in<span>  </span>US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US.<span>   </span>He can be reached at aparthib@yahoo.com<span>  </span>]</span>
 
 </span>

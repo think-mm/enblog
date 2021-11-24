@@ -11,7 +11,7 @@ OldURL: 2008/12/02/bombay-mumbai-episodes-are-the-vivid-examples-of-pure-mindles
 ---
 
 <p align="center" class="MsoNormal"><font color="#008000"><span style="font-size: 16pt">Bombay (Mumbai) Episodes are the Vivid Examples of Pure Mindless Terrorism!</span></font></p>
-<p align="center" class="MsoNormal"><font size="4"><a href="https://muktomona.com/Articles/skm/index.htm">Syed Kamran Mirza</a></font></p>
+<p align="center" class="MsoNormal"><font size="4"><a href="https://gold.mukto-mona.com/Articles/skm/index.html">Syed Kamran Mirza</a></font></p>
 <p align="center" style="text-align: center" class="MsoNormal">&nbsp;</p>
 <p align="center" class="MsoNormal"> <img width="424" src="https://graphics8.nytimes.com/images/2008/11/29/world/29mumbai_600a.JPG" height="236" /></p>
 <p align="justify" class="MsoNormal"><font face="Verdana">Yes, dear readers, the recent episodes of dastardly massacres in several luxury hotels, train stations, Jewish center, and elsewhere in Bombay, India—are the eye opening pure and unadulterated acts of mindless "terrorism". There could not be any better example of terrorism than what was happening in Bombay (Mumbai), India. World should never confuse "terrorism" with any 'revenge/retaliatory' war by the victims of the mindless terrorism! </font></p>

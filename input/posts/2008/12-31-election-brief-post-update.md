@@ -12,7 +12,7 @@ OldURL: 2008/12/31/election-brief-post-update/
 
 
 <p style="text-align: center" class="MsoNormal"><font size="5" color="#008000">Election : Brief Post Update</font></p>
-<p style="text-align: center" class="MsoNormal"><font face="Verdana"><a href="https://muktomona.com/Articles/ajoy/">Ajoy Roy</a></font></p>
+<p style="text-align: center" class="MsoNormal"><font face="Verdana"><a href="https://gold.mukto-mona.com/Articles/ajoy/index.html">Ajoy Roy</a></font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Dear muktomonas,</font><font face="Verdana"> </font><o></o><font size="3" face="Verdana"> </font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Here is the latest election update. The Grand <st1></st1>Alliance: led by <st1></st1>AL has further consolidated its position in the ensuing Parliament by securing 263 seats, more than three-fourth of the total seats (300). It is a astounding as well as astonishing victory in deed in the history of <st1></st1>Bangladesh parliamentary election. The Awami League itself secured 232 seats which is ¾ of the total seats. Many have termed <st1></st1>AL victory as a sweet revenge against BNP in the notorious election of 2001. In the rigged election, alleged by <st1></st1>AL, BNP won 193 seats as against <st1></st1>AL wining only 68 seats or so. </font></p>
 <p style="text-align: center" class="MsoNormal"><font face="Verdana"><img src="https://www.thedailystar.net/photo/2008/12/31/2008-12-31__f02.jpg" /></font></p>

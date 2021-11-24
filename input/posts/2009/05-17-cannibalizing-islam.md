@@ -17,7 +17,7 @@ OldURL: 2009/05/17/cannibalizing-islam/
 
 <h3><span style="font-size: 24pt; color: red;">Cannibalizing</span><span style="font-size: 24pt;"> <span style="color: green;">Islam</span></span></h3>
 <p class="MsoNormal" align="center"> </p>
-<p class="MsoNormal"><span style="font-family: Verdana;"><a href="https://muktomona.com/Articles/kasem/index.htm">Abul Kasem</a></span></p>
+<p class="MsoNormal"><span style="font-family: Verdana;"><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></span></p>
 <p class="MsoNormal"><span style="font-family: Verdana;">In Pakistan, currently, Islam is fighting against Islam. On one side is the Islam of the Pakistan Government, the so‑called 'enlightened' Islam, invented by the Islamic general Pervaiz Musharraf. On the other side the 'true' Islamic soldiers of Allah, the Pakistani Talibans. What was previously 'Pakistan's war on terror' is now an open, declared war on the Talibans. Reportedly the Pakistan army has killed more than seven hundred Taliban fighters, their own Muslim 'brothers'. Whereas, the Talibans has slaughtered around seventeen Pakistan army jawans, also their Muslim brothers. </span></p>
 <p class="MsoNormal"><span style="font-family: Verdana;"> </span></p>
 <p class="MsoNormal"><span style="font-family: Verdana;"> </span></p>
@@ -34,7 +34,7 @@ OldURL: 2009/05/17/cannibalizing-islam/
 <p class="MsoNormal"><span style="font-family: Verdana;"> <img src="https://www.globalsecurity.org/military/world/para/images/baitullah-mehsud-image1.jpg" alt="" />
 <strong>Picture:</strong> Baitullah masood</span>
 
-<span style="font-family: Verdana;"><img src="https://muktomona.com/Articles/kasem/image/Athar_Abbas.jpg" alt="" />
+<span style="font-family: Verdana;"><img src="https://gold.mukto-mona.com/Articles/kasem/image/Athar_Abbas.jpg" alt="" />
 <strong>Picture:</strong> A Pakistani islamic Army Officer
  </span>
 <p class="MsoNormal"><span style="font-family: Verdana;">Both sides claim they are fighting for Islam. Both sides pray in mosques, supplicate to Allah for victory, and pronounce 'Allahu Akbar'when killing each other. Pakistan army, which reportedly had clandestine links with the Talibans via ISI, is now on a Jihad path to cannibalize their own flesh and blood. Likewise, the Talibans has also vowed to 'eliminate' the Pakistani president Asif Ali Zardari and his Prime Minister, Yussuf Raza Gilani. Readers should note that very recently Pakistani Taliban leaders gloated that they had assassinated Ms Benazir Bhutto, the two‑time Prime Minister of Pakistan, and the wife of Mr Asif Ali Zardari.</span></p>

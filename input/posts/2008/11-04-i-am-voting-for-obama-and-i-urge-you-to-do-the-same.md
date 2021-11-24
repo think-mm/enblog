@@ -13,7 +13,7 @@ OldURL: 2008/11/04/i-am-voting-for-obama-and-i-urge-you-to-do-the-same/
 
 <font size="2" color="#000000" face="Arial" id="role_document">
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><font face="Verdana"><a href="https://muktomona.com/Articles/hassan_abullah/index.htm">HassanAl Abdullah</a></font></p>
+<p style="margin: 0in 0in 0pt" class="MsoNormal"><font face="Verdana"><a href="https://gold.mukto-mona.com/Articles/hassan_abullah/index.html">HassanAl Abdullah</a></font></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><font size="3" face="Verdana">Everyone says that the economy is bad. How bad? It's too bad. So, for the first time, I am afraid of going to the grocery stores. Milk is nearly four dollars a gallon. A dozen of eggs is two dollars or more. The price of vegetables and other necessary things went up to the sky. </font></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>

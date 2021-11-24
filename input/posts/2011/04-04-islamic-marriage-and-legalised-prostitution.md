@@ -202,7 +202,7 @@ Islam seeks power, promotes hate and domination in the name of an imaginary God.
 </ol>
  
 <ol>
-	<li>Kasem, Abul (2005) - <em><a href="https://muktomona.com/Articles/kasem/wife_beating.htm">Did Prophet Muhammad ever beat his Wives?</a> </em>Published on 28<sup>th</sup> April, 2005 at Mukto-mona. (Last accessed 10<sup>th</sup> December / 07)</li>
+	<li>Kasem, Abul (2005) - <em><a href="https://gold.mukto-mona.com/Articles/kasem/wife_beating.html">Did Prophet Muhammad ever beat his Wives?</a> </em>Published on 28<sup>th</sup> April, 2005 at Mukto-mona. (Last accessed 10<sup>th</sup> December / 07)</li>
 </ol>
  
 <ol>

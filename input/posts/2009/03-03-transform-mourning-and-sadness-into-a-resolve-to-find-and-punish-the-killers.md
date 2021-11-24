@@ -10,7 +10,7 @@ OldURL: 2009/03/03/transform-mourning-and-sadness-into-a-resolve-to-find-and-pun
 ---
 
 <p style="line-height: 200%;" align="center"><strong><span style="color: #008000; font-family: Verdana;">Transform mourning and sadness into a resolve to find and punish the killers</span></strong></p>
-<p style="line-height: 200%;" align="center"><span style="color: #000080; font-family: Verdana;"><a href="https://muktomona.com/Articles/shabbir/index.htm">Shabbir Ahmed</a></span></p>
+<p style="line-height: 200%;" align="center"><span style="color: #000080; font-family: Verdana;"><a href="https://gold.mukto-mona.com/Articles/shabbir/index.html">Shabbir Ahmed</a></span></p>
 
 <div id="wrapper">
 <div id="highlands">

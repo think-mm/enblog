@@ -16,7 +16,7 @@ OldURL: 2009/02/18/a-guide-to-the-qur%e2%80%99anic-contradictions-7/
 
 <p class="MsoTitle" style="TEXT-ALIGN: center"><span style="color: #008000;">A Guide to the Qur'anic Contradictions-7</span></p>
 <p class="MsoNormal" style="TEXT-ALIGN: center" align="center"> </p>
-<p class="MsoNormal" style="TEXT-ALIGN: center" align="center"><strong> <a href="https://muktomona.com/Articles/kasem/index.htm">Abul Kasem</a></strong></p>
+<p class="MsoNormal" style="TEXT-ALIGN: center" align="center"><strong> <a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></strong></p>
 <p class="MsoNormal" style="TEXT-ALIGN: center" align="center"> </p>
 <p class="MsoNormal"> After <a href="https://enblog.muktomona.com/?p=115">6th Part</a></p>
 <p class="MsoNormal"> </p>

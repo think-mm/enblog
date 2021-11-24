@@ -18,7 +18,7 @@ OldURL: 2009/07/09/iran%e2%80%99s-election-debacle-gives-the-ruling-ayatollahs-a
 
 </div>
 <div>
-<p align="center"><strong><span style="font-size: medium; font-family: Garamond;"><a href="https://muktomona.com/Articles/jaffor/">A.H. Jaffor Ullah</a></span></strong></p>
+<p align="center"><strong><span style="font-size: medium; font-family: Garamond;"><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></span></strong></p>
 
 </div>
 <div> </div>

@@ -2,20 +2,11 @@
 Title: Avijit Roy's Dying Dream
 Tags:
   - politics
-  - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
-  - science
-  - personality
   - terrorism
-  - bangalee freethinker
   - avijit roy
-  - blogger killings
-  - bangladeshi bloggers
-  - freethinking
+  - blogger killing
   - secularism
-  - freedom of expression
   - Guest Writer
 Published: 2017-02-23 03:01:48 +06:00
 Updated: 2017-02-23 03:03:11 +06:00

@@ -11,7 +11,7 @@ OldURL: 2009/01/21/president-obama-and-american-dreams-2/
 
 
 <h2 align="center" style="text-align: center"><span style="font-weight: 400; color: #008000; font-family: Verdana">President Obama and American Dreams</span></h2>
-<h3 align="center" style="text-align: center"> <span style="font-weight: 400; font-family: Verdana"><a href="https://muktomona.com/Articles/jahed/index.htm">Jahed Ahmed</a></span></h3>
+<h3 align="center" style="text-align: center"> <span style="font-weight: 400; font-family: Verdana"><a href="https://gold.mukto-mona.com/Articles/jahed/index.html">Jahed Ahmed</a></span></h3>
 <p style="text-align: justify" class="MsoNormal"><strong><span style="font-family: Verdana"></span></strong></p>
 <p align="center" style="text-indent: 0.5in; text-align: center" class="MsoNormal"><img src="https://www.gerrymay.com/wp-content/uploads/2008/08/obamanddrkingblack.jpg" /></p>
 <p align="center" style="text-indent: 0.5in; text-align: center" class="MsoNormal"><span style="font-size: 6pt; font-family: Verdana">Picture source: www.metro.us</span></p>

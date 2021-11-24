@@ -12,7 +12,7 @@ OldURL: 2008/12/30/aami-league-is-heading-towards-a-big-election-victory/
 
 
 <p style="text-align: center" class="MsoNormal"><font size="5" color="#008000" face="Verdana">Awami League is heading towards a big election victory</font></p>
-<p style="text-align: center" class="MsoNormal"><font face="Verdana"><a href="https://muktomona.com/Articles/ajoy/">Ajoy Roy</a></font></p>
+<p style="text-align: center" class="MsoNormal"><font face="Verdana"><a href="https://gold.mukto-mona.com/Articles/ajoy/index.html">Ajoy Roy</a></font></p>
 <p style="text-align: center" class="MsoNormal">&nbsp;</p>
 <p style="text-align: center" class="MsoNormal"><img width="500" src="https://muktomona.com/Special_Event_/BangladeshElection2008/live_result_pic.jpg" height="245" /></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Dear muktomonas,</font><font face="Verdana"> </font></p>

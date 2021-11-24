@@ -11,7 +11,7 @@ OldURL: 2008/12/24/al-jp-alliance-a-journey-to-wilderness/
 
 
 <p align="center" style="line-height: 200%; text-align: center" class="MsoNormal"><font size="5" color="#008000">AL-JP alliance: a journey to wilderness</font></p>
-<p align="center" style="text-align: center" class="MsoNormal"><em><span style="font-size: 14pt"><a href="https://muktomona.com/Articles/mozammel/index.htm">Mozammel H. Khan</a></span></em></p>
+<p align="center" style="text-align: center" class="MsoNormal"><em><span style="font-size: 14pt"><a href="https://gold.mukto-mona.com/Articles/mozammel/index.html">Mozammel H. Khan</a></span></em></p>
 
 <p class="NoSpacing"><span style="font-size: 12pt; font-family: Verdana">Since its inception some sixty years ago, the Awami League (AL) has lost more elections than it has won. Nevertheless, in many respects, the party has steadfastly occupied a high moral ground vis-à-vis its political rivals. Any act that gives rise to any ambiguity to its adherence to the values responsible for creation of its higher moral ground creates an inerasable blemish on its portrait. Two such acts in the past for which AL has still to defend itself happened around twelve years apart. The first one happened, probably in 1994, when Sheikh Hasina as the leader of the official opposition in the parliament shared the same dais with the leader of the Jamati Islami parliamentary chief Matiur Rahman Nizami to place the demand for the introduction of the Caretaker Government system in the constitution in the aftermath of the infamous Magura by-election. The second incident was the AL's pact with the Khelafat Majlish right before the abandoned January 22, 2007 election.   </span></p>
 

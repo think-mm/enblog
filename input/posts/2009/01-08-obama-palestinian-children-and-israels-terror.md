@@ -54,7 +54,7 @@ Commenting on Obama's concern for Israeli Children, the Palestinian-American com
 <p align="justify">&nbsp;</p>
 <p align="justify"><strong><font face="Verdana">Related:</font></strong></p>
 
-<p align="center"><a href="https://blog.muktomona.com/?p=571" style="color: #0000ff; text-decoration: none"><img src="https://muktomona.com/Articles/avijit/israel_aggrasion_sm.jpg" /></a>
+<p align="center"><a href="https://blog.muktomona.com/?p=571" style="color: #0000ff; text-decoration: none"><img src="https://gold.mukto-mona.com/Articles/avijit/israel_aggrasion_sm.jpg" /></a>
 <font color="#000080"><span lang="bn"><font color="#000000"><span style="text-decoration: none"><a href="https://blog.muktomona.com/?p=571" style="color: #0000ff; text-decoration: none"><font color="#003366">ইসরায়েলের বর্বরতার সমাপ্তি হওয়া প্রয়োজন</font> </a></span></font><a href="https://blog.muktomona.com/?p=571" style="color: #0000ff; text-decoration: none"><span style="text-decoration: none"><font color="#996600">অভিজিৎ</font> রায়</span></a></span></font>
 
 <hr />

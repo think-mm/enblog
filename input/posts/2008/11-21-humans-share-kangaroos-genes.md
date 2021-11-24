@@ -12,7 +12,7 @@ OldURL: 2008/11/21/humans-share-kangaroos-genes/
  
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>Humans share kangaroos genes ― does this surprise anyone?</strong></font></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 11pt"><font face="Garamond"><font size="4"><strong><a href="https://muktomona.com/Articles/jaffor/">A.H. Jaffor Ullah</a></strong></font></font></span></p>
+<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 11pt"><font face="Garamond"><font size="4"><strong><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></strong></font></font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font face="Garamond"><font size="4">Science deals in figuring out the truth – a lot of truth.<span>  </span>Truth is beautiful; therefore, science is inherently beautiful.<span>  </span>Is it a small wonder that the modern civilization's foundation is anchored to scientific principles?<span>  </span></font></font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>

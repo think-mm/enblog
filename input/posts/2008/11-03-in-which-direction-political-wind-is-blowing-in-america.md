@@ -13,7 +13,7 @@ OldURL: 2008/11/03/in-which-direction-political-wind-is-blowing-in-america/
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>In which direction political wind is blowing in America ?</strong></font></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font face="Garamond"><strong><a href="https://muktomona.com/Articles/jaffor/index.htm"><font face="Verdana">A. H. Jaffor Ullah</font></a></strong></font></p>
+<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font face="Garamond"><strong><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html"><font face="Verdana">A. H. Jaffor Ullah</font></a></strong></font></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>

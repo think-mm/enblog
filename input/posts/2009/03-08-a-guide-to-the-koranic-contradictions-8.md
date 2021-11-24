@@ -15,7 +15,7 @@ OldURL: 2009/03/08/a-guide-to-the-qur%e2%80%99anic-contradictions-8/
 
 <p class="MsoTitle"><span style="font-size: large; color: #008000;">A Guide to the Qur'anic Contradictions-8</span></p>
 <p class="MsoNormal" style="text-align: center;" align="center"> </p>
-<p class="MsoNormal" align="center"><span style="font-size: large; color: #000080;"><a href="https://muktomona.com/Articles/kasem/index.htm">Abul</a></span><a href="https://muktomona.com/Articles/kasem/index.htm"><span style="font-size: large;"> Kasem </span></a></p>
+<p class="MsoNormal" align="center"><span style="font-size: large; color: #000080;"><a href="https://gold.mukto-mona.com/Articles/kasem/index.htm">Abul</a></span><a href="https://gold.mukto-mona.com/Articles/kasem/index.htmll"><span style="font-size: large;"> Kasem </span></a></p>
 <p class="MsoNormal"> </p>
 <p class="MsoNormal">After <a href="https://enblog.muktomona.com/?p=148">Part-7</a></p>
 <p class="MsoNormal"><em><span style="color: red;">(A few readers wanted to know why I am repeating some contradictions. The answer is: I am not repeating; Allah is repeating many verses; I am just following what Allah had done in the Qur'an—Abul Kasem)</span></em></p>

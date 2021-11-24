@@ -11,7 +11,7 @@ OldURL: 2008/12/28/two-nation-theory/
 
 
 <p align="center"><font size="5" color="#008000">Two-nation theory</font></p>
-<p align="center"><a href="https://muktomona.com/Articles/ishfaq/index.htm">Ishfaq Ilahi Choudhury</a></p>
+<p align="center"><a href="https://gold.mukto-mona.com/Articles/ishfaq/index.html">Ishfaq Ilahi Choudhury</a></p>
 <font face="Verdana">NIZAMI'S statement eulogising the "two-nation theory" shows that the party remains loyal to its dark past. He tries to justify the hypothesis on which Pakistan was created. He argued that if Pakistan had not been created, Bangladesh would never have been born. </font>
 
 <font face="Verdana">Coming on Victory Day, such statements are an insult to our national ethos. It is apparent that Nizami has poor understanding of history and is engaged in hoodwinking the people. It was also clear that renaming of "Jamaat-e-Islami Bangladesh" to "Bangladesh Jamaat-e-Islami" was nothing more that a cosmetic "cut and paste" job, signifying no change in the ideological position of the party. </font>

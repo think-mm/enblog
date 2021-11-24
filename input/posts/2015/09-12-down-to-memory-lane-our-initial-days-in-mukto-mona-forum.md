@@ -151,7 +151,7 @@ BTW, we have created an author page for you in our site. Please chek it out:
 </div>
 <div id="yui_3_16_0_1_1425732785133_151276">
 
-<a id="yui_3_16_0_1_1425732785133_151275" href="https://www.muktomona.com/Articles/biplab_pal/index.htm">https://www.muktomona.com/Articles/biplab_pal/index.htm</a>
+<a id="yui_3_16_0_1_1425732785133_151275" href="https://gold.mukto-mona.com/Articles/biplab_pal/index.html"> biplab pal</a>
 
 </div>
 <div id="yui_3_16_0_1_1425732785133_151277">
@@ -312,9 +312,6 @@ a brief history of modern physics. Being familiar with the content because of my
 
 to write a review on that.  Link to the review is here:
 
-</div>
-<span style="font-family: 'Helvetica Neue', 'Segoe UI', Helvetica, Arial, 'Lucida Grande', sans-serif">https://www.muktomona.com/Articles/biplab_pal/Review1_alo_hate.pdf</span>
-
 <span style="font-family: 'Helvetica Neue', 'Segoe UI', Helvetica, Arial, 'Lucida Grande', sans-serif">
 </span><span style="font-family: 'Helvetica Neue', 'Segoe UI', Helvetica, Arial, 'Lucida Grande', sans-serif">***********************************</span>
 
@@ -338,7 +335,7 @@ I kept it in the following link :
 </div>
 <div id="yui_3_16_0_1_1426044523250_10072">
 
-<a id="yui_3_16_0_1_1426044523250_10071" href="https://www.muktomona.com/Articles/biplab_pal/Review1_alo_hate.pdf">https://www.muktomona.com/Articles/biplab_pal/Review1_alo_hate.pdf</a>
+<a id="yui_3_16_0_1_1426044523250_10071" href="https://gold.mukto-mona.com/Articles/biplab_pal/Review1_alo_hate.pdf">Review1_alo_hate Article</a>
 
 </div>
 <div id="yui_3_16_0_1_1426044523250_10070">
@@ -483,9 +480,7 @@ Rest of the time, I have utilized in MM platform. I had a strong passion for lit
 
 Avijit and me both had a strong obsession with Tagore but with a different outlook. First time we seriously debated with each other is on "Feminism and Tagore".  There was no doubt in personal life Tagore was parochially conservative. But I differed on his view that Tagore's write-up does not reflect feminist movement of his time. We exchanged several posts and sometimes with bit of personal attack but we always talked to understand each other.
 
-This is one of his post on Tagore rebutting my position on Tagore:
-
-https://www.muktomona.com/Articles/avijit/biplab_rabindra_puja.pdf
+This is one of his post on Tagore rebutting my position on Tagore: [pdf article](https://gold.mukto-mona.com/Articles/avijit/biplab_rabindra_puja.jpg)
 
 And then followed <a href="https://www.scribd.com/doc/22286198/%E0%A6%98%E0%A7%8B%E0%A6%B2%E0%A6%BE%E0%A6%9C%E0%A6%B2%E0%A7%87%E0%A6%B0-%E0%A6%9B%E0%A6%BF%E0%A6%AA%E0%A7%87-%E0%A6%A8%E0%A6%BE%E0%A6%B0%E0%A7%80%E0%A6%AC%E0%A6%BE%E0%A6%A6">my rebuttal </a> available in the link.
 
@@ -631,7 +626,7 @@ Most of the celebrated members of the forums participated. Avijit, Bonya and Jah
 <div>
 <div id="yui_3_16_0_1_1426467530927_53994" class="yiv6923769466MsoNormal">
 
-<b id="yui_3_16_0_1_1426467530927_53993"><span id="yui_3_16_0_1_1426467530927_53992">Bigganbad and Falsification: Few comments </span><a href="https://www.muktomona.com/Articles/avijit/index.htm"><span style="font-size: x-large">Avijit Roy</span></a></b>
+<b id="yui_3_16_0_1_1426467530927_53993"><span id="yui_3_16_0_1_1426467530927_53992">Bigganbad and Falsification: Few comments </span><a href="https://gold.mukto-mona.com/Articles/avijit/index.html"><span style="font-size: x-large">Avijit Roy</span></a></b>
 
 </div>
 <div id="yui_3_16_0_1_1426467530927_53998" class="yiv6923769466MsoNormal"></div>

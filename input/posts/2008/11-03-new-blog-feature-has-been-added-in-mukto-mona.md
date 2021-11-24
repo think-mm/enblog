@@ -11,7 +11,7 @@ OldURL: 2008/11/03/new-blog-feature-has-been-added-in-mukto-mona/
 
 <p align="center"><font size="5" color="#800000">New <span lang="bn">B</span>log Feature has been added in our site</font><font color="#800000"><span style="font-size: 18pt"> 
 </span></font><font face="Verdana">
-<strong><a href="https://muktomona.com/Articles/avijit/index.htm">Avijit Roy</a></strong></font>
+<strong><a href="https://gold.mukto-mona.com/Articles/avijit/index.html">Avijit Roy</a></strong></font>
 <p align="center">&nbsp;</p>
 <p align="justify" class="MsoNormal"><span style="font-family: Verdana">We're proud to announce a neat little blog feature has been added in the English section of our site (<a href="https://en.muktomona.com/">Mukto-Mona writers' corner</a>). At this moment we just allow the members and visitors to comment on several articles. Mukto-Mona  will eventually provide a fully-featured blogging add-ons that will enable like-minded members to create their very own online blogs within our site (without any need of an editor or webmaster). Besides the ongoing activities in <a href="https://groups.google.com/g/muktomona">mukto-mona yahoogroups</a>, It will give our members a place to post thoughts and ideas and it  will keep users returning to the community again and again, and advanced administration features allow forum owners and moderators to keep control and integrate blog into Mukto-Mona's existing look and feel. </span></p>
 

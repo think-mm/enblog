@@ -16,7 +16,7 @@ OldURL: 2008/12/09/quran-is-the-primary-manual-of-islamic-suicide-terrorism/
 
 
 <h2 align="center"><span style="color: #333399">Qur'an is the Primary Manual of Islamic Suicide Terrorism!</span></h2>
-<p align="center" style="margin: 0.05pt 0in" class="byline"><font size="5"><a href="https://muktomona.com/Articles/skm/index.htm">Syed Kamran Mirza</a></font></p>
+<p align="center" style="margin: 0.05pt 0in" class="byline"><font size="5"><a href="https://gold.mukto-mona.com/Articles/skm/index.html">Syed Kamran Mirza</a></font></p>
 <p style="margin: 0.05pt 0in" class="byline">&nbsp;</p>
 
 <blockquote>

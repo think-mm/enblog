@@ -17,7 +17,7 @@ OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-ter
 
 <p align="center" style="line-height: 200%" class="MsoNormal"><span lang="EN"><font size="5" color="#800000">Will Muslims all over the world condone or condemn Mumbai terrorism?</font><font size="6" color="#800000"> </font><font size="5"> </font></span></p>
 <p align="center" class="MsoNormal"><span lang="EN"></span></p>
-<p align="center" class="MsoNormal"><font size="5"><a href="https://muktomona.com/Articles/skm/index.htm">Syed Kamran Mirza</a></font></p>
+<p align="center" class="MsoNormal"><font size="5"><a href="https://gold.mukto-mona.com/Articles/skm/index.html">Syed Kamran Mirza</a></font></p>
 <p class="MsoNormal"><span lang="EN"></span></p>
 <p align="justify" class="MsoNormal"><font face="Verdana"><span lang="EN">Answer to the above title is like the same question: Is the al-Qaeda a foe or friend of Islam?  It depends totally whom do we ask this question! If we ask some gullible law abiding so called moderate Muslims living mostly in the western nations, they will say: al-Qaeda is the enemy of Islam because these jihadi terrorists have hijacked peaceful Islam and they are tarnishing the prestige of Islam and Muslims. </span></font></p>
 <p align="justify" class="MsoNormal"><font face="Verdana"><span lang="EN"></span></font></p>

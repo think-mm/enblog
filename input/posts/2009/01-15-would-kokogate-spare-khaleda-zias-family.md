@@ -12,7 +12,7 @@ OldURL: 2009/01/15/would-%e2%80%98kokogate%e2%80%99-spare-khaleda-zia%e2%80%99s-
 
 <p align="center" style="margin: 0in 0in 0pt; text-align: center"><strong><span style="font-size: 18pt; color: green; font-family: Garamond">Would 'Kokogate' </span><span style="font-size: 18pt; color: red; font-family: Garamond">spare</span><span style="font-size: 18pt; color: green; font-family: Garamond"> Khaleda Zia's family?</span></strong></p>
 <p align="center" style="margin: 0in 0in 0pt; text-align: center">&nbsp;</p>
-<p align="center" style="margin: 0in 0in 0pt; text-align: center"><strong><span style="font-size: 13.5pt; font-family: Garamond"><a href="https://muktomona.com/Articles/jaffor/">A.H. Jaffor Ullah</a></span></strong></p>
+<p align="center" style="margin: 0in 0in 0pt; text-align: center"><strong><span style="font-size: 13.5pt; font-family: Garamond"><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></span></strong></p>
 <p align="center" style="margin: 0in 0in 0pt; text-align: center">&nbsp;</p>
 <p style="margin: 0in 0in 0pt; text-align: justify">&nbsp;</p>
 <p style="margin: 0in 0in 0pt; text-align: justify">&nbsp;</p>

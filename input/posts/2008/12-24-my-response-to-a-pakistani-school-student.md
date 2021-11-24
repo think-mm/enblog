@@ -12,7 +12,7 @@ OldURL: 2008/12/24/my-response-to-a-pakistani-school-student/
 
 
 <p align="center"><font size="5" color="#008000">My Response to a Pakistani School Student</font></p>
-<p align="center"><font size="4"><a href="https://muktomona.com/Articles/kasem/index.htm">Abul Kasem</a></font></p>
+<p align="center"><font size="4"><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></font></p>
 <font face="Verdana">Hi Moujee;
  
 Thank you for reading <a href="https://avijit.humanists.net/26th_march/nights_and_days.htm">this very old essay</a>. In this essay I have described in complete honesty what I had seen with my own eyes, and what I had experienced with my own person in the tumultuous days of the onslaught of Pakistani army's atrocities in Bangladesh. </font>

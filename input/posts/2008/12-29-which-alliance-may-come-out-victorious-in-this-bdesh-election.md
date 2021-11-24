@@ -14,7 +14,7 @@ OldURL: 2008/12/29/which-alliance-may-come-out-victorious-in-this-b%e2%80%99desh
 <font size="2" face="Arial"> </font>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>Which alliance may come out victorious in this B'desh election?</strong></font></p>
 <p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="4" face="Garamond"><strong><a href="https://muktomona.com/Articles/jaffor/">A.H. Jaffor Ullah</a></strong></font></p>
+<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="4" face="Garamond"><strong><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></strong></font></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">Living in America it gets very difficult to know the voters' sentiment.  And an abbreviated campaign season also added uncertainty to making a prediction.  Thus, I relied more on Bangladesh media to receive information and to know which party might secure more seats in the parliament.  </font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>

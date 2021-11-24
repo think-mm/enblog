@@ -12,7 +12,7 @@ OldURL: 2008/11/04/cheney%e2%80%99s-endorsement-is-like-a-%e2%80%98kiss-of-death
 
 <p align="center"><font size="5" color="#008000" face="Garamond"><strong>Cheney's endorsement is like a <font color="#ff0000">'kiss of death'</font> to McCain!</strong></font></p>
 <p align="center">&nbsp;</p>
-<p align="center"><font size="4" face="Garamond"><strong><a href="https://muktomona.com/Articles/jaffor/index.htm">A.H. Jaffor Ullah</a></strong></font></p>
+<p align="center"><font size="4" face="Garamond"><strong><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></strong></font></p>
 <font size="4" face="Garamond">Thus far, the Republican candidate was able to stay far away from Bush-Cheney duo but only two days before the election, Mr. Dick Cheney, the most hated of all politicians in America, flew to his home state, Wyoming, to offer his endorsement to 'McCain-Palin ticket.'  </font>
 
 <font size="4" face="Garamond">Like all of us, Dick Cheney also reads newspapers and watch TV news networks; therefore, he knows in which direction the political wind is blowing in America.  Cheney knows that McCain is lagging behind in poll.  A conservative estimate is that he is 4-5% behind in nationwide poll.  While as of November 3, 2008 Obama is expected to win over 280 electoral votes (a conservative estimate), the best McCain could garner is somewhere from 180-220 electoral votes.  The final results could even be a tad better for Obama.  A liberal estimate puts 320-380 electoral votes for Obama.  However, I do not think that the results will be a blowout for Obama.</font>

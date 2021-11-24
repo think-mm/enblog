@@ -13,7 +13,7 @@ OldURL: 2008/12/02/terror-in-the-name-of-god/
 
 
 <p style="text-align: center"><font color="#800000"><strong><span style="font-size: 22pt">Terror in the Name of God</span></strong></font></p>
-<p style="text-align: center"><strong><a href="https://muktomona.com/Articles/yogi_s/index.htm"><font size="4">Yoginder Sikand</font></a></strong></p>
+<p style="text-align: center"><strong><a href="https://gold.mukto-mona.com/Articles/yogi_s/index.html"><font size="4">Yoginder Sikand</font></a></strong></p>
 <p style="text-align: justify"><strong><em><span style="font-size: 12pt"></span></em></strong></p>
 
 <blockquote>

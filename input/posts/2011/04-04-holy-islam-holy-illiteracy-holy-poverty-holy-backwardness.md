@@ -233,7 +233,7 @@ Internet
 
 8.	Kasem, Abul (2006); Bismi Allah (In the Name of Allah) Part–3(v) of 11. Faith Freedom International. URL: https://www.news.faithfreedom.org/index.php?name=News&amp;file=article&amp;sid=420  (Last accessed 27th June / 2008)
 
-9.	Mahmud, H. (2007), 'Atmoghatee Musolman' (Suicidal Muslims - Original in Bengali language). URL: https://muktomona.com/Articles/fatemolla/ATMOGHATEE_MUSOLMAN.pdf  (Last accessed 8th July / 2008)
+9.	Mahmud, H. (2007), 'Atmoghatee Musolman' (Suicidal Muslims - Original in Bengali language). URL: https://gold.mukto-mona.com/Articles/fatemolla/ATMOGHATEE_MUSOLMAN.pdf (Last accessed 8th July / 2008)
 
 10.	Salih. Mumin (2007), Breast-Feeding a Man in Islam, Islam watch. URL: https://www.islam-watch.org/MuminSalih/Breast-Feeding-Man-Islam.htm (Last accessed 27th June / 2008)
 

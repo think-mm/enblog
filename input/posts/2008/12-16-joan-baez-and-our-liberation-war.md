@@ -11,15 +11,15 @@ OldURL: 2008/12/16/joan-baez-and-our-liberation-war/
 ---
 
 <p style="line-height: 200%" align="center"><span style="font-size: large; color: #800000;">Joan Baez and our Liberation War</span></p>
-<p class="MsoNormal" style="text-align: center" align="center"><span style="font-size: medium; color: #000080;"><span lang="EN-GB"><strong><a href="https://muktomona.com/Articles/avijit">Avijit Roy</a> </strong></span></span></p>
+<p class="MsoNormal" style="text-align: center" align="center"><span style="font-size: medium; color: #000080;"><span lang="EN-GB"><strong><a href="https://gold.mukto-mona.com/Articles/avijit/index.html">Avijit Roy</a> </strong></span></span></p>
 <p align="center"><strong><span style="color: #6fb1d9; font-family: Verdana;">Re-Published on </span><span style="color: #6fb1d9; font-family: Verdana;">December, 2008</span></strong></p>
 <p class="MsoNormal"> </p>
 <p align="center"> </p>
 
 <p align="center"><object width="300" height="45" data="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3" type="application/x-shockwave-flash"><param name="src" value="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3" /></object>
-<p class="MsoNormal" style="text-align: center" align="center"><span style="font-size: x-small;"><img src="https://muktomona.com/Articles/avijit/download.gif" border="0" alt="" width="115" height="25" /> <a href="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3">Download "The Song of Bangladesh"</a> (MP3 format)</span></p>
+<p class="MsoNormal" style="text-align: center" align="center"><span style="font-size: x-small;"><img src="https://gold.mukto-mona.com/Articles/avijit/download.gif" border="0" alt="" width="115" height="25" /> <a href="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3">Download "The Song of Bangladesh"</a> (MP3 format)</span></p>
 <p align="center"><span style="font-size: small; font-family: Times New Roman;"><strong>"I've been obsessed with stopping people from blowing each other's brains out since I was ten." -- Joan Baez</strong></span></p>
-<p class="MsoNormal" style="text-indent: 36pt; line-height: 125%; text-align: center" align="center"><strong><img src="https://muktomona.com/Articles/avijit/jb_laugh.gif" border="0" alt="" width="216" height="269" /></strong></p>
+<p class="MsoNormal" style="text-indent: 36pt; line-height: 125%; text-align: center" align="center"><strong><img src="https://gold.mukto-mona.com/Articles/avijit/jb_laugh.gif" border="0" alt="" width="216" height="269" /></strong></p>
 <p class="MsoNormal" style="text-indent: 36pt; line-height: 125%; text-align: center" align="center"> </p>
 
 <p class="MsoNormal" style="text-indent: 36pt; line-height: 125%; text-align: center" align="center"><strong><span style="color: #008000; font-family: Times New Roman;">Bangladesh, Bangladesh
@@ -130,7 +130,7 @@ Die a million people of the Bangladesh</span>
 
 <strong><span style="color: #ff0000; font-family: Arial;">Long live Joan Baez. Long live Freedom !</span></strong>
 
-<img src="https://muktomona.com/Articles/avijit/download.gif" border="0" alt="" width="115" height="25" /> <span style="font-size: medium;"><a href="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3">Download "The Song of Bangladesh"</a> </span>(MP3 format)
+<img src="https://gold.mukto-mona.com/Articles/avijit/download.gif" border="0" alt="" width="115" height="25" /> <span style="font-size: medium;"><a href="https://avijit.humanists.net/music/Joan%20Baez%20-%20Song%20of%20Bangladesh.mp3">Download "The Song of Bangladesh"</a> </span>(MP3 format)
 
 <hr />
 <p class="MsoNormal"><strong>Reference:</strong></p>

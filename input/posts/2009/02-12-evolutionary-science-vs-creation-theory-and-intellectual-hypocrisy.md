@@ -126,7 +126,7 @@ OldURL: 2009/02/12/evolutionary-science-vs-creation-theory-and-intellectual-hypo
 <p class="MsoNormal"> </p>
 <p class="MsoNormal">2. Time Magazine: Evolution Vs. Creationism: Up From the Apes.; August 23, 1999</p>
 <p class="MsoNormal"><span style="color: #003300;"> </span></p>
-<p class="MsoNormal"><span style="color: #003300;">3. THHuxley, <em><a style="color: blue; text-decoration: underline; text-underline: single;" href="https://muktomona.com/Articles/huxley/islam_big_bang.htm">Islam and the "Big Bang": A Refutation</a></em>, Mukto-Mona.</span></p>
+<p class="MsoNormal"><span style="color: #003300;">3. THHuxley, <em><a style="color: blue; text-decoration: underline; text-underline: single;" href="https://gold.mukto-mona.com/Articles/huxley/islam_big_bang.html">Islam and the "Big Bang": A Refutation</a></em>, Mukto-Mona.</span></p>
 <p class="MsoNormal"> </p>
 <p class="MsoNormal">4. THE EVOLUTION OF LIFE ON THE EARTH<strong>: </strong>A <a style="color: blue; text-decoration: underline; text-underline: single;" href="https://www.sciam.com/" target="_blank"><span style="color: windowtext;">SCIENTIFIC AMERICAN</span></a> article.</p>
 <p class="MsoNormal">    by Stephen Jay Gould, October, 1994: <span style="color: blue;"><a style="color: blue; text-decoration: underline; text-underline: single;" href="https://brembs.net/gould.html">https://brembs.net/gould.html</a></span></p>
