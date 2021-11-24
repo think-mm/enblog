@@ -500,7 +500,7 @@ Most of the celebrated members of the forums participated. Avijit, Bonya and Jah
 
 ************
 
-<span>WRT: </span><a id="yui_3_15_0_1_1426469215343_904" href="https://groups.yahoo.com/group/mukto-mona/message/28355">https://groups.yahoo.com/group/mukto-mona/message/28355</a>
+<span>WRT: </span><a id="yui_3_15_0_1_1426469215343_904" href="http://groups.yahoo.com/group/mukto-mona/message/28355">http://groups.yahoo.com/group/mukto-mona/message/28355</a>
 
 <span>Following science means, freeing your mind from any dogma, rationally. </span>
 
@@ -632,7 +632,7 @@ Most of the celebrated members of the forums participated. Avijit, Bonya and Jah
 <div id="yui_3_16_0_1_1426467530927_53998" class="yiv6923769466MsoNormal"></div>
 <div id="yui_3_16_0_1_1426467530927_53970" class="yiv6923769466MsoNormal">
 
-WRT:  <a id="yui_3_16_0_1_1426467530927_53969" href="https://groups.yahoo.com/group/mukto-mona/message/28370">https://groups.yahoo.com/group/mukto-mona/message/28370</a>
+WRT:  <a id="yui_3_16_0_1_1426467530927_53969" href="http://groups.yahoo.com/group/mukto-mona/message/28370">http://groups.yahoo.com/group/mukto-mona/message/28370</a>
 
 </div>
 <div id="yui_3_16_0_1_1426467530927_53968" class="yiv6923769466MsoNormal"></div>

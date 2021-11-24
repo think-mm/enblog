@@ -1,22 +1,9 @@
 ---
 Title: Sin sounds strange and strong
 Tags:
-  - allah
-  - religion
-  - jesus
-  - william gomes
-  - christianity in bangladesh
-  - sin
-  - pope
-  - hindhu
-  - facebook
-  - politics
-  - culture
-  - philosophy
-  - mukto-mona
   - human rights
-  - bangalee freethinker
-  - women
+  - violence
+  - religion
   - William Gomes
 Published: 2009-12-11 07:51:03 +06:00
 Updated: 2009-12-11 07:51:03 +06:00

@@ -56,7 +56,7 @@ During 1971, the powerful Muslim League of Bangladesh ignored the speech of Shei
 
 &nbsp;
 
-<strong><a href="https://groups.yahoo.com/group/mukto-mona/message/59623">Update (Feb 15, 2013 1:42 am)</a>:</strong>
+<strong><a href="http://groups.yahoo.com/group/mukto-mona/message/59623">Update (Feb 15, 2013 1:42 am)</a>:</strong>
 
 This morning (February 14, 2013), I received via e-mail a reply from MBI Munshi through the courtesy of E-Bangladesh. Mr. Munshi claims that he has no connection to Jamaat whatsoever. He also wrote that I am doing a nasty campaign against him and he called me a RAW (India) Agent. Mr. Munshi is dead wrong on several accounts. First, he identified with the organization BJI International Relations in the e-mail that he sent to 2 other persons namely ASM Hannan and Shamser Mobin Chowdhury who is very much involved in BNP. Munshi came up with the idea that there is a "Fascistic Tendency" in student-led Shahbag Movement. Some newspapers in Dhaka came up with the exact same phrase, which was uttered by BNP. I wonder, what is the probability that 2 persons coming up with the exact same phrase? Mr. Munshi should know the English adage - "You Cannot FOOL ALL the PEOPLE ALL the TIME."
 

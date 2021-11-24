@@ -2,13 +2,8 @@
 Title: Are human rights universal?
 Tags:
   - hasina
-  - u.n
   - william gomes
-  - human rights
   - politics
-  - bangladesh
-  - bangalee freethinker
-  - society
   - William Gomes
 Published: 2010-01-11 22:45:11 +06:00
 Updated: 2010-01-11 22:45:11 +06:00

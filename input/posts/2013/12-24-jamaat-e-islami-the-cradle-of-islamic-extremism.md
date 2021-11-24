@@ -4,7 +4,6 @@ Tags:
   - politics
   - religion
   - terrorism
-  - society
   - farhad
 Published: 2013-12-24 15:16:27 +06:00
 Updated: 2013-12-24 15:16:52 +06:00

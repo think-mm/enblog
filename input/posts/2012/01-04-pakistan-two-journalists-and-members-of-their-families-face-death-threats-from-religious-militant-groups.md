@@ -1,8 +1,9 @@
 ---
 Title: PAKISTAN - Two journalists and members of their families face death threats from religious militant groups
 Tags:
-  - 'pakistan: two journalists and members of their families face death threats from religious militant groups'
-  - activism
+  - terrorism
+  - journalism
+  - human rights
   - William Gomes
 Published: 2012-01-04 16:28:55 +06:00
 Updated: 2012-02-14 14:00:48 +06:00

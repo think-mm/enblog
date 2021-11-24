@@ -3,7 +3,7 @@ Title: No Apology
 Tags:
   - islam
   - richard dawkins
-  - adnan
+  - Adnan Lermontov
 Published: 2009-09-06 21:48:23 +06:00
 Updated: 2009-09-07 05:02:28 +06:00
 OldURL: 2009/09/06/no-apology/

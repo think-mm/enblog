@@ -1,26 +1,11 @@
 ---
-Title: An Open Letter to Mr. Salahuddin Shoaib Choudhury Editor of the Bangladeshi tabloid the Weekly Blitz to stop distribution of false and defamatory news
+Title: An Open Letter to Bangladeshi tabloid the Weekly Blitz to stop distribution of false and defamatory news
 Tags:
-  - william gomes
-  - salah uddin shoaib choudhury
-  - http://www.indybay.org/newsitems/2011/05/11/18679419.php
-  - the life of anarchist journalist is in danger
-  - ediblitz@yahoo.com
-  - salahuddinshoaibchoudhury@yahoo.com
-  - politics
-  - mukto-mona
-  - bangalee freethinker
-  - activism
   - William Gomes
 Published: 2011-05-11 18:01:23 +06:00
 Updated: 2011-05-11 18:01:23 +06:00
 OldURL: 2011/05/11/an-open-letter-to-mr-salahuddin-shoaib-choudhury-editor-of-the-bangladeshi-tabloid-the-weekly-blitz-to-stop-distribution-of-false-and-defamatory-news/
 ---
-
-
-
-
-
 
 May 11, 2011
 
@@ -60,5 +45,3 @@ Further I am sure that I am not the only person who has been treated in this unf
 
 <a href="https://www.indybay.org/newsitems/2011/05/11/18679419.php">Thank you 
 William Nicholas Gomes</a>
-
-

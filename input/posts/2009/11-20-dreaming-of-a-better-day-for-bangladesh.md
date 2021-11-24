@@ -1,19 +1,8 @@
 ---
 Title: Dreaming of a better day for Bangladesh
 Tags:
-  - bangladesh
-  - islam
-  - william gomes
-  - liberation
-  - military
-  - peace
-  - war
   - politics
-  - philosophy
-  - human rights
-  - liberation war
-  - bangalee freethinker
-  - literature
+  - secularism
   - William Gomes
 Published: 2009-11-20 18:36:32 +06:00
 Updated: 2009-11-20 18:36:32 +06:00

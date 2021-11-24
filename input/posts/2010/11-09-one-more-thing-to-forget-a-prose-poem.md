@@ -1,18 +1,7 @@
 ---
 Title: One more thing to forget (A Prose Poem)
 Tags:
-  - politics
-  - philosophy
-  - economics
-  - bangladesh
-  - human rights
-  - terrorism
-  - bangalee freethinker
-  - society
-  - education
-  - activism
-  - poem
-  - adnan
+  - Adnan Lermontov
 Published: 2010-11-09 23:51:24 +06:00
 Updated: 2010-11-10 01:01:34 +06:00
 OldURL: 2010/11/09/one-more-thing-to-forget-a-prose-poem/

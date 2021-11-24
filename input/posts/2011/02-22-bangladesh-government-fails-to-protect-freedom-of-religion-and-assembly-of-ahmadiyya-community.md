@@ -2,12 +2,8 @@
 Title: Bangladesh - Government fails to protect freedom of religion and assembly of Ahmadiyya community
 Tags:
   - bangladesh
-  - 'bangladesh: government fails to protect freedom of religion and assembly of ahmadiyya community'
-  - ahmadiyya muslim jama'at
-  - politics
-  - religion
-  - bangalee freethinker
-  - activism
+  - secularism
+  - minorities
   - William Gomes
 Published: 2011-02-22 23:27:03 +06:00
 Updated: 2011-02-22 23:27:03 +06:00
@@ -15,9 +11,6 @@ OldURL: 2011/02/22/bangladesh-government-fails-to-protect-freedom-of-religion-an
 ---
 
 By William Gomes
-
-
-
 
  Recently the administrative authorities of Gazipur district cancelled permission for the holding of the 87th Annual Convention of Ahmadiyya Muslim Jama'at, Bangladesh, a religious community having conflicting identity with the majority Muslims, on 6 February 2011 in a sudden decision without any prior notice.
  The annual convention of the community was scheduled for February 6 to 8. The police evacuated the Ahamadiya while the Deputy Commissioner of the district imposed a ban on any public gathering at the venue for which the community had paid all the necessary fees following the procedure. The government has failed to protect the right to freedom of religion and assembly of the community. 
@@ -76,6 +69,4 @@ Moreover, the failure of the decision-making authorities of the government to en
 
 He urged that government should immediately investigate into the case by competent officials and ensure the right to freedom of religion and assembly be guaranteed immediately. Those found to have been involved in the cancellation process without a reasonable ground must be prosecuted without delay. He also said that the Ahmadiyya communitycommunity must be afforded adequate compensation and protection from any further harassment and threats from state and non-state agents. 
 
-Asian Human Rights Commission has written separate letters to the UN Independent Expert on Minority Issues requesting his prompt interventions in this case. 
-
-
+Asian Human Rights Commission has written separate letters to the UN Independent Expert on Minority Issues requesting his prompt interventions in this case.

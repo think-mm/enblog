@@ -1,7 +1,7 @@
 ---
 Title: Justice and accountability and democratic reform in Burma
 Tags:
-  - activism
+  - politics
   - William Gomes
 Published: 2012-01-10 19:45:16 +06:00
 Updated: 2012-02-14 13:58:58 +06:00
@@ -63,9 +63,7 @@ I thank you for your consideration of our recommendations. Please be reassured o
 Sincerely yours,
 
 William Nicholas Gomes
-
 William's Desk
-
 www.williamgomes.org
 
 <a href='https://enblog.muktomona.com/wp-content/uploads/2012/01/Justice-and-accountability-and-democratic-reform-in-Burma.pdf'>Justice and accountability and democratic reform in Burma</a>

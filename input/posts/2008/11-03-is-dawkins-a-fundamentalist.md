@@ -4,18 +4,15 @@ Tags:
   - richard dawkins
   - philosophy
   - science
-  - Mukto-Mona Editor
 Published: 2008-11-03 21:25:26 +06:00
 Updated: 2008-11-03 21:30:16 +06:00
 OldURL: 2008/11/03/is-dawkins-a-fundamentalist/
 ---
 
-<font color="#008000"><strong>Is Richard Dawkins a Fundamentalist?</strong></font>
+**Is Richard Dawkins a Fundamentalist?** [Aparthib](https://gold.mukto-mona.com/Articles/aparthib/index.html)  I am a bit taken aback by Audrey's labelling of Dawkins as Fundamentalist(atheist) in [mukto-mona forum](http://groups.yahoo.com/group/mukto-mona/message/50476).  Her exact quote is stated below,
 
-<a href="https://gold.mukto-mona.com/Articles/aparthib/index.html"><font face="Verdana">Aparthib</font></a> 
+> Fundamentalist atheists such as Dawkins, Hitchens and Harris do not differ much from fundamentalist religionists. They all believe they are right and the others are wrong.
 
-I am a bit taken aback by Audrey's labelling of Dawkins as Fundamentalist(atheist) in <a target="_blank" href="https://groups.yahoo.com/group/mukto-mona/message/50476">mukto-mona forum</a>.  Her exact quote is stated below-
-<blockquote><font color="#000080">[Fundamentalist atheists such as Dawkins, Hitchens and Harris do not differ much from fundamentalist religionists. They all believe they are right and the others are wrong.]</font></blockquote>
 <span style="font-family: Georgia">As an early member of MM you must have read the plethora of messages and exchanges (many in which I participated besides Avijit and many other freethinkers) which clarified the fallacy of this mislabelling of rationalist views as fundamentalist. So its a bit disappointing to see you still making this characterization after all this.</span>
 
 <span style="font-family: Georgia"><o:p></o:p></span><span style="font-family: Georgia">
@@ -37,6 +34,6 @@ Let me try to clarify this issue here again.
 
 =========================================
 
-<span style="font-size: 12pt; font-family: 'Times New Roman'">[Aparthib has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, <span> </span>religion and various social issues.<span>  </span>His artcles in Mukto-Mona can be read at https://gold.mukto-mona.com/Articles/aparthib/index.html. He lives in<span>  </span>US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US.<span>   </span>He can be reached at aparthib@yahoo.com<span>  </span>]</span>
+<span style="font-size: 12pt; font-family: 'Times New Roman'">[  - Aparthib Zaman has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, <span> </span>religion and various social issues.<span>  </span>His artcles in Mukto-Mona can be read at https://gold.mukto-mona.com/Articles/aparthib/index.html. He lives in<span>  </span>US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US.<span>   </span>He can be reached at aparthib@yahoo.com<span>  </span>]</span>
 
 </span>

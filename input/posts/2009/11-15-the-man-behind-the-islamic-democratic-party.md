@@ -1,15 +1,7 @@
 ---
 Title: The man behind the Islamic Democratic Party
 Tags:
-  - william gomes
-  - dr. richard benkin
-  - sheikh hasina
-  - salah uddin shoaib choudhury
-  - lutfuzzaman babar
-  - kazi azizul huq
-  - islamic democratic party
   - politics
-  - religion
   - bangladesh
   - terrorism
   - William Gomes

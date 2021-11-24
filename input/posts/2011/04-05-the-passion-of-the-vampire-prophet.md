@@ -1,19 +1,16 @@
 ---
 Title: THE PASSION OF THE VAMPIRE-PROPHET
 Tags:
-  - NULL
+  - islam
+	- Sujit Das
 Published: 2011-04-05 16:32:15 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2011/04/05/the-passion-of-the-vampire-prophet/
 ---
 
-<strong><span style="text-decoration: underline">THE PASSION OF THE VAMPIRE-PROPHET </span></strong>
-
-By, Sujit Das
-
 Ever since the birth of motion pictures, movies with spiritual and religious contents had been popular subjects for the movie-makers. Such films appeal to viewers not only because they are inspiring but because they also mirror the audience's own spiritual search. We can call it "ritualoid entertainment"  (Grace, 2009, p. 13). Whereas most of these portrayals were as hagiopic film (a hagiography represents the life, or part of the life, of a recognized religious hero or divine figure), some movies were made in a huge historical framework where the leading characters are supposed to be divinely inspired and some were based on popular folklore. As per statistics (cited Walsh, 2003, p.16; Humphries-Brooks, 2006, p. 104), in Christianity the most popular hero is Jesus Christ and the most Jesus films present Jesus' crucifixion as a unique historical event, as example; <em>The Passion of the Christ</em>.
 
-In Hindu-majority India, when the early talkie filmmakers began searching for stories for their films, Hindu religious dramas were a first and obvious choice. Two major sources tapped were the Ramayana and the Mahabharata (Gokulsing &amp; Dissanayake, 2004, p. 43). These two great Indian epics offer models in '<em>Dharma</em>' (righteousness) and continue to enjoy even today widespread popularity not only within the Hindu sphere of influence but internationally and they are recycled as theatrical dramas, in comic-book form and as television serials in many nations. Similarly, the life of Siddhartha Gautama, (known as Buddha, the founder of Buddhist faith) has been the subject of several films produced in India, Japan, Thailand, South Korea and France.
+In Hindu-majority India, when the early talkie filmmakers began searching for stories for their films, Hindu religious dramas were a first and obvious choice. Two major sources tapped were the Ramayana and the Mahabharata (Gokulsing & Dissanayake, 2004, p. 43). These two great Indian epics offer models in '<em>Dharma</em>' (righteousness) and continue to enjoy even today widespread popularity not only within the Hindu sphere of influence but internationally and they are recycled as theatrical dramas, in comic-book form and as television serials in many nations. Similarly, the life of Siddhartha Gautama, (known as Buddha, the founder of Buddhist faith) has been the subject of several films produced in India, Japan, Thailand, South Korea and France.
 
 All these religious movies are remembered for their beauty, honesty, virtuousness, high morality and upright thoughts. The audience for religious movies far exceeds the number of other successful movie-viewers, because churches, religious schools, priests and missionaries regularly show these movies to others to glorify their religious beliefs.
 
@@ -27,27 +24,27 @@ In spite of this, if a film is produced on Muhammad's honest biography, it will 
 
 The fictional vampires are like ghost-like entities. They are cursed creatures and considered to be damned with their fate (Etheredge, 2005, p. iv). Muhammad was a cursed Prophet. Muslims are also cursed for fully submitting to and trusting in Muhammad. Muhammad was a slave to his own delusionary fantasies as if he was possessed by an evil spirit. It was his destiny. He was at the mercy of his inner demon, Allah, the sadistic superego of a Malignant Narcissist (Das, 2010, pp. 168-73). Bukhari recorded,
 
-"<em>Allah's Apostle said, "<strong>I have been ordered to fight the people till they say: 'None has the right to be worshipped but Allah.'"</strong></em> (Bukhari: 1.8.387)
+> Allah's Apostle said, "_I have been ordered to fight the people till they say: 'None has the right to be worshipped but Allah._" (Bukhari: 1.8.387)
 
-"<strong><em>Allah's Apostle never took revenge (over anybody) for his own sake but (he did) only when Allah's Legal Bindings were outraged in which case he would take revenge for Allah's Sake</em></strong>." (Bukhari: 4.56.760)
+"_Allah's Apostle never took revenge (over anybody) for his own sake but (he did) only when Allah's Legal Bindings were outraged in which case he would take revenge for Allah's Sake_." (Bukhari: 4.56.760)
 
 Vampires are believed to be "soulless" with no conscience, a ruthless killer instinct, and a never ending thirst for human blood (Zell-Ravenheart, 2004, p. 298). Torturing innocent victims is a vampire's favorite activity. They are doomed to roam the earth and snatch souls from innocent victims. In real life we describe those who lack any kind of empathy, sympathy, mercy, and consideration etc for others as "soulless". Muhammad was deprived of all human qualities. He lacked sensitivity or the capacity for deep feeling. He was heartless and cruel like soulless vampires. If the goal in life is the spiritual enlightenment to unite the conscious mind with the soul, then undoubtedly Muhammad was a great loser. Few quotes from the authentic Islamic sources,
 
 <em>"The Prophet said, <strong>Allah made me victorious with terror" </strong></em>(Bukhari: 1.7.331). 
 
-"<strong><em>I will bring you slaughter.</em></strong>'" (Ishaq: 130; Tabari: VI.101) 
+"_I will bring you slaughter._'" (Ishaq: 130; Tabari: VI.101) 
 
-<strong><em>"It is not for any Prophet to have captives until he hath made slaughter in the land</em></strong><strong><em>"</em></strong><em> </em>(Q: 8.67)
+_"It is not for any Prophet to have captives until he hath made slaughter in the land__"_<em> </em>(Q: 8.67)
 
 <em>"Allah said, '<strong>A Prophet must slaughter before collecting captives</strong>. <strong>Muhammad, you craved the desires of this world, its goods and the ransom captives would bring. But Allah desires killing them to manifest the religion'"</strong></em> (Ishaq: 327)
 
-<strong><em>"Killing disbelievers is a small matter to us" </em></strong>(Tabari: IX.69).
+_"Killing disbelievers is a small matter to us" _(Tabari: IX.69).
 
-<strong><em>"Killing them (infidels) was sweeter than drink" </em></strong>(Ishaq: 576)
+_"Killing them (infidels) was sweeter than drink" _(Ishaq: 576)
 
-<strong><em>"</em></strong><strong><em>Warfare is ordained for you…</em></strong><strong><em>"</em></strong><em> </em>(Q: 2.216).
+_"__Warfare is ordained for you…__"_<em> </em>(Q: 2.216).
 
-<strong><em>"… if you kill, kill well: and if you slaughter, slaughter well" </em></strong>(Al-Nawawi, Hadith no. 17).
+_"… if you kill, kill well: and if you slaughter, slaughter well" _(Al-Nawawi, Hadith no. 17).
 
 The vampire uses people as tools and sources of supply to continue his existence. This is his constant, futile search for deliverance. Throughout his prophetic life Muhammad searched for narcissistic supplies while pretending a Prophet (Das, 2010, pp. 81-95). He used others for his selfish needs and to exist as a Prophet. Allah's erotic paradise is the largest and the sweetest carrot that was ever dangled before the Muslims to motivate them to fight in the cause of Allah. When Muslims fight, kill or get killed, it was Muhammad who benefited from their sacrifice. Bukhari wrote,
 
@@ -67,7 +64,7 @@ The vampire cannot see his own image in a mirror because he is a spirit and not 
 
 There are few stories about vampires which detail vampirism as being a curse which was acquired from ancient evils and must be passed on to innocent victims in more 'satanic' methods. When Muhammad was a peaceful preacher at Mecca, people mocked him by seeing the irrationality of his faith and looked at him with much suspicion. His peaceful religious endeavor was an utter failure.
 
-<em>"</em><strong><em>I heard the Apostle say, 'I have never invited anyone to accept Islam who hasn't shown signs of reluctance, suspicion and hesitation</em></strong><em>.<strong>'</strong></em><strong>"</strong> (Ishaq: 116).
+<em>"</em>_I heard the Apostle say, 'I have never invited anyone to accept Islam who hasn't shown signs of reluctance, suspicion and hesitation_<em>.<strong>'</strong></em><strong>"</strong> (Ishaq: 116).
 
 <em>"They take you not except for mockery" </em>(Q: 21.36).
 
@@ -95,31 +92,27 @@ According to the folklore, a human becomes vampire when a vampire bites him and 
 
 Therefore, if a movie is made on Muhammad's biography, then the bloody stories of Muhammad's trail of violence, hatred, deception, delusion, narcissism, sexual exploitation and bloodshed, would be the 'beauty, honesty, virtuousness and high morality' of that movie. Such a torture-porn-horror movie would be truly scary movie which will leave the audience screaming and hiding behind the seats during the scariest scenes.
 
-Gibson, the director of the movie "<em>The Passion of the Christ</em>", said (Strauss &amp; Miller, 2011; Deacy, 2005, p. 120), "<em>This is a movie about love, hope, faith, and forgiveness. He [Jesus] died for all mankind, suffered for all of us. It's time to get back to that basic message. The world has gone nuts. We could all use a little more love, faith, hope, and forgiveness.</em>" 
+Gibson, the director of the movie "<em>The Passion of the Christ</em>", said (Strauss & Miller, 2011; Deacy, 2005, p. 120), "<em>This is a movie about love, hope, faith, and forgiveness. He [Jesus] died for all mankind, suffered for all of us. It's time to get back to that basic message. The world has gone nuts. We could all use a little more love, faith, hope, and forgiveness.</em>" 
 
-'<em>Love, faith, hope, and forgiveness</em>' are the divine words. We do not find them in vampire movies. At the end of the movie, as Jesus hangs from the cross, he prays forgiveness for those who did this to him and redeems a criminal crucified next to him. In a similar movie, let's say '<em>The Passion of the Muhammad</em>', would end with the dying wishes of the revengeful Muhammad, "<em>Oh Lord, destroy the Jews and Christians. Let the Lord's anger be kindled against them. </em><strong><em>Let there remain throughout Arabia no other religion except Islam</em></strong>." 
+'<em>Love, faith, hope, and forgiveness</em>' are the divine words. We do not find them in vampire movies. At the end of the movie, as Jesus hangs from the cross, he prays forgiveness for those who did this to him and redeems a criminal crucified next to him. In a similar movie, let's say '<em>The Passion of the Muhammad</em>', would end with the dying wishes of the revengeful Muhammad, "<em>Oh Lord, destroy the Jews and Christians. Let the Lord's anger be kindled against them. </em>_Let there remain throughout Arabia no other religion except Islam_." 
 
-<em>'The Passion of the Vampire-Prophet'</em>, the holy Islamic panic-special vampire movie, will end with the destruction of the vampire. According to the folklore, the destruction of the vampire comes about when he is exposed to sunlight (Zell-Ravenheart, 2004, p. 298). At the end every vampire and every fake Prophet is a loser. The myth of Muhammad's prophethood, his cult Islam, his book Qur'an and his God Allah would be eradicated when his deception would be exposed. That day is not far away.  
+<em>'The Passion of the Vampire-Prophet'</em>, the holy Islamic panic-special vampire movie, will end with the destruction of the vampire. According to the folklore, the destruction of the vampire comes about when he is exposed to sunlight (Zell-Ravenheart, 2004, p. 298). At the end every vampire and every fake Prophet is a loser. The myth of Muhammad's prophethood, his cult Islam, his book Qur'an and his God Allah would be eradicated when his deception would be exposed. That day is not far away.
 
-<strong>References</strong>
-<ol>
-	<li>
-<div style="text-align: left">Bart, Simon, Bart (2002 ); <em>Undead science: science studies and the afterlife of cold fusion</em>. Rutgers University Press. NJ</div></li>
-	<li>
-<div style="text-align: left"> Das, Sujit (2010); <em>Unmasking Muhammad, the Malignant Narcissist and His Grand Delusion Allah.</em> (e-Book for free download). Islam-Watch. URL: <a href="https://www.islam-watch.org/SujitDas/Unmasking_Muhammad.pdf">https://www.islam-watch.org/SujitDas/Unmasking_Muhammad.pdf</a></div></li>
-	<li>Deacy, Christopher (2005); <em>Faith in film: religious themes in contemporary cinema.</em> Ashgate Publishing Ltd. Aldershot. UK.</li>
-	<li> Etheredge, Cole (2005); <em>The Price of Ignorance</em>. iUniverse. Lincoln. USA.</li>
-	<li> Gokulsing, K ; Dissanayake, Wimal (2004); <em>Indian popular cinema: a narrative of cultural change</em>. Trentham Books Ltd. Staffordshire. UK.</li>
-	<li> Grace, Pamela (2009); <em>The Religious Film: Christianity and The Hagiopic</em>. Wiley-Blackwell. West Sussex. UK.</li>
-	<li>Humphries-Brooks, Stephenson (2006); <em>Cinematic savior: Hollywood's making of the American Christ.</em> Praeger Publishers. Westport. USA.</li>
-	<li>Maberry, Jonathan (2008); <em>Bad Moon Rising</em>. Kensington Publishing Corp. NY.</li>
-	<li>Puckett, Newbell Niles; Hand, Wayland Debs; Casetta, Anna; Thiederman, Sondra B. (1981); <em>Popular beliefs and superstitions: a compendium of American folklore</em> (Volume 1). Ohio collection of Newbell Niles Puckett. Published by G.K. Hall. </li>
-	<li> Strauss, Ed and Miller, Kevin (2011); <em>The Movie Lover's Devotional</em>. The Barbour Publishing, Inc. Uhrichsville. USA.</li>
-	<li>Vaknin, Sam (1999), <em>Malignant Self Love. Narcissism Revisited</em>. Narcissus Publications. Skopje. Prague. Czech Republic.</li>
-	<li>Walsh, Richard G. (2003); <em>Reading the Gospels in the Dark: Portrayals of Jesus in Film.</em> Trinity Press International. Harrisburg. USA.</li>
-	<li>Zell-Ravenheart, Oberon (2004); <em>Grimoire for the Apprentice Wizard</em>. The Career Press. Franklin Lakes. NJ.</li>
-</ol>
-<p style="text-align: left"> </p>
- 
 
-Author can be contacted at <a href="mailto:counter.jihad@yahoo.co.uk">counter.jihad@yahoo.co.uk</a>
+**References**
+
+1.  Bart, Simon, Bart (2002 ); _Undead science: science studies and the afterlife of cold fusion_. Rutgers University Press. NJ
+2.   Das, Sujit (2010); _Unmasking Muhammad, the Malignant Narcissist and His Grand Delusion Allah._ (e-Book for free download). Islam-Watch. URL: [Unmasking Muhammad.pdf](https://www.islam-watch.org/SujitDas/Unmasking_Muhammad.pdf)
+3.  Deacy, Christopher (2005); _Faith in film: religious themes in contemporary cinema._ Ashgate Publishing Ltd. Aldershot. UK.
+4.   Etheredge, Cole (2005); _The Price of Ignorance_. iUniverse. Lincoln. USA.
+5.   Gokulsing, K ; Dissanayake, Wimal (2004); _Indian popular cinema: a narrative of cultural change_. Trentham Books Ltd. Staffordshire. UK.
+6.   Grace, Pamela (2009); _The Religious Film: Christianity and The Hagiopic_. Wiley-Blackwell. West Sussex. UK.
+7.  Humphries-Brooks, Stephenson (2006); _Cinematic savior: Hollywood's making of the American Christ._ Praeger Publishers. Westport. USA.
+8.  Maberry, Jonathan (2008); _Bad Moon Rising_. Kensington Publishing Corp. NY.
+9.  Puckett, Newbell Niles; Hand, Wayland Debs; Casetta, Anna; Thiederman, Sondra B. (1981); _Popular beliefs and superstitions: a compendium of American folklore_ (Volume 1). Ohio collection of Newbell Niles Puckett. Published by G.K. Hall. 
+10.   Strauss, Ed and Miller, Kevin (2011); _The Movie Lover's Devotional_. The Barbour Publishing, Inc. Uhrichsville. USA.
+11.  Vaknin, Sam (1999), _Malignant Self Love. Narcissism Revisited_. Narcissus Publications. Skopje. Prague. Czech Republic.
+12.  Walsh, Richard G. (2003); _Reading the Gospels in the Dark: Portrayals of Jesus in Film._ Trinity Press International. Harrisburg. USA.
+13.  Zell-Ravenheart, Oberon (2004); _Grimoire for the Apprentice Wizard_. The Career Press. Franklin Lakes. NJ.
+
+Author Sujit Das can be contacted at [counter.jihad@yahoo.co.uk](mailto:counter.jihad@yahoo.co.uk)

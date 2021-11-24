@@ -72,6 +72,6 @@ Forwarded by <strong>Kisan</strong>
 
 -------------------
 
-Moderator's note: <strong>A prominent critic of the Malaysian government, blogger Raja Petra Kamaruddin has been writing in Mukto-Mona forum too for a while. Some of his writings in our forum can be seen </strong><a href="https://groups.yahoo.com/group/mukto-mona/message/13320"><strong>here</strong></a><strong>, </strong><a href="https://groups.yahoo.com/group/mukto-mona/message/13322"><strong>here</strong></a><strong>, and </strong><a href="https://groups.yahoo.com/group/mukto-mona/message/13993"><strong>here</strong></a><strong>.  We rejoice the acquittal of  blogger Raja Petra Kamaruddin. </strong>
+Moderator's note: <strong>A prominent critic of the Malaysian government, blogger Raja Petra Kamaruddin has been writing in Mukto-Mona forum too for a while. Some of his writings in our forum can be seen </strong><a href="http://groups.yahoo.com/group/mukto-mona/message/13320"><strong>here</strong></a><strong>, </strong><a href="http://groups.yahoo.com/group/mukto-mona/message/13322"><strong>here</strong></a><strong>, and </strong><a href="http://groups.yahoo.com/group/mukto-mona/message/13993"><strong>here</strong></a><strong>.  We rejoice the acquittal of  blogger Raja Petra Kamaruddin. </strong>
 
 <strong>You can read about him in a <a href="https://www.sachalayatan.com/arup/18814">Bangla post in Sachalayatan</a>. </strong>

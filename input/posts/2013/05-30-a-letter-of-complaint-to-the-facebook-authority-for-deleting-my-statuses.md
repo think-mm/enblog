@@ -1,15 +1,6 @@
 ---
-Title: A Letter of Complaint to the Facebook Authority for Deleting my statuses
+Title: A Letter of Complaint to the Facebook Authority for Deleting my status updates
 Tags:
-  - facebook has been deleting freethinker's statuses
-  - avijit english
-  - religion
-  - philosophy
-  - mukto-mona
-  - bangladesh
-  - human rights
-  - society
-  - activism
   - Avijit Roy
 Published: 2013-05-30 10:13:04 +06:00
 Updated: 2016-12-27 22:37:15 +06:00

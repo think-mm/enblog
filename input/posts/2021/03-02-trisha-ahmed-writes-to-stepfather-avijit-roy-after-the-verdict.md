@@ -10,18 +10,19 @@ Published: 2021-03-02 10:06:06 +06:00
 Updated: 2021-03-02 12:25:04 +06:00
 OldURL: 2021/03/02/trisha-ahmed-writes-to-stepfather-avijit-roy-after-the-verdict/
 ---
-Source: 
-<p style="text-align: center;"><a href="https://www.baltimoresun.com/opinion/op-ed/bs-ed-op-0301-dear-dad-20210301-gly4n5gg7ve3bncucld742cira-story.html?outputType=amp&amp;fbclid=IwAR2JerFFxBE-fBTvV0Z26qfr_80vKQ1azigSC51NDkbVbD5qHXEQ4RlEZG0"><span style="color: #ff0000;">Click Here to read Baltimore Sun version</span></a></p>
+Source:
 
-_ Mukto-Mona Editor on behalf of Trisha Ahmed_
+[Click Here to read Baltimore Sun version](https://www.baltimoresun.com/opinion/op-ed/bs-ed-op-0301-dear-dad-20210301-gly4n5gg7ve3bncucld742cira-story.html?outputType=amp&fbclid=IwAR2JerFFxBE-fBTvV0Z26qfr_80vKQ1azigSC51NDkbVbD5qHXEQ4RlEZG0)
 
 <a href="https://enblog.muktomona.com/2021/03/02/trisha-ahmed-writes-to-stepfather-avijit-roy-after-the-verdict/avijit-family/" rel="attachment wp-att-28454"><img class="aligncenter wp-image-28454" src="/wp-content/uploads/2021/03/Avijit-family-1024x787.jpg" alt="" width="579" height="445" /></a>
-<p style="text-align: center;"><span style="color: #0000ff;">Bonya Ahmed's daughter Trisha Ahmed writes to the stepfather Avijit Roy in Baltimore Sun, with so much of robustness, dejection and comprehension.</span></p>
 
-<blockquote>Money used to flow in to kill bloggers, publishers and [gay people]" in Bangladesh, one of your publisher's attackers confessed. So, who funded your murder?
 
-I thought, if the Bangladeshi investigators don't have answers, then maybe journalists will. Unfortunately, Bangladesh — like many countries now — is imprisoning journalists for speaking out.</blockquote>
-<p style="text-align: center;"><strong>My stepfather was murdered by machete six years ago. Here's what I would say to him today | COMMENTARY</strong></p>
+Bonya Ahmed's daughter Trisha Ahmed writes to the stepfather Avijit Roy in Baltimore Sun, with so much of robustness, dejection and comprehension.
+
+> Money used to flow in to kill bloggers, publishers and gay people in Bangladesh, one of your publisher's attackers confessed. So, who funded your murder? I thought, if the Bangladeshi investigators don't have answers, then maybe journalists will. Unfortunately, Bangladesh — like many countries now — is imprisoning journalists for speaking out.
+
+**My stepfather was murdered by machete six years ago. Here's what I would say to him today | COMMENTARY**
+
 My stepfather, Avijit Roy, was a Bangladeshi-American writer and engineer. While visiting Bangladesh, he was violently attacked with machetes and murdered on the street, as he left a book fair with my mother, who was also attacked and suffered life-threatening wounds. This happened six years ago, as of Friday. Ten days prior to this distressing anniversary, five of the attackers, members of a terrorist group inspired by al-Qaida, were sentenced to death in a Bangladeshi court.
 
 This verdict does not bring me closure — so many questions about the forces underlying his murder remain unanswered. If I could talk with my dad today, this is what I would say.
@@ -67,3 +68,5 @@ Cases like his and yours, which are only the tip of the iceberg, keep me up at n
 I remember your late nights writing, your determination to change minds — but most vividly, I remember your songs. When you couldn't get topics you were writing about, like "intelligent design," out of your head, you'd turn those words into loud, belted-out tunes. I remember us dancing to them. I wonder, if you were here now, would you still be singing and dancing with me?
 
 There's little point pondering hypotheticals. But one hypothesis comforts me: As long as there are people like Mr. Kajol's son and your daughter, the world will be forced to provide answers — as we bend societies toward your vision of rationality, of equity of peace.
+
+_ Mukto-Mona Editor on behalf of Trisha Ahmed_

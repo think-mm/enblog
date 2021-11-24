@@ -2,12 +2,8 @@
 Title: Beauty a curse in Bangladesh
 Tags:
   - bangladesh
-  - women raped
-  - beauty a curse
-  - religion
   - human rights
-  - terrorism
-  - women
+  - violence
   - William Gomes
 Published: 2009-10-22 21:32:56 +06:00
 Updated: 2009-10-22 21:32:56 +06:00

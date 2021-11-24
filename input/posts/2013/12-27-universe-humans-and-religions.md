@@ -12,8 +12,8 @@ Updated: 2013-12-31 13:40:00 +06:00
 OldURL: 2013/12/27/universe-humans-and-religions/
 ---
 
-<em><strong>Keeping in mind the violent unrest in today's Bangladesh, a relook into some already known information has become imperative for all sensible people of Bangladesh.</strong></em>
-------------------------------------------------------------------
+### Keeping in mind the violent unrest in today's Bangladesh, a relook into some already known information has become imperative for all sensible people of Bangladesh.
+
 
 <strong>UNIVERSE:</strong>
 

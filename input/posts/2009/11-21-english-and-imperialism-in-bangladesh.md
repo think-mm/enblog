@@ -2,16 +2,8 @@
 Title: English and imperialism in Bangladesh
 Tags:
   - bangladesh
-  - william gomes
-  - bangla
-  - che
-  - colonialism
-  - english
-  - imperialism
-  - politics
-  - religion
-  - culture
-  - bangalee freethinker
+  - human rights
+  - violence
   - William Gomes
 Published: 2009-11-21 00:07:03 +06:00
 Updated: 2009-11-21 00:07:03 +06:00

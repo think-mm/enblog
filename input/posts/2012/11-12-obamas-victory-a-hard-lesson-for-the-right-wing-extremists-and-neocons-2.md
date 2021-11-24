@@ -1,15 +1,8 @@
 ---
 Title: Obama's Victory - A Hard Lesson for the Right Wing Extremists and Neocons
 Tags:
-  - the us presidential election 2012
-  - ali sina and obama
-  - donald trump
-  - right wing extremists and neocons
-  - karl rove
-  - avijit english
-  - politics
-  - international
-  - society
+  - election
+  - barack obama
   - Avijit Roy
 Published: 2012-11-12 09:03:53 +06:00
 Updated: 2016-12-27 22:35:48 +06:00

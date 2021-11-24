@@ -1,7 +1,8 @@
 ---
 Title: My Book on Prophet Muhammad's Mental Disorder
 Tags:
-  - NULL
+  - islam
+  - Sujit Das
 Published: 2010-04-28 11:44:43 +06:00
 Updated: 2013-04-03 21:11:46 +06:00
 OldURL: 2010/04/28/my-book-on-prophet-muhammads-mental-disorder/
