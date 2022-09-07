@@ -1,18 +1,9 @@
 ---
-Title: No Justice for the Free of Thought  (Published in  Free Inquiry Magazine)
+Title: No Justice for the Free of Thought
 Tags:
-  - freethought under attack in bangladesh
-  - free inquiry magazine on bangladesh bloggers' arrest
   - politics
   - religion
-  - philosophy
-  - mukto-mona
-  - international
-  - bangladesh
   - human rights
-  - society
-  - activism
-  - shahbagh movement 2013
   - Trisha Ahmed
 Published: 2013-09-23 07:45:03 +06:00
 Updated: 2013-12-09 21:38:30 +06:00

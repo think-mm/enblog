@@ -2,7 +2,7 @@
 Title: THE PASSION OF THE VAMPIRE-PROPHET
 Tags:
   - islam
-	- Sujit Das
+  - Sujit Das
 Published: 2011-04-05 16:32:15 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2011/04/05/the-passion-of-the-vampire-prophet/

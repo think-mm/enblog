@@ -9,7 +9,7 @@ Updated: 2008-11-06 02:56:10 +06:00
 OldURL: 2008/11/05/americas-first-black-president/
 ---
 
-![Democrat Barack Obama.(AP)](../images/2008/10-30-obama_yahoo.jpg)
+![Democrat Barack Obama.(AP)](../../images/2008/10-30-obama_yahoo.jpg)
 
 The people of the United States have spoken and have selected Senator Barack Obama as their next President.  This highly-energized election brought out new voter groups and increased levels of involvement where Barack Obama beats John McCain and becomes the country’s first black president.  Congratulations to him on behalf of Mukto-Mona. 
 
@@ -19,7 +19,7 @@ We believe, Obama with his youthful energy and enthusiasm will give USA and the 
 We have kept some selected articles in our site homepage which has been turned to a blog site recently. Please visit our site and be part of the proud moment – "This election eve night". I would like to convey my special thanks to Dr. Jaffor Ullah and  Farid Ahmed for the necessary support.
 
 ### America's first black president
-Barack Obama beats John McCain to become the 44th U.S. president. [**>> Details**](https://www.yahoo.com/s/982583)
+Barack Obama beats John McCain to become the 44th U.S. president. [**- Details**](https://www.yahoo.com/s/982583)
 
 *   [Election map: Results](https://www.yahoo.com/s/978852)
 *   [Dole loses heated race](https://www.yahoo.com/s/982579)
