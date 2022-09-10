@@ -8,7 +8,7 @@ Updated: 2018-03-05 00:23:58 +06:00
 OldURL: 2018/03/04/attack-on-professor-muhammad-zafar-iqbal/
 ---
 
-<a href="https://enblog.muktomona.com/2018/03/04/attack-on-professor-muhammad-zafar-iqbal/jafor_iqbal_1/" rel="attachment wp-att-8524"><img class="aligncenter size-full wp-image-8524" src="/wp-content/uploads/2018/03/Jafor_Iqbal_1.jpg" alt="" width="725" height="425" /></a>
+<a href="https://enblog.muktomona.com/2018/03/04/attack-on-professor-muhammad-zafar-iqbal/jafor_iqbal_1/" rel="attachment wp-att-8524"><img class="aligncenter size-full wp-image-8524" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/03/Jafor_Iqbal_1.jpg" alt="" width="725" height="425" /></a>
 Yesterday, there was an attempt on the life of Professor Muhammad Zafar Iqbal who is a leading intellectual in Bangladesh, . The assassin was standing behind Prof. Iqbal when he was overseeing a robotics meet at Sylhet's Shah Jalal Engineering and Technology University. The attacker managed to stab him in the head with a dagger. Prof. Iqbal was transported by a military helicopter to a Dhaka hospital. Luckily, the wounds were not life threatening and currently, he is in stable condition.
 
 The lone attacker was seized and detained by the police. It is possible that there were other attackers who were there, but managed to flee. It is to be noted that, due to previous threatening phone calls and mails that Prof. Iqbal received, the authorities assigned security guards for him a few years ago. During this incident the guards were nearby, but could not prevent the attack.

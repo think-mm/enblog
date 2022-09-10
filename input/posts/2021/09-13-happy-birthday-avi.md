@@ -15,7 +15,7 @@ OldURL: 2021/09/13/happy-birthday-avi/
 <div dir="auto"></div>
 <div dir="auto">
 
-[caption id="attachment_28714" align="aligncenter" width="808"]<a href="https://enblog.muktomona.com/2021/09/13/happy-birthday-avi/avi-a-few-minutes-prior/" rel="attachment wp-att-28714"><img class="wp-image-28714 size-full" src="/wp-content/uploads/2021/09/Avi-a-few-minutes-prior.jpeg" alt="" width="808" height="606" /></a> Photo credit: Unknown[/caption]
+[caption id="attachment_28714" align="aligncenter" width="808"]<a href="https://enblog.muktomona.com/2021/09/13/happy-birthday-avi/avi-a-few-minutes-prior/" rel="attachment wp-att-28714"><img class="wp-image-28714 size-full" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/09/Avi-a-few-minutes-prior.jpeg" alt="" width="808" height="606" /></a> Photo credit: Unknown[/caption]
 
 </div>
 <div class="o9v6fnle cxmmr5t8 oygrvhab hcukyx3x c1et5uql ii04i59q">

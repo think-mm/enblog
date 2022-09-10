@@ -8,7 +8,7 @@ Updated: 2021-03-02 10:10:15 +06:00
 OldURL: 2021/02/16/avijit-roy/
 ---
 
-<a href="https://enblog.muktomona.com/2021/02/16/avijit-roy/avijit-quote-3/" rel="attachment wp-att-28234"><img class="aligncenter wp-image-28234" src="/wp-content/uploads/2021/02/Avijit-Quote-3-1024x427.jpg" alt="" width="902" height="376" /></a>
+<a href="https://enblog.muktomona.com/2021/02/16/avijit-roy/avijit-quote-3/" rel="attachment wp-att-28234"><img class="aligncenter wp-image-28234" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Avijit-Quote-3-1024x427.jpg" alt="" width="902" height="376" /></a>
 
 A Dhaka court today sentenced five members of banned militant outfit Ansar Al Islam including sacked Major Zia ul Haque to death in a case filed over the murder of writer Avijit Roy in 2015, however, the mastermind behind the brutal murder – Major Zia ul Haque – is absconding; the authorities have no idea about his current whereabouts. It is also interesting to note that even though investigators found involvement of 12 people in the killing, six were left out of the charge sheet because the whereabouts of five of those six could not be traced. The sixth person, Mukul Rana, one of the prime suspects, was killed in a so-called cross-fire while being in the police custody. It is also with deep consternation we observe that the government failed to take the witness statement of Bonya Ahmed, Avijit Roy's wife, who was also a victim of the attack and barely survived with multiple grievous body injuries. We feel that the Government is pursuing these court cases half-heartedly with no honest intention of uprooting extremism from Bangladesh.
 

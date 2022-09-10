@@ -20,7 +20,7 @@ His singing of the songs "Joy Bangla Banglar Joy (Victory for Bangla, Bangla's V
 
 It was an honor and a privilege for me and my wife to be able to host him in December 1991 at our apartment in Everett, a suburb of Boston, Massachusetts, USA. At that time I was a lecturer at Northeastern University and one of the two vice-presidents of Bangladesh Association of New England (BANE).
 
-<a href="https://enblog.muktomona.com/2017/08/31/remembering-abdul-jabbar/img268/" rel="attachment wp-att-6364"><img src="/wp-content/uploads/2017/08/img268-300x223.jpg" alt="" width="300" height="223" class="alignnone size-medium wp-image-6364" /></a>
+<a href="https://enblog.muktomona.com/2017/08/31/remembering-abdul-jabbar/img268/" rel="attachment wp-att-6364"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/08/img268-300x223.jpg" alt="" width="300" height="223" class="alignnone size-medium wp-image-6364" /></a>
 
 Photo: Muhammed Abdul Jabbar with the Anjali and Sukhamaya Bain couple at their home in Boston, 1991
 

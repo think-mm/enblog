@@ -10,7 +10,7 @@ OldURL: 2017/05/07/when-the-next-flood-comes-will-we-be-better-prepared/
 
 This article was originally published in <a href="https://www.thedailystar.net/op-ed/when-the-next-flood-comes-will-we-be-better-prepared-1401232">"The Daily Star" Opinion section on May 06, 2017.</a> 
 
-<a href="https://enblog.muktomona.com/2017/05/07/when-the-next-flood-comes-will-we-be-better-prepared/flash_flood_4/" rel="attachment wp-att-5351"><img src="/wp-content/uploads/2017/05/flash_flood_4.jpg" alt="" width="644" height="363" class="aligncenter size-full wp-image-5351" /></a>
+<a href="https://enblog.muktomona.com/2017/05/07/when-the-next-flood-comes-will-we-be-better-prepared/flash_flood_4/" rel="attachment wp-att-5351"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/05/flash_flood_4.jpg" alt="" width="644" height="363" class="aligncenter size-full wp-image-5351" /></a>
 
 Dam after dam gave in to the unseasonably early rainfall in the Haor area (a floodplain depression in the Northeastern region) of Bangladesh. Desperate farmers watched helplessly as the onrush of water submerged their crops right before harvest. Millions of Haor farmers lost all of their livelihood to incessant rainfall and flash floods in Sunamganj, Netrakona, Moulvibazar and other adjoining districts.
 

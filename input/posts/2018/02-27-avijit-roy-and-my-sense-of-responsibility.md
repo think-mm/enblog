@@ -10,7 +10,7 @@ OldURL: 2018/02/27/avijit-roy-and-my-sense-of-responsibility/
 
 Jibon Ahmed
 (Jibon Ahmed, a photo-journalist helped Avijit Roy and Bonya Ahmed to get to a hospital after the attack. Translated from original Bengali published in Purboposchim https://pbd.news/open-views/38794/অভিজিৎ-রায়-ও-আমার-দায়িত্ববোধ)
-<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit1/" rel="attachment wp-att-8404"><img class="aligncenter size-full wp-image-8404" src="/wp-content/uploads/2018/02/jiban_avijit1.jpg" alt="" width="800" height="530" /></a>
+<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit1/" rel="attachment wp-att-8404"><img class="aligncenter size-full wp-image-8404" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/02/jiban_avijit1.jpg" alt="" width="800" height="530" /></a>
 Three years went by with little notice. During these years, I have spent many sleepless terror-filled nights. This fear will chase me around as long as I live. I do not wish this day to occur in anybody's life. Everyday, fear chases me, I do not know what this fear is. I never had fear of death – ever.
 
 To this day, it appears often before me like a movie. When this fear wakes me up at midnight I wonder about what that I am seeing in front of my eyes. I cannot hide myself. It is as if I feel the warm brain of a living man on my palms. Then I cannot control myself. I have never experienced such brutal scene before.
@@ -29,10 +29,10 @@ The woman had injuries on her head, blood was oozing out of there and streaked d
 
 The woman cried out "Avi" and embraced the man. She kept saying, "Avi get up, nothing will happen to you. Avi, get up." At some point she stood up and raised her hands to plead with the assembled crowd for their help.
 
-<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit2/" rel="attachment wp-att-8414"><img class="aligncenter size-full wp-image-8414" src="/wp-content/uploads/2018/02/jiban_avijit2.jpg" alt="" width="725" height="481" /></a>
+<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit2/" rel="attachment wp-att-8414"><img class="aligncenter size-full wp-image-8414" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/02/jiban_avijit2.jpg" alt="" width="725" height="481" /></a>
 When the woman was crying for help, the people were stepping back. At that moment, I brought out my camera and took a picture of the bloodied couple. As nobody came forward to help, I pushed through the crowd to get a CNG (motorized tricycle). When the CNG came, we put them in there with the help of one or two onlookers.
 
-<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit3/" rel="attachment wp-att-8424"><img class="aligncenter size-full wp-image-8424" src="/wp-content/uploads/2018/02/jiban_avijit3.jpg" alt="" width="725" height="480" /></a>
+<a href="https://enblog.muktomona.com/2018/02/27/avijit-roy-and-my-sense-of-responsibility/jiban_avijit3/" rel="attachment wp-att-8424"><img class="aligncenter size-full wp-image-8424" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/02/jiban_avijit3.jpg" alt="" width="725" height="480" /></a>
 
 As we were traveling to the hospital, Bonya held the body of her husband. I sat holding Avijit's head. I suddenly realized that – through his skull that was cut by a machete - parts of his brain had come out and were touching my palm. I moved my hand and pushed those parts inside.
 By that time my entire body was wet from the blood that drained from Avijit's head. Before this I did know human blood could be so warm, I feel that heat to this day.

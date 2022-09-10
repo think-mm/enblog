@@ -11,7 +11,7 @@ Updated: 2017-05-09 23:26:28 +06:00
 OldURL: 2017/05/09/dgfi-helped-militant-group-huji-form-political-party/
 ---
 
-<a href="/wp-content/uploads/2017/05/DGFI_Official_uFlag-1.png"><img class="wp-image-5401 aligncenter" src="/wp-content/uploads/2017/05/DGFI_Official_uFlag-1-300x126.png" alt="" width="624" height="262" /></a>
+<a href="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/05/DGFI_Official_uFlag-1.png"><img class="wp-image-5401 aligncenter" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/05/DGFI_Official_uFlag-1-300x126.png" alt="" width="624" height="262" /></a>
 
 WikiLeaks has been publishing the secret US documents for the last few years. The documents also include a number of Dhaka embassy telegrams sent to Washington, some of which have already been published by different media and exposed our politicians, governments, government agencies and others.
 

@@ -37,7 +37,7 @@ But I accept, from a historical perspective, that these rules and notions might 
 
 But if there is anything fixed in this world, it is that our universe, our planet, and every life form on earth is continuously changing. Our culture, language, society, consciousness, values - all change. So when religions claim that their imposed rules and moral demands will be or should be applicable regardless of time and place, they contradict the basic nature of our universe. 
 
-<a href="/wp-content/uploads/2017/07/20245896_10159139539400319_8359152644312426293_n-1.jpg"><img src="/wp-content/uploads/2017/07/20245896_10159139539400319_8359152644312426293_n-1-300x168.jpg" alt="" width="300" height="168" class="alignnone size-medium wp-image-6151" /></a>
+<a href="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/07/20245896_10159139539400319_8359152644312426293_n-1.jpg"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/07/20245896_10159139539400319_8359152644312426293_n-1-300x168.jpg" alt="" width="300" height="168" class="alignnone size-medium wp-image-6151" /></a>
 
 Why do we desire freedom of expression? Because we crave the right to question everything. Though this seems to be a relatively new demand, this desire to question everything actually comes from our innate ability to be curious. If we look closely - quite ironically -  even religion itself stemmed from this basic human curiosity. And this curiosity has played a critical role in our success as a species and in dominating this planet. It seems that religion is also in contradiction with this basic human nature: our curiosity, our desire to question everything. 
 

@@ -8,7 +8,7 @@ Updated: 2018-02-27 08:03:42 +06:00
 OldURL: 2018/02/26/avijit-roys-campo-de-fiori/
 ---
 
-<a href="https://enblog.muktomona.com/2018/02/26/third-year-and-counting/avijit_memorial4/" rel="attachment wp-att-8194"><img class="size-full wp-image-8194 alignnone" src="/wp-content/uploads/2018/02/avijit_memorial4.jpg" alt="" width="960" height="640" /></a>
+<a href="https://enblog.muktomona.com/2018/02/26/third-year-and-counting/avijit_memorial4/" rel="attachment wp-att-8194"><img class="size-full wp-image-8194 alignnone" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/02/avijit_memorial4.jpg" alt="" width="960" height="640" /></a>
 
 It was a matter of bad luck that Giordano Bruno found himself back in his birth-land, Italy, after years of work and wanderings in France, England and Germany. It was his Venetian host Giovanni Moncenigo who denounced him to the Catholic inquisitors and after seven years of trail and imprisonment he was burned at the stake in 1600.
 
@@ -51,4 +51,4 @@ Avijit Roy's murder is no less painful than Giordano Bruno's; it was not done o
 <div>rage will kindle at a poet's word.</div>
 <div></div>
 <div></div>
-<a href="https://enblog.muktomona.com/2018/02/26/third-year-and-counting/avijit_memorial3/" rel="attachment wp-att-8184"><img class="size-large wp-image-8184 alignnone" src="/wp-content/uploads/2018/02/avijit_memorial3-1024x682.jpg" alt="" width="669" height="446" /></a>
+<a href="https://enblog.muktomona.com/2018/02/26/third-year-and-counting/avijit_memorial3/" rel="attachment wp-att-8184"><img class="size-large wp-image-8184 alignnone" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/02/avijit_memorial3-1024x682.jpg" alt="" width="669" height="446" /></a>

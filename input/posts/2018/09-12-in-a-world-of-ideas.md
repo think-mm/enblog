@@ -15,7 +15,7 @@ Updated: 2018-09-12 15:38:26 +06:00
 OldURL: 2018/09/12/in-a-world-of-ideas/
 ---
 
-<a href="/wp-content/uploads/2018/09/DkH2i4sVAAAdxuK-1.jpg"><img class="aligncenter wp-image-9514" src="/wp-content/uploads/2018/09/DkH2i4sVAAAdxuK-1-300x111.jpg" alt="" width="648" height="240" /></a>
+<a href="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/09/DkH2i4sVAAAdxuK-1.jpg"><img class="aligncenter wp-image-9514" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2018/09/DkH2i4sVAAAdxuK-1-300x111.jpg" alt="" width="648" height="240" /></a>
 
 <strong>"The 2,400-year-old fight for free speech"</strong>
 

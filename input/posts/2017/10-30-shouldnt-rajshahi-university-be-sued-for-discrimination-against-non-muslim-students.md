@@ -15,7 +15,7 @@ Recently there has been a storm of protest in the social media against a questio
 
 Here is a copy of a part of the test, <a href="https://bdnews24.com/bangladesh/2017/10/26/questions-with-communal-connotations-in-rajshahi-university-entry-test-draw-social-media-flak">courtesy of bdnews24.com
 
-</a><a href="https://enblog.muktomona.com/2017/10/30/shouldnt-rajshahi-university-be-sued-for-discrimination-against-non-muslim-students/ru-01/" rel="attachment wp-att-6864"><img src="/wp-content/uploads/2017/10/RU-01-300x188.jpg" alt="" width="300" height="188" class="alignnone size-medium wp-image-6864" /></a>.
+</a><a href="https://enblog.muktomona.com/2017/10/30/shouldnt-rajshahi-university-be-sued-for-discrimination-against-non-muslim-students/ru-01/" rel="attachment wp-att-6864"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/10/RU-01-300x188.jpg" alt="" width="300" height="188" class="alignnone size-medium wp-image-6864" /></a>.
 
 While many of the questions are worthless in terms of evaluating the aptitude of students, the question that got the protests is question #76. It asks, "What is the name of the greatest book on Earth"? The answers, translated literally from Bangla to English, are a) Holy Koran, the honorable, b) Holy Bible, c) Holy Injil and d) Gita.
 

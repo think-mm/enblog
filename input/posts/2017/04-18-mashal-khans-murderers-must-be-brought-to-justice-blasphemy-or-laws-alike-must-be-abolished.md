@@ -15,7 +15,7 @@ OldURL: 2017/04/18/mashal-khans-murderers-must-be-brought-to-justice-blasphemy-o
 
 Mukto-Mona is saddened to learn that Mashal Khan, a twenty-three years old student was shot and brutally beaten to death by a mob that included fellow students on April 13, 2017.  He was accused of blasphemy.  Mashal, who called himself "The Humanist" on Facebook, was a student at Abdul Wali Khan University in the Khyber Pakhtunkhwa province in Pakistan.
 
-<a href="https://enblog.muktomona.com/2017/04/18/mashal-khans-murderers-must-be-brought-to-justice-blasphemy-or-laws-alike-must-be-abolished/mashal-khan/" rel="attachment wp-att-5211"><img src="/wp-content/uploads/2017/04/Mashal-Khan.gif" alt="" width="669" height="376" class="aligncenter size-full wp-image-5211" /></a>
+<a href="https://enblog.muktomona.com/2017/04/18/mashal-khans-murderers-must-be-brought-to-justice-blasphemy-or-laws-alike-must-be-abolished/mashal-khan/" rel="attachment wp-att-5211"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2017/04/Mashal-Khan.gif" alt="" width="669" height="376" class="aligncenter size-full wp-image-5211" /></a>
   
 Mashal was killed in a university, a place of learning, where freedom of thought should not just be tolerated, it must be cherished and protected.  But what we are seeing in Pakistan and elsewhere, intolerance of any criticism of religion, particularly Islam; is encouraged in the name of 'hurting one's feelings'.  The government officials and political leaders routinely speak about taking strong actions against 'blasphemy'.
 

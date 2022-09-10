@@ -14,7 +14,7 @@ Source:
 
 [Click Here to read Baltimore Sun version](https://www.baltimoresun.com/opinion/op-ed/bs-ed-op-0301-dear-dad-20210301-gly4n5gg7ve3bncucld742cira-story.html?outputType=amp&fbclid=IwAR2JerFFxBE-fBTvV0Z26qfr_80vKQ1azigSC51NDkbVbD5qHXEQ4RlEZG0)
 
-<a href="https://enblog.muktomona.com/2021/03/02/trisha-ahmed-writes-to-stepfather-avijit-roy-after-the-verdict/avijit-family/" rel="attachment wp-att-28454"><img class="aligncenter wp-image-28454" src="/wp-content/uploads/2021/03/Avijit-family-1024x787.jpg" alt="" width="579" height="445" /></a>
+<a href="https://enblog.muktomona.com/2021/03/02/trisha-ahmed-writes-to-stepfather-avijit-roy-after-the-verdict/avijit-family/" rel="attachment wp-att-28454"><img class="aligncenter wp-image-28454" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/03/Avijit-family-1024x787.jpg" alt="" width="579" height="445" /></a>
 
 
 Bonya Ahmed's daughter Trisha Ahmed writes to the stepfather Avijit Roy in Baltimore Sun, with so much of robustness, dejection and comprehension.

@@ -9,7 +9,7 @@ Updated: 2021-02-16 13:17:57 +06:00
 OldURL: 2021/02/16/bonya-ahmeds-statement-on-the-avijit-roy-murder-verdict-february-16-2021/
 ---
 
-<a href="https://enblog.muktomona.com/2021/02/16/bonya-ahmeds-statement-on-the-avijit-roy-murder-verdict-february-16-2021/avijit-potrait/" rel="attachment wp-att-28354"><img class="aligncenter wp-image-28354" src="/wp-content/uploads/2021/02/Avijit-Potrait.jpg" alt="" width="611" height="318" /></a>
+<a href="https://enblog.muktomona.com/2021/02/16/bonya-ahmeds-statement-on-the-avijit-roy-murder-verdict-february-16-2021/avijit-potrait/" rel="attachment wp-att-28354"><img class="aligncenter wp-image-28354" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Avijit-Potrait.jpg" alt="" width="611" height="318" /></a>
 
 We got a verdict today after six years of confusion and delay. I am sorry for turning down media requests for interviews. Instead, I am posting this statement below to summarize the situation and pose questions that have gone unanswered.
 

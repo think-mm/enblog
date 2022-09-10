@@ -23,7 +23,7 @@ _By Guest Writer, Sayeed Ahmed_
 ("A Tribute to the Illuminated Woman of World War II," by Irfanulla Shariff)
 
 
-[caption id="attachment_28104" align="aligncenter" width="665"]<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor/" rel="attachment wp-att-28104"><img class=" wp-image-28104" src="/wp-content/uploads/2021/02/Noor.jpg" alt="" width="665" height="443" /></a> Photograph: Internet                                                                                                                                   Princess Noor Inayat Khan[/caption]
+[caption id="attachment_28104" align="aligncenter" width="665"]<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor/" rel="attachment wp-att-28104"><img class=" wp-image-28104" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Noor.jpg" alt="" width="665" height="443" /></a> Photograph: Internet                                                                                                                                   Princess Noor Inayat Khan[/caption]
 
 <strong>
 "Liberté"</strong>
@@ -31,7 +31,7 @@ That was her last word as an SS officer shot at the back of her head at Dachau c
 
 Noor was one of four women kneeling against a mound. One by one, the officer executed all four. The spy inspired by Sufi idealism was defiant until the end, never defeated despite the extreme brutality the Nazi regime inflicted on her.
 
-<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor-with-her-sitar/" rel="attachment wp-att-28144"><img class="aligncenter wp-image-28144" src="/wp-content/uploads/2021/02/Noor-with-her-Sitar.jpg" alt="" width="680" height="383" /></a>
+<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor-with-her-sitar/" rel="attachment wp-att-28144"><img class="aligncenter wp-image-28144" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Noor-with-her-Sitar.jpg" alt="" width="680" height="383" /></a>
 <strong>
 The Arrival of the Princess</strong>
 On the night of June 16, 1943, a single-engine Lysander aircraft landed at an undisclosed location inside Nazi-occupied France. Three passengers descended from the plane. One of these passengers was Noor, codenamed Madeleine. She was a great-great-great-granddaughter of Tipu Sultan, the legendary Muslim ruler of Mysore, India. Shy and gentle in temperament, Madeleine was to work as the radio operator for the Prosper network of SOE France. She would be the crucial link between the French Resistance Groups and the War Office in London.
@@ -45,7 +45,7 @@ While Hazrat Khan's international headquarters of his Sufi Movement were in Gene
 
 Noor was also writing stories for children, some of which appeared in the Le Figaro newspaper. In 1939, she published her book "Twenty Jataka Tales," stories of self-sacrifice for others' wellbeing, spreading the message of Sufism and nobility. All these were manifestations of the Sufi idealism she personified. As later events would show, this idealism made it possible for Noor to endure Nazi brutality during the intense interrogation and subsequent imprisonment at the now notorious Dachau concentration camp.
 
-<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/portrait-of-noor-wwii-database/" rel="attachment wp-att-28154"><img class="aligncenter wp-image-28154" src="/wp-content/uploads/2021/02/Portrait-of-Noor-WWII-database.jpg" alt="" width="205" height="272" /></a>
+<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/portrait-of-noor-wwii-database/" rel="attachment wp-att-28154"><img class="aligncenter wp-image-28154" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Portrait-of-Noor-WWII-database.jpg" alt="" width="205" height="272" /></a>
 
 <strong>The Spy</strong>
 When Nazi Germany invaded France in May 1940, Noor's family fled to London. Although pacifist ideals profoundly influenced Noor, she and her brother Vilayat decided to help defeat Nazi tyranny: "I wish some Indians would win high military distinction in this war. If one or two could do something in the Allied service, which was very brave and which everybody admired, it would help to make a bridge between the English people and the Indians."
@@ -54,7 +54,7 @@ In the UPF documentary "Enemy of the Reich," Noor's nephew Pir Zia-Inayat Khan s
 
 In November 1940, Noor joined the Women's Auxiliary Air Force (WAAF) and, as an Aircraftwoman 2nd Class, was sent to be trained as a wireless operator. Upon assignment to a bomber training school in June 1941, she applied for a commission she received in May 1942. She then went to Wiltshire for a specialist course in signal and wireless operation.
 
-<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor-plaque-at-dachau/" rel="attachment wp-att-28164"><img class="aligncenter  wp-image-28164" src="/wp-content/uploads/2021/02/Noor-Plaque-at-Dachau.jpg" alt="" width="592" height="365" /></a>
+<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/noor-plaque-at-dachau/" rel="attachment wp-att-28164"><img class="aligncenter  wp-image-28164" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Noor-Plaque-at-Dachau.jpg" alt="" width="592" height="365" /></a>
 
 The British Government formed the SOE in July 1940 to carry out unconventional warfare against Germany. Its mission was to conduct espionage, sabotage, and reconnaissance in occupied Europe (and later, also in occupied Southeast Asia) against the Axis powers to aid local resistance movements. This secret organization recruited and trained agents who then infiltrated enemy-occupied countries to work with underground resistance movements. SOE's largest operation was in France, and it desperately needed more agents there.
 
@@ -97,7 +97,7 @@ One thing was for sure, though; her courage and bravery did create an impression
 
 <strong>Noor Inayat Khan Timeline</strong>
 
-<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/screen-shot-2021-02-04-at-10-20-00-am/" rel="attachment wp-att-28084"><img class="aligncenter size-large wp-image-28084" src="/wp-content/uploads/2021/02/Screen-Shot-2021-02-04-at-10.20.00-AM-1024x793.png" alt="" width="669" height="518" /></a>
+<a href="https://enblog.muktomona.com/2021/02/05/the-amazing-story-of-princess-noor-inayat-khan-a-spy-in-the-british-secret-service-during-world-war-ii/screen-shot-2021-02-04-at-10-20-00-am/" rel="attachment wp-att-28084"><img class="aligncenter size-large wp-image-28084" src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2021/02/Screen-Shot-2021-02-04-at-10.20.00-AM-1024x793.png" alt="" width="669" height="518" /></a>
 
 Photographs:
 All photos are taken from the Noor Inayat Khan Memorial Trust website unless stated otherwise.
