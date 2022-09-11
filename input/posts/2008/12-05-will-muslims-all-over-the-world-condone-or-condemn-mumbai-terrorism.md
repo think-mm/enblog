@@ -14,7 +14,6 @@ Updated: 2009-07-15 07:19:17 +06:00
 OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-terrorism/
 ---
 
-
 <p align="center" style="line-height: 200%" class="MsoNormal"><span lang="EN"><font size="5" color="#800000">Will Muslims all over the world condone or condemn Mumbai terrorism?</font><font size="6" color="#800000"> </font><font size="5"> </font></span></p>
 <p align="center" class="MsoNormal"><span lang="EN"></span></p>
 <p align="center" class="MsoNormal"><font size="5"><a href="https://gold.mukto-mona.com/Articles/skm/index.html">Syed Kamran Mirza</a></font></p>
@@ -67,4 +66,4 @@ OldURL: 2008/12/05/will-muslims-all-over-the-world-condone-or-condemn-mumbai-ter
 
 <hr />
 
-<p class="MsoNormal"> Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at <a href="mailto:Mirza.syed@gmail.com">Mirza.syed@gmail.com</a></p>
+Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at *mirza.syed at gmail dot com*

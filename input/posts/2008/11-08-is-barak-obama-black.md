@@ -12,7 +12,7 @@ OldURL: 2008/11/08/is-barak-obama-black/
 
 
 <p align="justify"><font size="5" color="#008000">Is Barak Obama Black ? </font></p>
-<p align="justify"><font size="5" color="#008000"><a href="https://muktomona.com/Articles/ajoy/">Ajoy Roy</a></font></p>
+<p align="justify"><font size="5" color="#008000"><a href="https://gold.mukto-mona.com/Articles/ajoy/">Ajoy Roy</a></font></p>
 <p align="justify">&nbsp;</p>
 <p align="justify"><font face="Verdana">Although I was not crazy like my many countrymen in Bangladesh and elsewhere over the landside victory of democrat Barak Hosen Obama, I was glad. Because like many Americans I also got tired of Junior Bush's way of handling American politics and policies, which surely affected rest of the world too including Bangladesh. America needed a desperate change from Bush administration - a change that can inspire the nation once again. In the eye of the world community America has become morally, economically even culturally a degraded state. Only a phenomenal change can save them, the Americans rightly realized. They knew that a demoralized republican president like John McCain is not the man who can bring the most needed change. Needless to say the majority of Americans, white, black, yellow or brown found in Obama the man who can bring the change and inspire the nation. </font></p>
 <p align="justify">&nbsp;</p>
@@ -37,5 +37,4 @@ OldURL: 2008/11/08/is-barak-obama-black/
 <p align="justify"><font face="Verdana">Dhaka </font></p>
 <p align="justify"><font face="Verdana">November 8, 2008 </font></p>
 
-<hr align="justify" />
-<p align="justify">Prof. Ajoy K. Roy is a scientist and human rights activist writes from Bangladesh. he can be reached at <a href="mailto:roya_k2003@yahoo.com">roya_k2003@yahoo.com</a></p>
+Prof. Ajoy K. Roy is a scientist and human rights activist writes from Bangladesh. he can be reached at _roya_k2003 'at' yahoo.com_

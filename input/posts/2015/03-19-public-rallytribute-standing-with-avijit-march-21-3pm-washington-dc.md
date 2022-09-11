@@ -31,9 +31,6 @@ OldURL: 2015/03/19/public-rallytribute-standing-with-avijit-march-21-3pm-washing
 
 <span style="color: #000000">"We are here to rally, to stand with Avijit and Bonya. We are united in our grief and outrage. We urge the government of Bangladesh to conduct a swift and thorough investigation. We call on everyone to come stand with us for free speech and secularism in Bangladesh," said Drishtipat DC.</span>
 
-<span style="color: #000000"> </span>
-
-<span style="color: #000000">This outdoor rally is open to the public and will include a moment of silence, readings, and songs.</span><span style="color: #000000">  </span><span style="color: #000000">Drishtipat DC is an all-volunteer network promoting human rights and social justice in Bangladesh.</span><span style="color: #000000">  </span><span style="color: #000000">Follow us on Facebook at </span><a href="https://on.fb.me/1BimRWy" target="_blank"><span style="color: #0000ff">https://on.fb.me/1BimRWy</span></a><span style="color: #000000"> or e-mail us at </span><a href="mailto:DC.Drishtipat@gmail.com" target="_blank"><span style="color: #0000ff">DC.Drishtipat@gmail.com</span></a><span style="color: #000000">.</span><a href="https://enblog.muktomona.com/?attachment_id=3594" rel="attachment wp-att-3594">Avijit
-</a>
+This outdoor rally is open to the public and will include a moment of silence, readings, and songs.  Drishtipat DC is an all-volunteer network promoting human rights and social justice in Bangladesh.  Follow us on Facebook at https://on.fb.me/1BimRWy or e-mail us at DC.Drishtipat at gmail dot com.
 
 <a href="https://enblog.muktomona.com/?attachment_id=3594" rel="attachment wp-att-3594">Print out our FLYER here.</a>

@@ -131,4 +131,5 @@ OldURL: 2008/12/11/sufisism-vs-terrorism/
 <p align="justify"><font size="3" face="Verdana">The countries in the subcontinent need Sufis like Sai Baba , Nizamuddin Aulia, Sonnasi like Chaittanno Dev, Bhakt Kabir, Lalan Fakir.etc. They are no more alive. But their teachnigs are alive now .Their teachings should be included and should be compulsory in the school and college level. The madrasas which always teach how to be intolerant should be band or if banning not possible should be stopped from further growth. </font></p>
 <p align="justify">&nbsp;</p>
 
-<hr />Sentu Tikadar is a Mechanical Engineer writes from Jakarta. He can be reached at <a href="mailto:sentu92003@yahoo.com">sentu92003@yahoo.com</a>  
+<hr />
+Sentu Tikadar is a Mechanical Engineer writes from Jakarta. He can be reached at *sentu92003 at yahoo dot com*

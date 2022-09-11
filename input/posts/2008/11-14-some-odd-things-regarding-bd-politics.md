@@ -34,6 +34,6 @@ Personally I hope that people forget parties and start looking at candidates for
 
 
 **Che**
-_Etnesto Guenara is a member of Mukto-Mona and writes from Bangladesh. He can be reached at [cheguevara at yahoo](mailto:cheguevara28@yahoo.com)_
+_Etnesto Guenara is a member of Mukto-Mona and writes from Bangladesh. He can be reached at [_cheguevara28 at yahoo dot com]_
 
 _Posted By Mukto-Mona Editor on behalf of Etnesto Guenara_
