@@ -11,7 +11,7 @@ jobs:
         submodules: 'true'
     - uses: actions/setup-dotnet@v1
       with:
-        dotnet-version: '6.0.100'
+        dotnet-version: '6.0.400'
     - run: dotnet run --configuration Release -- deploy
       env:
         GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
