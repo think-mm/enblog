@@ -2,11 +2,7 @@
 Title: My interview with Frontpage Magazine
 Tags:
   - islam
-  - frontpage magazine
-  - syed kamran mirza
   - religion
-  - culture
-  - philosophy
   - terrorism
   - Syed Kamran Mirza
 Published: 2009-01-13 11:33:21 +06:00

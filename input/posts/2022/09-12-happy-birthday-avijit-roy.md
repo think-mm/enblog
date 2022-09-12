@@ -3,8 +3,8 @@ Title: Happy Birthday Avijit Roy
 Tags:
   - avijit roy
   - muktomona editor
-Published: 2022-09-12 12:00:00 -08:00
-Updated: 2022-09-12 12:00:00 -08:00
+Published: 2022-09-12 00:00:00 -08:00
+Updated: 2022-09-12 01:00:00 -08:00
 ---
 
 **Happy Birthday Avijit Roy**

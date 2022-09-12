@@ -2,7 +2,6 @@
 Title: Bangla Academy Fellowship 2008 award bestowed on Prof. Ajoy Roy
 Tags:
   - bangladesh
-  - bangla academy
   - Ajoy Roy
 Published: 2008-12-06 23:26:03 +06:00
 Updated: 2008-12-07 02:43:04 +06:00

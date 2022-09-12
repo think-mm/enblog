@@ -2,11 +2,8 @@
 Title: Qur'an is the Primary Manual of Islamic Suicide Terrorism!
 Tags:
   - islam
-  - terrorism
   - koran
-  - suicide
   - religion
-  - culture
   - philosophy
   - Syed Kamran Mirza
 Published: 2008-12-09 21:50:03 +06:00

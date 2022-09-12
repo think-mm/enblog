@@ -1,7 +1,6 @@
 ---
 Title: Guess who is Defending Jihad Now?
 Tags:
-  - united nations
   - terrorism
   - secularism
   - Abul Kasem

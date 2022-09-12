@@ -1,8 +1,7 @@
 ---
 Title: Quranic Erroneous Science and Contradictions!
 Tags:
-  - science and religion
-  - contradictions
+  - koran
   - Syed Kamran Mirza
 Published: 2008-12-20 08:31:46 +06:00
 Updated: 2009-07-15 07:18:42 +06:00
@@ -512,5 +511,5 @@ Total = 15/12 =1.25 </font>
 <p style="margin-left: 18pt" class="MsoNormal"><span style="font-size: 12pt">(Updated and added by September, 2008)</span></p>
 <p style="margin-left: 18pt" class="MsoNormal">&nbsp;</p>
 
-<hr />
-<p style="margin-left: 18pt" class="MsoNormal">Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at <a href="mailto:Mirza.syed@gmail.com">Mirza.syed@gmail.com</a></p>
+----
+Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at *mirza.syed at gmail dot com*

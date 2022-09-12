@@ -1,16 +1,13 @@
 ---
 Title: BD General Election and the shakened Minorities
 Tags:
-  - bangladesh
   - election
-  - minorities
   - human rights
   - Ajoy Roy
 Published: 2008-12-28 14:43:26 +06:00
 Updated: 2008-12-28 14:43:26 +06:00
 OldURL: 2008/12/28/bd-general-election-and-the-shakened-minorities/
 ---
-
 
 <p align="center" class="MsoNormal"><font size="5" color="#008000">BD General Election and the shakened Minorities </font></p>
 <p align="center" class="MsoNormal"><span lang="en-us"><font size="5"><a href="https://gold.mukto-mona.com/Articles/ajoy/index.html">Ajoy Roy</a></font></span></p>
@@ -36,3 +33,5 @@ OldURL: 2008/12/28/bd-general-election-and-the-shakened-minorities/
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Please keep in touch with us. Our control cell will work round the clock from December 28, 2008 </font><o></o><font size="3" face="Verdana"> </font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Ajoy Roy</font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">From <st1></st1>Dhaka    </font></p>
+
+Additional tags: minorities, bangladesh

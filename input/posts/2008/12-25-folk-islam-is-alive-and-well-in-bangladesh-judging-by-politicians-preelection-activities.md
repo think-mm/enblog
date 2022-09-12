@@ -1,11 +1,8 @@
 ---
 Title: Folk Islam is alive and well in Bangladesh judging by politicians pre-election activities
 Tags:
-  - bangladesh
   - islam
-  - politicians
   - politics
-  - religion
   - A. H. Jaffor Ullah
 Published: 2008-12-25 23:06:39 +06:00
 Updated: 2009-07-09 18:18:59 +06:00

@@ -3,7 +3,6 @@ Title: Two-nation theory
 Tags:
   - secularism
   - liberation war
-  - Ishfaq Ilahi Choudhury
 Published: 2008-12-28 13:28:50 +06:00
 Updated: 2008-12-28 13:28:50 +06:00
 OldURL: 2008/12/28/two-nation-theory/
@@ -44,4 +43,6 @@ OldURL: 2008/12/28/two-nation-theory/
 
 <font face="Verdana">That playing politics with religion ultimately brings ruination is proven by the sad spectacle in Pakistan -- a nation that had the highest number of suicide attacks in the world in 2008. We need to learn from others' mistakes for we may not live long to make those ourselves.</font>
 
-<hr />The article has been published in Daily Star. The author is a freelance contributor to The Daily Star and member of Mukto-Mona. He sent the article for publication in Mukto-Mona.
+----
+~ Ishfaq Ilahi Choudhury
+*The article has been published in Daily Star. The author is a freelance contributor to The Daily Star and member of Mukto-Mona. He sent the article for publication in Mukto-Mona.*

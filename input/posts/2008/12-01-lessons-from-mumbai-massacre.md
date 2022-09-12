@@ -3,8 +3,6 @@ Title: Lessons from Mumbai Massacre
 Tags:
   - islam
   - terrorism
-  - mumbai
-  - jihad
   - religion
   - india
   - Abul Kasem
