@@ -21,4 +21,5 @@ Lastly, Readers are requested to keep their comments short.  Comments are natura
 
 Happy Blogging!
 
-~ Dr. Avijit Roy, a computer professional and the Founding Moderator of Mukto-Mona writes from USA
+----
+~ Dr. Avijit Roy, _a computer professional and the Founding Moderator of Mukto-Mona writes from USA_

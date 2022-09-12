@@ -1,9 +1,8 @@
 ---
-Title: Is Barak Obama Black ?
+Title: Is Barak Obama Black?
 Tags:
   - politics
   - international
-  - bangladesh
   - Mukto-Mona Editor
 Published: 2008-11-08 02:29:06 +06:00
 Updated: 2008-11-08 02:30:14 +06:00

@@ -47,20 +47,15 @@ Many called the historic victory of the Grand alliance as the people's victory g
 
 We think in the conflict between the forces of Islamic Fundamentalism and Islamic terrorism vs. secular-liberal democratic forces, the later emerged victorious. It is a verdict of the anti Jamat philosophy and distinctly in favour of liberalism and secularism.
 
-We hope the Grand alliance will not disappoint the people. No doubt the task is very difficult and almost un-surmountable, as the victorious candidate of Sylhet 1 constituency Mr. Abul Mal Muhit rightly said, â€˜we have kindled great hope in the common mass, and so the task and responsibility on the victorious parties is now manifold increased. We feel humble and we must be out to satisfy the demands of the people who put us to seat of state power.â€
-
- 
+We hope the Grand alliance will not disappoint the people. No doubt the task is very difficult and almost un-surmountable, as the victorious candidate of Sylhet 1 constituency Mr. Abul Mal Muhit rightly said, â€˜we have kindled great hope in the common mass, and so the task and responsibility on the victorious parties is now manifold increased. We feel humble and we must be out to satisfy the demands of the people who put us to seat of state power.
 
 A political pundit of DU has identified three factors for the debacle of BNP.
 
 1. During emergency, the BNP as a Party disarrayed particularly after the arrest of their chairperson, main inspiring force of the party, with intra faction of pro-reformation and pro Khaleda elements. From the chaotic condition, the party never could come to its own self, though Begum Khaleda tried her best to unite the party in a single unit
 2. The dilemma whether to participate in the general election even though BNP's stalwarts could mange to get free from jails at the mercy and the liberal attitude shown by our Apex court. The Party's think tankers failed to show the determined and correct path.
 3. The BNP put up known old guards, most whom lost their image in the eye of the public. Whether theses accused leaders were guilty or not in the eye of the laws, people were convinced that they are corrupted and has made Himalayan wealth.
- 
 
 With these I may add a few below:
-
- 
 
 4. People in general got annoyed with open association of BNP leaders with the well known war criminals, who opposed our war of liberation and were responsible humiliation of lakhs of our womenfolk and genocide. .
 5. The BNP theoreticians put their money on the old conception that Party has a built in vote bank. They made their election strategy based on this concept. In doing so, they ignored the sentiments of 30% new young voters (age of 18+). This strategy proved a drastic failure. On the other hand AL and its alliance addressed the younger generation, their skill and merit. They put up many relatively unknown but talented young candidates. Dhaka city candidates just example of this policy.

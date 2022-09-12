@@ -1,5 +1,5 @@
 ---
-Title: Is Dawkins a Fundamentalist?
+Title: Is Richard Dawkins a Fundamentalist?
 Tags:
   - richard dawkins
   - philosophy
@@ -9,7 +9,8 @@ Updated: 2008-11-03 21:30:16 +06:00
 OldURL: 2008/11/03/is-dawkins-a-fundamentalist/
 ---
 
-**Is Richard Dawkins a Fundamentalist?** [Aparthib](https://gold.mukto-mona.com/Articles/aparthib/index.html)  I am a bit taken aback by Audrey's labelling of Dawkins as Fundamentalist(atheist) in [mukto-mona forum](http://groups.yahoo.com/group/mukto-mona/message/50476).  Her exact quote is stated below,
+~ [Aparthib](https://gold.mukto-mona.com/Articles/aparthib/index.html)
+I am a bit taken aback by Audrey's labelling of Dawkins as Fundamentalist(atheist) in [mukto-mona forum](http://groups.yahoo.com/group/mukto-mona/message/50476). Her exact quote is stated below,
 
 > Fundamentalist atheists such as Dawkins, Hitchens and Harris do not differ much from fundamentalist religionists. They all believe they are right and the others are wrong.
 
@@ -26,6 +27,6 @@ As Dawkins points out in the God Delusion, just because a scientist can passiona
 Now let me come to the specific case of existence of God issue. This is not a scientific problem, its a philosophical issue. And it is critical that one resorts to rigorous logic in any philosophical debate, because that is the only recourse available in absence of any observational evidence for a meaningful resolution of an issue. What Dawkins and other scientists state is the logical absurdity of the notion of the personal God of the religions. Scientist or science do not claim to know THE origin of the THE universe yet. Science can only attempt to explain the birth of the OBSERVED universe in terms of the laws of Physics. But science cannot explain the origin of the laws of physics (i.e the cause of the THE universe). Cosmologist Barrow ends his book "The Origin of the Universe" by the line "We can never know the origin of THE universe". If one defines an atheist as one who claims that there is no origin of the laws of Physics, then such an atheist is a fundamentalist because he is obviously claiming to know an unknowable. But other that that there is nothing fundamentalist about stating the facts of science and opposing views that contradict science. We simply don't know why the universe (with the laws of physics governing it) exists This ignorance gives rose to the "God feeling" among scientists and leaves room for metaphysical speculation (of course without contradicting the laws of physics).
 
 
-
-~ Aparthib
-_[  - Aparthib Zaman has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, religion and various social issues. His artcles in Mukto-Mona can be read at https://gold.mukto-mona.com/Articles/aparthib/index.html. He lives in US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US. He can be reached at aparthib 'at' yahoo.com]
+----
+~ [Aparthib](https://gold.mukto-mona.com/Articles/aparthib/index.html)
+_Aparthib Zaman has been a Mukto-Mona member since it's inception and has contributed many articles to Mukto-Mona on rationalism, metaphysical issues, religion and various social issues. He lives in US and has done graduate studies in Physics and Electrical Engineering. He has worked in IT industry in US. He can be reached at aparthib 'at' yahoo 'dot' com_

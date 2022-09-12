@@ -9,7 +9,7 @@ Updated: 2009-07-09 18:21:56 +06:00
 OldURL: 2008/11/04/cheney%e2%80%99s-endorsement-is-like-a-%e2%80%98kiss-of-death%e2%80%99-to-mccain/
 ---
 
-**[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)**
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
 Thus far, the Republican candidate was able to stay far away from Bush-Cheney duo but only two days before the election, Mr. Dick Cheney, the most hated of all politicians in America, flew to his home state, Wyoming, to offer his endorsement to 'McCain-Palin ticket.'
 
@@ -29,9 +29,8 @@ Cheney is very secretive about his dealings with the energy companies as he serv
 
 During the presidential campaign John McCain stayed far away from Bush-Cheney duo for he knew that many Americans look at them with nothing but contempt.  Privately, many Republican legislators will also harbor a similar view.  Jointly, Mr. Bush and Mr. Cheney had ruined the U.S. economy after inheriting a healthy and robust one.  The budget surplus garnered by the Clinton Administration was replaced with a massive budget deficit and during the last 8 years the national debt had risen to $ 8.3 trillion from $ 5.7 trillion.  The Iraq War is costing about $ 10 billion a month and the easy monetary policy of Bush-Cheney to help build a "Ownership Society" coupled with subprime lending by the big bank have pushed the nation into a financial meltdown the likes of which were never seen before since the 'Great Depression' of late 1920s.
 
-Taken all the above facts together, who would like to have an endorsement from Dick Cheney or George Bush?  The McCain campaign kept the news of Cheney's big endorsement to them.  I never heard either McCain or Palin going out of their way to publicize the endorsement they received from the vice president.  They knew it all along that Cheney's kind words for McCain may read "a kiss of death."
+**Taken all the above facts together, who would like to have an endorsement from Dick Cheney or George Bush? The McCain campaign kept the news of Cheney's big endorsement to them. I never heard either McCain or Palin going out of their way to publicize the endorsement they received from the vice president. They knew it all along that Cheney's kind words for McCain may read "a kiss of death."**
 
 
-----------------------------
-Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA
-
+-----
+*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
