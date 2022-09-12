@@ -1,0 +1,14 @@
+---
+Title: Happy Birthday Avijit Roy
+Tags:
+  - avijit roy
+  - muktomona editor
+Published: 2022-09-12 12:00:00 -08:00
+Updated: 2022-09-12 12:00:00 -08:00
+---
+
+**Happy Birthday Avijit Roy**
+
+![](../../images/dup/Avijit_bday_2022.jpg)
+
+We remember you. You live in the mind of every muktomona alive in this world!
