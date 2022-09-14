@@ -3,7 +3,6 @@ Title: America's first black president
 Tags:
   - politics
   - barack obama
-  - Avijit Roy
 Published: 2008-11-05 10:21:16 +06:00
 Updated: 2008-11-06 02:56:10 +06:00
 OldURL: 2008/11/05/americas-first-black-president/
@@ -19,12 +18,10 @@ We have kept some selected articles in our site homepage which has been turned t
 
 
 ### America's first black president
-Barack Obama beats John McCain to become the 44th U.S. president. [**- Details**](https://www.yahoo.com/s/982583)
+Barack Obama beats John McCain to become the 44th U.S. president. \[**details on [yahoo news]((https://www.yahoo.com/s/982583))**\]
 
 *   [Election map: Results](https://www.yahoo.com/s/978852)
 *   [Dole loses heated race](https://www.yahoo.com/s/982579)
 *   [CNN's hologram reporter](https://www.yahoo.com/s/982580)
 *   [Live: Election coverage](https://www.yahoo.com/s/982581)
 *   [Obama's acceptance Speech (some highlights)](https://news.yahoo.com/s/ynews/20081105/pl_ynews/ynews_pl137?full)
-
-Updated every 5 min on yahoo.com

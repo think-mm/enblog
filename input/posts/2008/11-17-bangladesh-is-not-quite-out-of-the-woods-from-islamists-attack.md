@@ -10,6 +10,8 @@ Updated: 2009-07-09 18:19:50 +06:00
 OldURL: 2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack/
 ---
 
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
+
 There must have been a gaping hole in Bangladesh's homeland security for the last 22 months or so when the military backed "caretaker" government comprising of some oligarchs and technocrats came to power on January 11, 2007.
 
 To prove unequivocally that the army-backed government means business, six Islamists who were captured during the previous government were railroaded to walk to their gallows when many people requested the government to allow the convicted Islamists to talk to the press.  But the government of Fakhruddin Ahmed (the "caretaker" government) was nonchalance.  It ignored the plea of the civil society and let the convicted Islamists take their secrets to grave.  Thus, the people of Bangladesh were deprived of the full account of a vile conspiracy that runs deep in various agencies, civilian and armed forces, of the government.  The Islamists of Bangladesh are not that capable of blasting their homemade crude bombs without their silent conspirators from political parties, members of the intelligence communities, and the armed forces.
@@ -30,7 +32,6 @@ The government should ponder over the facts that despite a number of major arres
 In summary, the news of a bomb making factory in the outskirts of Dhaka should not be taken lightly by the government or the civil society.  The government certainly had railroaded the 6 super bosses of the JMB outfit, but the political conviction of many JMB supporters still lingers in their mind and so is the zealotry that serves as the engine of hate and that fuels a promise leading up to the false notion that someday Bangladesh miraculously will be converted into an Islamic Utopia.
 
 -----
-~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 *Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
 
-- [this post on enblog internet archive](https://web.archive.org/web/20191027023824/https://enblog.mukto-mona.com/2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack)
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191027023824/https://enblog.mukto-mona.com/2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack)

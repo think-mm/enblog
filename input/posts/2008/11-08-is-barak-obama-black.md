@@ -9,7 +9,7 @@ Updated: 2008-11-08 02:30:14 +06:00
 OldURL: 2008/11/08/is-barak-obama-black/
 ---
 
-~ *[Ajoy Roy](https://gold.mukto-mona.com/Articles/ajoy/index.html)*
+~ *[Ajoy Roy](https://gold.mukto-mona.com/Articles/ajoy/index.html)*, Dhaka
 
 Although I was not crazy like my many countrymen in Bangladesh and elsewhere over the landside victory of democrat Barak Hosen Obama, I was glad. Because like many Americans I also got tired of Junior Bush's way of handling American politics and policies, which surely affected rest of the world too including Bangladesh. America needed a desperate change from Bush administration – a change that can inspire the nation once again. In the eye of the world community America has become morally, economically even culturally a degraded state. Only a phenomenal change can save them, the Americans rightly realized. They knew that a demoralized republican president like John McCain is not the man who can bring the most needed change. Needless to say the majority of Americans, white, black, yellow or brown found in Obama the man who can bring the change and inspire the nation.
 
@@ -29,13 +29,9 @@ Colour (white) and religion (Christianity)
 
 I am not sure, how religious Mr. Obama is. But his official religion is 'United Church of Christ', a small school of Protestant Church. I would rather prefer to call him just Obama, a man with noble ideas, at best a non white racially speaking.
 
-In today's USA a new non-white, non-black mixed generation has come up over the years through intermingling between whites, blacks, browns and yellows. If Obama is called black then we sub-continental peoples, the black-brownish emetic Arabs of Middle East, most peoples of Latin America are too to be termed as blacks too ! I will finally raise the question in today's contest who are the blacks sociologically as well as anthropologically, and what right one has to call a person a black?
+In today's USA a new non-white, non-black mixed generation has come up over the years through intermingling between whites, blacks, browns and yellows. If Obama is called black then we sub-continental peoples, the black-brownish emetic Arabs of Middle East, most peoples of Latin America are too to be termed as blacks too! I will finally raise the question in today's contest who are the blacks sociologically as well as anthropologically, and what right one has to call a person a black?
 
 ----
-Ajoy Roy  
-Dhaka  
-November 8, 2008
-
-Prof. Ajoy K. Roy is a scientist and human rights activist writes from Bangladesh. Je can be reached at _roya_k2003 'at' yahoo 'dot' com_
-
-- [this post on enblog internet archive](https://web.archive.org/web/20191030060306/https://enblog.mukto-mona.com/2008/11/08/is-barak-obama-black)
+*Prof. Ajoy K. Roy* is a scientist and human rights activist writes from Bangladesh. Je can be reached at *roya_k2003 'at' yahoo 'dot' com*
+  
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191030060306/https://enblog.mukto-mona.com/2008/11/08/is-barak-obama-black)

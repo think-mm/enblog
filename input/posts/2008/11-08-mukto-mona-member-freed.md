@@ -11,8 +11,11 @@ OldURL: 2008/11/08/mukto-mona-member-freed/
 
 ### Malaysia blogger's joy at release
 
-**A prominent critic of the Malaysian government, blogger Raja Petra Kamaruddin, has been freed from jail on the orders of a judge.**
-![Prominent Malaysian blogger and government critic Raja Petra Kamaruddin is greeted by supporters after being freed from jail by a court in Shah Alam, outside Kuala Lumpur city, on Friday](https://newsimg.bbc.co.uk/media/images/45183000/jpg/_45183301_-70.jpg)
+**A prominent critic of the Malaysian government, blogger Raja Petra Kamaruddin, has been freed from jail on the orders of a judge.**  
+
+![Raja Petra Kamaruddin freed](https://newsimg.bbc.co.uk/media/images/45183000/jpg/_45183301_-70.jpg)
+  
+Prominent Malaysian blogger and government critic Raja Petra Kamaruddin is greeted by supporters after being freed from jail by a court in Shah Alam, outside Kuala Lumpur city, on Friday
 
 Mr Raja Petra, 58, editor of the website Malaysia Today, has been held without trial for eight weeks under a draconian security law, the ISA.
 
@@ -63,4 +66,4 @@ Moderator's note: **A prominent critic of the Malaysian government, blogger Raja
 
 You can read about him in a [Bangla post in Sachalayatan](https://www.sachalayatan.com/arup/18814).
 
-- [this post on enblog internet archive](https://web.archive.org/web/20191030060227/https://enblog.mukto-mona.com/2008/11/08/mukto-mona-member-freed)
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191030060227/https://enblog.mukto-mona.com/2008/11/08/mukto-mona-member-freed)

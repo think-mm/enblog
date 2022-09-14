@@ -9,10 +9,9 @@ Updated: 2008-11-08 03:24:04 +06:00
 OldURL: 2008/11/08/youth-vote-may-have-been-key-in-obamas-win/
 ---
 
-Young voters had 'record turnout,' preferred Democrat by wide margin  
-By Melissa Dahl  
-Health writer  
-msnbc.com  
+### Young voters had 'record turnout,' preferred Democrat by wide margin  
+~ *Melissa Dahl*
+Health writer, msnbc.com  
 updated 11:22 a.m. ET, Wed., Nov. 5, 2008  
 
 Early reports are indicating that the youngest members of the country's electorate voted Tuesday in higher numbers than in the last presidential election — and they voted more Democratic. Youth turnout appears to be exceeding 2004 levels, which was itself a year with a big surge in voters ages 18 to 29.
@@ -71,4 +70,4 @@ But CIRCLE director Levine says that on either side of the party line, "all the 
 &copy; 2008 msnbc.com
 
 - [this post on nbcnews](https://web.archive.org/web/20180327085052/http://www.nbcnews.com/id/27525497)
-- [this post on enblog internet archive](https://web.archive.org/web/20191030060156/https://enblog.mukto-mona.com/2008/11/08/youth-vote-may-have-been-key-in-obamas-win)
+- [this post on internet archive for mm enblog](https://web.archive.org/web/20191030060156/https://enblog.mukto-mona.com/2008/11/08/youth-vote-may-have-been-key-in-obamas-win)

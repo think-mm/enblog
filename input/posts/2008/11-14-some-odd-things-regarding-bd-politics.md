@@ -5,10 +5,12 @@ Tags:
   - politics
   - election
   - journalism
+  - Etnesto Guenara
 Published: 2008-11-14 21:22:37 +06:00
 Updated: 2008-11-14 21:22:37 +06:00
 OldURL: 2008/11/14/some-odd-things-regarding-bd-politics/
 ---
+~ *Etnesto Guenara*
 
 Rcently BNP-Jamat has realized after some ground surveys that they will fare terribly in the upcoming December 2008 polls in Bangladesh. According to Daily Bhorer Kagoj, 13th November, BNP-Jamat has a chance of victory only in Chittagong. And so they are spending time devising new strategies to delay the polls. If we observe their activities — yes they are actively pursuing the delaying program. Now they have added Hajj as an issue. However, the BNP-Jamat bloc says that the real issue is that they suspect the neutrality of the Election Commision. Is the EC neutral?
 
@@ -32,8 +34,8 @@ Why? Is the election commission and the govt really neutral? What do they want? 
 
 Personally I hope that people forget parties and start looking at candidates forcing both alliances to choose better candidates... and eventually get rid of half educated, ill-educated, corrupt, divisive and religiously extreme politicians who are servants not of the people but of money and foreign paymasters.
 
+----
+**Che**  
+Etnesto Guenara is a member of Mukto-Mona and writes from Bangladesh. He can be reached at _cheguevara28 at yahoo dot com_
 
-**Che**
-_Etnesto Guenara is a member of Mukto-Mona and writes from Bangladesh. He can be reached at [_cheguevara28 at yahoo dot com]_
-
-_Posted By Mukto-Mona Editor on behalf of Etnesto Guenara_
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191027023845/https://enblog.mukto-mona.com/2008/11/14/some-odd-things-regarding-bd-politics)

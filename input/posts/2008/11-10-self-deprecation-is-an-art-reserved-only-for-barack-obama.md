@@ -9,6 +9,8 @@ Updated: 2009-07-09 18:20:09 +06:00
 OldURL: 2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama/
 ---
 
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*  
+
 Trust me – I know that it takes a lot of courage to belittle oneself.  America 's newly minted president-elect, Barack Obama, who will take office on January 2009, is not afraid of self deprecation or to take a dim view of him.  We saw a fine example of this barely 3 days after he got elected on November 4, 2008. 
 
 On November 7, 2008 President-Elect Obama met with the transition economic advisory board at the Hilton Hotel in Chicago .  The vice president elect, Joe Biden, was also present in the meeting.  After the meeting, Obama gave a press interview around 1:50 pm (central daylight time), which is the first press interview after he was elected the 44th president of America .  As he addressed the meeting, all the members of his transition economic advisory were standing on the podium next to him.  At one point, Obama talked about the pet dog issue, which seems to be on his mind these days.
@@ -34,9 +36,7 @@ I read earlier this year in a report that Hispanic population is rising faster a
 It is often said that morning shows the day.  If this is the beginning, who knows what Obama is going to say in the next four years?  I don't know about others, but I sure will listen to every word that he will say.  I believe some of the thing he will say in public may shock many Americans.  Three cheers to Obama for ushering in an American glasnost. 
 
 -------
-
-~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 *Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
 
 
-- [this post on enblog internet archive](https://web.archive.org/web/20191030054619/https://enblog.mukto-mona.com/2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama)
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191030054619/https://enblog.mukto-mona.com/2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama)

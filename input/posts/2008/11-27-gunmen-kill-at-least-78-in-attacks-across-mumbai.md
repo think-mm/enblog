@@ -5,20 +5,17 @@ Tags:
   - islam
   - terrorism
   - india
-  - violence
   - Mukto-Mona Editor
 Published: 2008-11-27 04:55:35 +06:00
 Updated: 2008-11-27 11:59:16 +06:00
 OldURL: 2008/11/27/gunmen-kill-at-least-78-in-attacks-across-mumbai/
 ---
-
-<p align="center"><span class="photo_container pc_l"> <img width="500" src="https://farm4.static.flickr.com/3274/3061365143_91a2efda9c.jpg" alt="IMG_5350 by Vinu" height="333" class="pc_img" /></span></p>
+![IMG_5350 by Vinu](https://farm4.static.flickr.com/3274/3061365143_91a2efda9c.jpg)
 
 MUMBAI, India – Teams of heavily armed gunmen stormed luxury hotels, a popular restaurant and a crowded train station in coordinated attacks across India's financial capital Wednesday night, killing at least 78 people and taking Westerners hostage, police said. An explosion followed by a raging fire struck one of the hotels, the landmark Taj Mahal, early Thursday. Screams could be heard and enormous clouds of black smoke rose from the at the century-old edifice on Mumbai's waterfront. Firefighters were spraying water at the blaze.
 
-<p align="center"><a href="https://us.lrd.yahoo.com/_ylt=AhcW7kpjlCdDmhqchWs4Eub9xg8F/SIG=12fb1srbc/**https://cosmos.bcst.yahoo.com/up/ynews?ch=4226714&amp;cl=10851093&amp;lang=en" class="media media3s video"><img width="213" src="https://d.yimg.com/us.yimg.com/p/ap/20081126/videolthumb.0736cdc3ce535a3cb143c085c90a8d74.jpg?x=213&amp;y=160&amp;xc=1&amp;yc=1&amp;wc=399&amp;hc=300&amp;q=100&amp;sig=CAsYfWS7uY5eMoF75VdR.Q--" alt="Gunmen kill scores in India, hostages in hotels" height="160" /></a>
-<a href="https://us.lrd.yahoo.com/_ylt=AhcW7kpjlCdDmhqchWs4Eub9xg8F/SIG=12fb1srbc/**https://cosmos.bcst.yahoo.com/up/ynews?ch=4226714&amp;cl=10851093&amp;lang=en" class="media media3s video"> Play Video </a><cite class="caption"><a href="https://news.yahoo.com/i/2523;_ylt=Ai0bnvO6JW.e9t9LNsWNBrL9xg8F">AP</a>  
- </cite>
+![AP](https://d.yimg.com/us.yimg.com/p/ap/20081126/videolthumb.0736cdc3ce535a3cb143c085c90a8d74.jpg)
+[Gunmen kill scores in India, hostages in hotels, Play Video](https://us.lrd.yahoo.com/_ylt=AhcW7kpjlCdDmhqchWs4Eub9xg8F/SIG=12fb1srbc/**https://cosmos.bcst.yahoo.com/up/ynews?ch=4226714&amp;cl=10851093&amp;lang=en)
 
 The attackers specifically targeted Britons and Americans, witnesses said. Fires burned and gunfire was heard for hours. Officials said at least 200 people were wounded.
 
@@ -72,4 +69,4 @@ Ten years later, in 2003, 52 people were killed in Mumbai bombings blamed on Mus
 
 Relations between Hindus, who make up more than 80 percent of India's 1 billion population, and Muslims, who make up about 14 percent, have sporadically erupted into bouts of sectarian violence since British-ruled India was split into independent India and Pakistan in 1947.
 
-_source: [Yahoo news](https://news.yahoo.com/s/ap/as_india_shooting#full)_
+_Source: [Yahoo news](https://news.yahoo.com/s/ap/as_india_shooting#full)_

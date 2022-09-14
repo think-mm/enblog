@@ -8,7 +8,7 @@ Published: 2008-11-05 09:51:29 +06:00
 Updated: 2009-07-09 18:21:32 +06:00
 OldURL: 2008/11/05/my-red-state-blues/
 ---
-### My Red State Blues!
+
 ~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
 This is a shame that I live in a 'Red State', which again will go for the Republican ticket. I went to the polling place at 6:30 am thinking that I will be done casting my vote in 30 minutes just like as I have done before. However, when we reached at the polling place I saw at least 250 people ahead of me standing in line. It took us (my wife and my college-going daughter) more than two and a half hour to cast the vote.
@@ -23,3 +23,7 @@ All indications are that Obama will do extremely well tonight.
 My lamentation is that I live in a Republican state (Red State) and I don't know how long will it take to make this state a Blue one.
 
 By the way, nationally, Obama is getting 51% of the vote and McCain is garnering 48% (with 1% of the total votes reporting).  Also, in Florida with only 3% precinct reporting, Obama is ahead with 143,000 more votes.  The election night is still young and things are looking good for Obama!  Mr. Sitangshu Guha should watch these developments with a wide eye!  After tonight, the jokes are going to be on him.
+
+
+-----
+*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
