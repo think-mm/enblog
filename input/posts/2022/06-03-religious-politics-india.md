@@ -5,8 +5,8 @@ Tags:
   - politics
   - secularism
   - Md Maruf Hasan
-Published: 2021-06-14 00:45:24 +06:00
-Updated: 2022-09-11 02:53:24 +06:00
+Published: 2022-06-14 00:45:24 -08:00
+Updated: 2022-09-11 02:53:24 -08:00
 ---
 
 A derogatory statement from India has recently come into spotlight in the international media as a hot potato of the world ,and Nupur Sharma, BJP Parliament member of India, claimed on her tweet that the context was during TV debate Mahadev, Hindu deity, was being disrespected and insulted. In that context, she responded using derogatory statement. Each party uses religious sentiments at the end of the day to win in the debate. 
@@ -25,9 +25,9 @@ The dirty politics using religion is still ongoing in 21st century. A 15-year En
 
 In fact, this problem needs to be solved by upcoming younger generation because we can no longer put our trust to these old hypocrites’ leaders who time and again use religion into politics. We need society based on truth, humanity, reasoning and science. Sadhguru recently gave the hint,  
 
-"Only if the younger generation does things that the parents never imagined possible, can a society evolve."
+> Only if the younger generation does things that the parents never imagined possible, can a society evolve.
 
-
-~ Guest Writer: **Md Maruf Hasan**
-*PhD candidate, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia 
-E-mail : marufenglish021 at gmail dot com*
+----
+~ Guest Writer: **Md Maruf Hasan**  
+*PhD candidate, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia  
+E-mail: marufenglish021 at gmail dot com*

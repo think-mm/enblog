@@ -7,11 +7,11 @@ Updated: 2008-11-03 04:57:14 +06:00
 OldURL: 2008/11/03/new-blog-feature-has-been-added-in-mukto-mona/
 ---
 
-_Speak your mind Bloggers!_
-
-**New Blog Feature has been added in our site**
 ~ [Avijit Roy](https://gold.mukto-mona.com/Articles/avijit/index.html)
 
+**Speak your mind Bloggers!**
+
+#### New Blog Feature has been added in our site
 
 We are proud to announce a neat little blog feature has been added in the English section of our site: [Mukto-Mona writers' corner](https://en.muktomona.com). At this moment we just allow the members and visitors to comment on several articles. Mukto-Mona  will eventually provide a fully-featured blogging add-ons that will enable like-minded members to create their very own online blogs within our site (without any need of an editor or webmaster). Besides the ongoing activities in [mukto-mona yahoogroups](https://groups.google.com/g/muktomona), It will give our members a place to post thoughts and ideas and it  will keep users returning to the community again and again, and advanced administration features allow forum owners and moderators to keep control and integrate blog into Mukto-Mona's existing look and feel.
 
@@ -20,6 +20,7 @@ Indeed, there are many blogs in the Net focusing on a particular or specific top
 Lastly, Readers are requested to keep their comments short.  Comments are naturally expected to be relevant to the topic of the specific article. 
 
 Happy Blogging!
+
 
 ----
 ~ Dr. Avijit Roy, _a computer professional and the Founding Moderator of Mukto-Mona writes from USA_

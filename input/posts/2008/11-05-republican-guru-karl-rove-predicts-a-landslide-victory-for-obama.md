@@ -12,6 +12,8 @@ OldURL: 2008/11/05/republican-guru-karl-rove-predicts-a-landslide-victory-for-ob
 
 Posted: 11:36 AM ET
 [CNN Ticker Producer Alexander Mooney](https://politicalticker.blogs.cnn.com/tag/cnn-ticker-producer-alexander-mooney)
+<br />
+
 ![cnnStoryPhotoBox](https://i2.cdn.turner.com/cnn/2008/images/11/04/art.rove.cnn.jpg)
 <br />
 Karl Rove's Electoral prediction

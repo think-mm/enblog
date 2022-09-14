@@ -11,4 +11,4 @@ Updated: 2022-09-12 01:00:00 -08:00
 
 ![](../../images/dup/Avijit_bday_2022.jpg)
 
-We remember you. You live in the mind of every muktomona alive in this world!
+We remember you. You live in the mind of every living muktomona in this world!

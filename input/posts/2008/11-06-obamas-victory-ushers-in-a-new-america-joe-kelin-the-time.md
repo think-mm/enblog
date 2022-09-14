@@ -10,9 +10,9 @@ Updated: 2008-11-06 22:06:56 +06:00
 OldURL: 2008/11/06/obamas-victory-ushers-in-a-new-america-joe-kelin-the-time/
 ---
 
-_"Those who say Obama won because of the financial crisis are telling only half the story. He won because he reacted to the crisis in a measured, mature way. He won because...."_
+> Those who say Obama won because of the financial crisis are telling only half the story. He won because he reacted to the crisis in a measured, mature way. He won because....
 
-Source: http://content.time.com/time/subscriber/article/0,33009,1856985,00.html
+Source: [Time](http://content.time.com/time/subscriber/article/0,33009,1856985,00.html)
 
 **By Joe Klein, The Time**
 Wed Nov 5, 2:00 pm ET

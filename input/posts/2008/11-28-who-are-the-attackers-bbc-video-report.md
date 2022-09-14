@@ -75,8 +75,8 @@ The most significant breakthroughs came from the Maharashtra police – both the
 <font face="Verdana">The Al-Qaeda linked LeT was founded in 1989 in the Kunar province of Afghanistan, and its fighters have been active in fighting Indian security forces in Kashmir since 1993. But security analyst Uday Bhaskar said "though it would be tempting to blame a Pakistan-based group, especially the LeT, we need to wait for some more evidence to establish the link".</font>
 
 <font face="Verdana">In the past, the LeT was alleged to have close links with Pakistan's ISI agency. But on the basis of what is known so far, none of the Indian security analysts believe that the Pakistan security establishment would have played a role in the organising the Mumbai operation. "But former ISI or even retired Pakistan Navy officials could have been involved with the LeT," said an analyst.</font>
- 
 
-Source : <a href="https://www.guardian.co.uk/world/2008/nov/27/mumbai-terror-attacks-india8">Guardian</a> and yahoonews
 
-Also see BBC latest report from <a href="https://cosmos.bcst.yahoo.com/up/player/popup/?rn=3906861&amp;cl=10869132&amp;ch=4226714&amp;src=news">here</a>
+_Source: [Guardian](https://www.guardian.co.uk/world/2008/nov/27/mumbai-terror-attacks-india8) and Yahoo news_
+
+Related: [BBC latest report](https://cosmos.bcst.yahoo.com/up/player/popup/?rn=3906861&amp;cl=10869132&amp;ch=4226714&amp;src=news)

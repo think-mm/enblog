@@ -8,6 +8,8 @@ Published: 2008-11-02 11:14:40 +06:00
 Updated: 2009-07-09 18:22:20 +06:00
 OldURL: 2008/11/02/the-prattle-in-cyber-forum-versus-ground-reality-for-an-obama-victory/
 ---
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
+
 
 As the Election Day nears in America, a few deshi Republicans smattered on about an upset McCain victory in a deshi forum (See one example here), which I frequent on a daily basis.  I was amused by their forecast that defies all the popular polls.  But that is their prerogatives.
 
@@ -32,4 +34,5 @@ Some analysts think that there could be a big margin in the electoral college vo
 We shall have to wait until the wee hours of November 5 to know the result.  It looks as if though that there may be a sea change in American politics.  The Reagan brand of ultraconservatism is about to exit from American politics to usher in a new era of liberalism, which might dominate the world politics going forward.
 
 
-_Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA_
+-----
+*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
