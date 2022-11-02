@@ -9,11 +9,10 @@ OldURL: 2009/12/30/calling-radicalization-instead-of-islamization-ignorance-or-p
 
 By Syed Kamran Mirza
 Mirza.syed@gmail.com
-December 30, 2009
 
 
-["Men never do evil so completely and cheerfully as when they do it from religious conviction."  (Blaise Pascal, mathematician, 1670)]
-
+*Blaise Pascal, mathematician, 1670*
+> Men never do evil so completely and cheerfully as when they do it from religious conviction.
 
 Over whelming ignorance of the western world about the roots of Islamic terrorism, erroneously calling radicalization instead of Islamization due to Political Correctness is ruining the success of war on terror. Political Correctness (PC) is indeed deadly for the western world! PC is killing the western civilization slowly but steadily. 
 
@@ -70,10 +69,9 @@ Proponents of American 'political correctness' do not know that, these Islamic j
 
 How can one cure a body by keeping the cancerous lesion inside the body? Nothing can change this precarious situation created by fanatical jihadi Muslims unless we realize the real problem (read Quran) and take care of it. 
 
-References:
-1.   The Holy Qur'an, Translated by A. Yousuf Ali, Published by Amana Corporation, Brentwood, Maryland, 1983. 
-
-2.   The Holy Qur'an, Translated by Dr. Muhammad Taqi-ud-Din Al-Hilali, Formerly   Professor of Islamic Faith and Teachings, Islamic University, Al-Madinah Al-Munawwarah and Dr. Muhammad Muhsin Khan, Formerly Director, University Hospital, Islamic University, Al-Madinah Al-Munawwarah. "The Noble Qur'an" – Published and freely distributed by His Excellency King Fahd Bin Abdul Aziz (Khademul Haramine Shareefine).
+**References**
+1. The Holy Qur'an, Translated by A. Yousuf Ali, Published by Amana Corporation, Brentwood, Maryland, 1983. 
+2. The Holy Qur'an, Translated by Dr. Muhammad Taqi-ud-Din Al-Hilali, Formerly   Professor of Islamic Faith and Teachings, Islamic University, Al-Madinah Al-Munawwarah and Dr. Muhammad Muhsin Khan, Formerly Director, University Hospital, Islamic University, Al-Madinah Al-Munawwarah. "The Noble Qur'an" – Published and freely distributed by His Excellency King Fahd Bin Abdul Aziz (Khademul Haramine Shareefine).
 
 
 

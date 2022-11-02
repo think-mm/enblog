@@ -1,21 +1,15 @@
 ---
-Title: Fresh Blood From an Old Wound (The NYT Op-Ed)
+Title: Fresh Blood From an Old Wound - The NYT Op-Ed
 Tags:
   - Jahed
-Published: 2008-12-08 08:55:51 +06:00
-Updated: 2008-12-08 08:55:51 +06:00
+Published: 2008-12-02 08:55:51 -08:00
+Updated: 2008-12-08 08:55:51 -08:00
 OldURL: 2008/12/08/fresh-blood-from-an-old-wound-the-nyt-op-ed/
 ---
 
+~ *PANKAJ MISHRA*, Op-Ed Contributor
 
-<p class="timestamp">December 2, 2008</p>
-<p class="kicker"><nyt_kicker>Op-Ed Contributor</nyt_kicker></p>
-
-<h1><nyt_headline version="1.0" type=" "> Fresh Blood From an Old Wound </nyt_headline></h1>
-<nyt_byline version="1.0" type=" ">
-<p class="byline">By PANKAJ MISHRA</p>
-
-</nyt_byline>MIDWAY through last week's murderous rampage in Mumbai, one of the suspected gunmen at the besieged Jewish center called a popular Indian TV channel. Speaking in Urdu (the primary language of Pakistan and many Indian Muslims), he ranted against the recent visit of an Israeli general to the Indian-ruled section of the Kashmir Valley. Referring to the Pakistan-backed insurgency in the valley, and the Indian military response to it, he asked, "Are you aware how many people have been killed in Kashmir?"
+MIDWAY through last week's murderous rampage in Mumbai, one of the suspected gunmen at the besieged Jewish center called a popular Indian TV channel. Speaking in Urdu (the primary language of Pakistan and many Indian Muslims), he ranted against the recent visit of an Israeli general to the Indian-ruled section of the Kashmir Valley. Referring to the Pakistan-backed insurgency in the valley, and the Indian military response to it, he asked, "Are you aware how many people have been killed in Kashmir?"
 
 In a separate phone call, another gunman invoked the oppression of Muslims by Hindu nationalists and the destruction of the Babri Mosque in Ayodhya in 1992. Such calls were the only occasions on which the militants, whom initial reports have tied to the Pakistani jihadist group Lashkar-e-Taiba, offered a likely motive for their indiscriminate slaughter. Their rhetoric seems all too familiar. Nevertheless, it shows how older political conflicts in South Asia have been rendered more noxious by the fallout from the "war on terror" and the rise of international jihadism.
 
@@ -49,6 +43,7 @@ As president, Mr. Obama could conceivably persuade India and Pakistan to see the
 
 "The people of India deeply love you," Prime Minister Singh said to President Bush in September while thanking him for the nuclear deal. Yet it is President-elect Obama who has the opportunity to create deeper and more enduring alliances for the United States in South Asia — and he should start with Kashmir.
 
-Original link: https://www.nytimes.com/2008/12/02/opinion/02mishra.html
+Source: [NYT Op Ed Article](https://www.nytimes.com/2008/12/02/opinion/02mishra.html)
 
-Pankaj Mishra is the author of "Temptations of the West: How to Be Modern in India, Pakistan, Tibet and Beyond."
+----
+*Pankaj Mishra is the author of "Temptations of the West: How to Be Modern in India, Pakistan, Tibet and Beyond."*

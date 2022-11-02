@@ -1,14 +1,14 @@
 ---
-Title: Facing the truth by Irfan Husain
+Title: Facing the truth
 Tags:
   - Jahed
 Published: 2008-12-08 08:46:12 +06:00
 Updated: 2008-12-08 08:46:12 +06:00
 OldURL: 2008/12/08/facing-the-truth-by-irfan-husain/
 ---
+~ **Irfan Husain**
 
-<font size="4"><strong>                                                                      Facing the truth</strong></font><center><font size="3"><strong> By Irfan Husain</strong></font></center>
-Even in my remote bit of paradise, news of distant disasters filters through: above the steady sound of waves breaking on the sandy beach in Sri Lanka, I was informed by several news channels about the sickening attacks on Mumbai. My Internet connection is erratic and slow, but nevertheless, I have been bombarded with emails, asking me for my take on this latest atrocity.
+*Even in my remote bit of paradise, news of distant disasters filters through: above the steady sound of waves breaking on the sandy beach in Sri Lanka, I was informed by several news channels about the sickening attacks on Mumbai. My Internet connection is erratic and slow, but nevertheless, I have been bombarded with emails, asking me for my take on this latest atrocity.*
 
 Over the last few years, I have travelled to several countries across four continents. Everywhere I go, I am asked why Pakistan is now the focal point of Islamic extremism and terrorism, and why successive governments have allowed this cancer to fester and grow. As a Pakistani, it is obviously embarrassing to be put on the spot, but I can see why people everywhere are concerned. In virtually every Islamic terrorist plot, whether it is successful or not, there is a Pakistani angle. Often, foreign terrorists have trained at camps in the tribal areas; others have been brainwashed in madressahs; and many more have been radicalised by the poisonous teachings of so-called religious leaders.
 
@@ -34,4 +34,4 @@ And while the diplomatic fallout from the Mumbai attack spreads and threatens to
 
 The world is naturally concerned about the danger posed by these terror groups to other countries. However, the biggest threat they pose is to Pakistan itself. Until Pakistanis grasp this brutal reality and muster up the resolve necessary to crush them, these killers will tear the country apart.
 
-Original SOURCE: <a href="https://www.dawn.com/weekly/mazdak/20080312.htm">https://www.dawn.com/weekly/mazdak/20080312.htm</a>
+Source: [post on dawn.com](https://www.dawn.com/weekly/mazdak/20080312.htm)
