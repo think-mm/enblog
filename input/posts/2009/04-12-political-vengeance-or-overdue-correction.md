@@ -11,7 +11,7 @@ Updated: 2009-07-28 00:48:47 +06:00
 OldURL: 2009/04/12/political-vengeance-or-overdue-correction/
 ---
 
-<p style="text-align: center;"><strong><span style="font-size: medium;">Mozammel H. Khan</span></strong></p>
+~ *[Mozammel H Khan](https://gold.mukto-mona.com/Articles/mozammel/index.html)* 
 
 THE cabinet in a recent decision has cancelled the allotment of BNP chairperson Khaleda Zia's house in the cantonment. In the words of the cabinet proceedings, the cancellation was "due to a number of anomalies regarding the allotment within the military zone."
 
@@ -40,4 +40,8 @@ Moreover, Khaleda Zia spent a staggering 80 lakh from the national exchequer to 
 The cantonment, not the property of any political group or the other, is a very sensitive area, and as such it is a norm that no one would conduct political activities staying inside it. In fact, during the last tenure of Khaleda Zia, even the then leader of the opposition and the former Prime Minister was barred from walking through it to visit injured Dr. Humayan Azad. That was not the end of it; a legal suit was filed against her for attempting to pass through the cantonment. Can any in the BNP camp explain why Sheikh Hasina was barred from passing through the cantonment when Khaleda Zia lives and conducts political activities from the same arena?
 
 The response of BNP and its sister organisations vis-à-vis the cancellation of the lease was very prompt, as expected. They have threatened to wage legal battle and street movement, which are within the purview of their legal and democratic rights. Many of them already claimed that 15 crores of people are with them in their battle to reverse the cabinet decision. However, only time will tell how much they will be able to entice the citizens to take to the streets or bring them in tune with their battle to preserve the ownership of a nine-bigha palatial house for the BNP chairperson and her two sons, when they have another one-and-a-half bigha house in the posh area of the city.
-<h5>Dr. Mozammel H. Khan is the Convenor of the Canadian Committee for Human Rights and Democracy in Bangladesh.</h5>
+
+----
+*Dr. Mozammel H. Khan*
+- Convenor of the Canadian Committee for Human Rights and Democracy in Bangladesh
+- Can be reached at *mozammel.khan at sheridanc dot on dot ca*

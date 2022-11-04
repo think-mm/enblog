@@ -2,9 +2,7 @@
 Title: Call for changes, BNP's debacle and the peoples' triumph
 Tags:
   - politics
-  - bangladesh
-  - election 2008
-  - bnp's debacle
+  - bd election 2008
   - Anwarul Kabir
 Published: 2009-01-06 10:08:19 +06:00
 Updated: 2009-07-21 20:29:55 +06:00

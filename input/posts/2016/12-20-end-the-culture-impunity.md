@@ -1,22 +1,8 @@
 ---
 Title: End the culture of impunity
 Tags:
-  - politics
-  - religion
-  - culture
-  - philosophy
-  - international
   - human rights
-  - terrorism
-  - bangalee freethinker
-  - society
-  - literature
-  - free speech
   - bangladeshi bloggers
-  - freethinking
-  - history
-  - secularism
-  - freedom of expression
   - Tonoy Emroz
 Published: 2016-12-20 09:23:18 +06:00
 Updated: 2016-12-21 14:45:20 +06:00

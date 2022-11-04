@@ -33,6 +33,11 @@ No matter what name or names these mindless Islamic terrorists do use—there ul
 This is only a part of larger worldwide declared jihadi programs by OBL—in disguise of various Islamic names, which westerners utterly fail to understand. The sooner this poor world recognizes this dangerous monster of Islamic jihad in disguise of  so called "radical Islamic ideology" of this century, the better and safer will be this poor world and it's inhabitants—the civilized mankind. Surely, our hard earned civilization is under a big threat from these mindless Islamic terrorists!
 
 -----
-*Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at mirza.syed at gmail dot com*
+*Syed Kamran Mirza*
+- Born in a Muslim family of Bangladesh
+- After having Ph.D. in Biological science he worked as a teacher in one of the reputed Universities in Bangladesh for a period of 12 years, now lives in USA
+- Author of the book, "Roots of Islamic Terrorism" published in 2004
+- Published more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals
+- Can be reached at *mirza.syed at gmail dot com*
 
 [this post on internet archive for mm enblog](https://web.archive.org/web/20191030045403/https://enblog.mukto-mona.com/2008/12/02/bombay-mumbai-episodes-are-the-vivid-examples-of-pure-mindless-terrorism)

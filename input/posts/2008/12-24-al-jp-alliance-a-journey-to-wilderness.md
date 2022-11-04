@@ -9,9 +9,7 @@ Updated: 2009-07-28 00:48:18 +06:00
 OldURL: 2008/12/24/al-jp-alliance-a-journey-to-wilderness/
 ---
 
-
-<p align="center" style="line-height: 200%; text-align: center" class="MsoNormal"><font size="5" color="#008000">AL-JP alliance: a journey to wilderness</font></p>
-<p align="center" style="text-align: center" class="MsoNormal"><em><span style="font-size: 14pt"><a href="https://gold.mukto-mona.com/Articles/mozammel/index.html">Mozammel H. Khan</a></span></em></p>
+~ *[Mozammel H Khan](https://gold.mukto-mona.com/Articles/mozammel/index.html)* 
 
 <p class="NoSpacing"><span style="font-size: 12pt; font-family: Verdana">Since its inception some sixty years ago, the Awami League (AL) has lost more elections than it has won. Nevertheless, in many respects, the party has steadfastly occupied a high moral ground vis-à-vis its political rivals. Any act that gives rise to any ambiguity to its adherence to the values responsible for creation of its higher moral ground creates an inerasable blemish on its portrait. Two such acts in the past for which AL has still to defend itself happened around twelve years apart. The first one happened, probably in 1994, when Sheikh Hasina as the leader of the official opposition in the parliament shared the same dais with the leader of the Jamati Islami parliamentary chief Matiur Rahman Nizami to place the demand for the introduction of the Caretaker Government system in the constitution in the aftermath of the infamous Magura by-election. The second incident was the AL's pact with the Khelafat Majlish right before the abandoned January 22, 2007 election.   </span></p>
 
@@ -23,5 +21,8 @@ OldURL: 2008/12/24/al-jp-alliance-a-journey-to-wilderness/
 
 <p class="NoSpacing"><span style="font-size: 12pt; font-family: Verdana">If the AL-JP alliance survives by the time of the final withdrawal of the nomination papers, three probable scenarios could emerge on the Election Day. In the first scenario, AL and its 14 party partners win at least 150, without any potential support from JP, of the 250 seats they are contesting for. This would be the best possible outcome for the AL, and more so for the survival of its supreme leadership. In the second scenario, they win a majority that includes 20 or so seats of JP (it won only 14 in the last election), mainly from its own bastion of support. This would be the most desirable outcome for H M Ershad which would put him in the driver seat of the next government. In that likelihood, the survival of the future government will depend on the mercy of the JP Chief, whether he, once again, occupies the residence of the Bangabhaban or not. The third and the most dreadful scenario would emerge if the so-called 'great alliance' fails to win the absolute majority as because the AL sacrificed 30 or so winnable seats to JP (it may not win any of them), the country returns back to square one and the AL's journey ends in wilderness.   </span></p>
 
-<hr />
-<em><span style="font-size: 12pt; font-family: Times New Roman">Dr. Mozammel H. Khan is the</span><span style="font-size: 12pt; font-family: Times New Roman" lang="EN-CA"> Convenor</span><span style="font-size: 12pt; font-family: Times New Roman"> of the Canadian Committee for Human Rights and Democracy in Bangladesh. He can be reached at : <a href="mailto:mozammel.khan@sheridanc.on.ca">mozammel.khan@sheridanc.on.ca</a>                 </span></em>
+
+----
+*Dr. Mozammel H. Khan*
+- Convenor of the Canadian Committee for Human Rights and Democracy in Bangladesh
+- Can be reached at *mozammel.khan at sheridanc dot on dot ca*

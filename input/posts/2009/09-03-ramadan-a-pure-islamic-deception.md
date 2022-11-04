@@ -1,13 +1,8 @@
 ---
-Title: Ramadan' a pure Islamic deception!
+Title: Ramadan is a pure Islamic deception
 Tags:
-  - bangladesh
   - islam
   - ramadan
-  - religion
-  - culture
-  - celebration
-  - society
   - Syed Kamran Mirza
 Published: 2009-09-03 08:03:20 +06:00
 Updated: 2009-09-03 08:03:20 +06:00

@@ -10,7 +10,7 @@ Updated: 2020-07-24 04:05:30 +06:00
 OldURL: 2020/07/24/to-mark-zuckerberg/
 ---
 
-<strong>By Riaz Osmani</strong>
+~ *Riaz Osmani*
 
 This article is aimed at Mark Zuckerberg as well as the Facebook authority in general. I wish to highlight the fact that Facebook has been knowingly or unknowingly deactivating accounts of numerous atheists, ex-Muslims and freethinkers in Bangladesh. It is conceivable that a similar situation exists in other Muslim majority countries. Facebook has become almost indispensable for the young and tech savvy population of Bangladesh, due to the availability of cheap smartphones and the ability to post and comment in the Bangla language. This has given rise to a vibrant online world in the country, where people can now connect and converse in a way that was never possible.
 

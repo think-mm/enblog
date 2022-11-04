@@ -1,12 +1,7 @@
 ---
 Title: The Trial We are Waiting For
 Tags:
-  - bangladesh
-  - jamat
-  - trial
-  - war crimes
-  - culture
-  - liberation war
+  - liberation war crime trial
   - Mukto-Mona Editor
 Published: 2009-01-16 01:21:44 +06:00
 Updated: 2009-01-16 01:22:25 +06:00
@@ -14,7 +9,6 @@ OldURL: 2009/01/16/the-trial-we-are-waiting-for/
 ---
 
 
-<h2 align="center"><span style="font-weight: 400"><span class="style128"><font color="#008000">The Trial We are Waiting For</font></span></span></h2>
 <p align="left">
 <h3 align="center"><font size="5" color="#000080"><strong style="font-weight: 400">Julfikar Ali Manik</strong></font></h3>
 <p align="center" class="style104">Photos: <strong>Zahedul I Khan</strong></p>

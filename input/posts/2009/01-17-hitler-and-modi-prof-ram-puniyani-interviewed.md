@@ -1,25 +1,15 @@
 ---
-Title: Hitler and Modi"-Prof Ram Puniyani Interviewed
+Title: Hitler and Modi - Prof Ram Puniyani Interviewed
 Tags:
   - india
-  - secular
-  - hitler
-  - modi
-  - hindutva
-  - 
-  - politics
-  - religion
-  - culture
-  - international
   - Mukto-Mona Editor
 Published: 2009-01-17 23:30:54 +06:00
 Updated: 2009-01-18 10:55:13 +06:00
 OldURL: 2009/01/17/hitler-and-modi-prof-ram-puniyani-interviewed/
 ---
 
+~ *[Biplab Pal](https://gold.mukto-mona.com/Articles/biplab_pal/index.html)*
 
-<p align="center"><font size="5" color="#008000">"Hitler and Modi"-Prof Ram Puniyani Interviewed</font></p>
-<p align="center"><font size="5"><a href="https://gold.mukto-mona.com/Articles/biplab_pal/index.html">Biplab pal</a></font></p>
 <font face="Verdana">During 1927-1933 in Gemany, capitalists wanted Hitler to rise in power because it seemed nobody except Hitler could give that kind of strong leadership. Recently in India, we saw Ambanis, Tatas were all in praise for Modi to make him prime minister of India because Modi is outperforming other chief Ministers in industrial development. However, this also happened to be a very well known trademark in Fascist history that Fascism rise to power with promise of faster development. </font>
 
 <font face="Verdana">Prof Puniyani recently wrote an artice on the same topic and therefore, I decided to interview on the same to illuminate our readers on danger of Hindu Fascism. However, I also think, while blaming Hitler and Modi, we also forget pathetic failure of the leftists in both communal and development front which paved the way for Fascism more easily. We discussed this interesting point as well. </font>
@@ -53,4 +43,10 @@ OldURL: 2009/01/17/hitler-and-modi-prof-ram-puniyani-interviewed/
 <param name="_cx" value="11113"></param>
 <param name="_cy" value="1191"></param></object></p>
 <p align="left"><font face="Verdana">If you cant listen (especially Motzilla Firefox users) automatically, please <a href="https://www.esnips.com/doc/4c712c47-eb9a-47a8-b2c4-cbbe25aef5ea/Hitler--Modi-Prof-Ram-Puniyani-Interviewed">click on this link</a> for the unembeded audio.  </font></p>
-<p align="left"><font face="Verdana">Biplab</font></p>
+
+-----
+*Dr. Biplab Pal*
+- A physicist writing from Washington DC
+- Can be reached at *biplabpal2000 at yahoo dot com*
+
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191027015131/https://enblog.mukto-mona.com/2008/12/30/birth-of-a-new-bangladesh-joy-bangla)

@@ -1,13 +1,8 @@
 ---
 Title: Israel's War Crimes and "Change we can believe in
 Tags:
-  - israel
-  - palestine
-  - conflict
-  - politics
-  - international
+  - conflict palestinian-israel
   - human rights
-  - terrorism
   - Mukto-Mona Editor
 Published: 2009-01-15 23:00:45 +06:00
 Updated: 2009-01-15 23:09:55 +06:00

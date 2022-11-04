@@ -224,12 +224,4 @@ References
       https://97.74.65.51/readArticle.aspx?ARTID=297 (Last accessed Apr. 19 / 2010)
 
 
-
-
-
-
-
 Author can be contacted at counter.jihad@yahoo.co.uk
-
-
-

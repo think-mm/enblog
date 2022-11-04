@@ -1,9 +1,7 @@
 ---
 Title: How would Khaleda Zia react to peoples verdict?
 Tags:
-  - bangladesh
-  - election
-  - politics
+  - bd election 2008
   - A. H. Jaffor Ullah
 Published: 2008-12-30 09:30:45 +06:00
 Updated: 2009-07-09 18:18:33 +06:00

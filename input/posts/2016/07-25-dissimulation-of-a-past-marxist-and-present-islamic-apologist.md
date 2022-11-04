@@ -7,9 +7,7 @@ Updated: 2016-07-25 00:03:13 +06:00
 OldURL: 2016/07/25/dissimulation-of-a-past-marxist-and-present-islamic-apologist/
 ---
 
-                    Dissimulation of a past Marxist and present Islamic apologist
-
-                                                                                                             Mahfuzur Rahman
+~ *Mahfuzur Rahman*
 
 These are distressing times. Never before has the country seen killings by Islamist terrorists on the present scale. There is a sense of helplessness among the population, the like of which we have not witnessed before. How far will the killings go is a nagging question that exercises many minds today. There is a lingering sense that the government of the country seems to have lost control of the situation. There is a sense of loss of direction. Talks of existential questions concerning the country are not uncommon. 
     The problem is hugely complex but Islam lies at its core.  The terrorist who explode bombs to  kill themselves as well as others,  the murderers who wield the machete to murder free thinkers and members of other religions, do it in the name of Islam. In more recent times,  foreigners  have been considered fair target, if they happen to be infidels. And yet among most Muslims acts of militant atrocity are generally followed by beating of the breast, accompanied by a repetition of the old jargon: Islam is a religion of peace. That normally ends further discussion on the role of Islam. Anything that sounds like critical inquiry into possible sources of violence in Islam is considered an infringement of the "religious sentiment of the people."  People have been sent to jail for the offence and sterner punishments have been demanded.  

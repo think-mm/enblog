@@ -1,14 +1,7 @@
 ---
-Title: Muhammad had Violated the Qur'an--2
+Title: Muhammad had Violated the Quran--2
 Tags:
-  - islam
-  - muhammad
   - koran
-  - koran
-  - violation of koran
-  - religion
-  - philosophy
-  - society
   - Abul Kasem
 Published: 2009-09-29 04:37:40 +06:00
 Updated: 2009-10-06 21:44:03 +06:00

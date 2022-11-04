@@ -2,7 +2,7 @@
 Title: Dr. Nabi, a noted MM Member wins reelection
 Lead: Dr. Nabi wins reelection in Plainsboro, NJ
 Tags:
-  - politics
+  - us election
   - Jahed Ahmed
 Published: 2008-11-11 18:41:20 +06:00
 Updated: 2008-11-14 20:57:08 +06:00
@@ -16,5 +16,3 @@ Dr. Nuran Nabi, a former scientist and a noted secular Bangladeshi-American, has
 Dr. Nabi has been a long time member and well-wisher of muktomona. We take delight in his victory.
 
 Congratulations, Dr. Nabi!
-
-_Farid, on behalf of Jahed Ahmed_

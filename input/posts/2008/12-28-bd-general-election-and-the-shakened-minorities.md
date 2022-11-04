@@ -1,7 +1,7 @@
 ---
 Title: BD General Election and the shakened Minorities
 Tags:
-  - election
+  - bd election 2008
   - human rights
   - Ajoy Roy
 Published: 2008-12-28 14:43:26 +06:00

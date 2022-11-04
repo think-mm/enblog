@@ -2,18 +2,13 @@
 Title: Punishment of Apostate in Islam is Killing by Beheading!
 Tags:
   - religion
-  - philosophy
   - human rights
   - terrorism
   - Syed Kamran Mirza
-Published: 2012-03-30 10:48:53 +06:00
+Published: 2012-03-25 13:48:53 -05:00
 Updated: 2012-03-30 11:03:33 +06:00
 OldURL: 2012/03/30/punishment-of-apostate-in-islam-is-killing-by-beheading/
 ---
-
-<strong><a href="mailto:Skmirza.mirza@gmail.com">Skmirza.mirza@gmail.com</a></strong>
-
-<strong>March 25, 2012</strong>
 
 In Islam,<strong> </strong><strong>"Apostasy" </strong>(Arabic: <em>irtidad or ridda or Murtadd</em>) means the rejection of <strong>Islam </strong>in word or deed by a person who has been a <strong>Muslim. </strong> An apostate in any pure Islamic country is deserved to be killed, period. Any Muslim who deny this fact is stealthily engaged in <em>Taqiyya</em> (lie and deceptions) or, utterly ignorant about real Islam. Islam is the most intolerant religion on Earth. There are plenty of glaring examples or records of utter intolerance and intimidations from the past and present history of Islam. And this intolerance is rooted in the Quran and Sunnah (Ahadiths-traditions of Prophet Muhammad) and also by the deeds and practices of the early disciples of Prophet Muhammad. In all Sharia-ruled pure Islamic countries such as Saudi  Arabia, Iran, Iraq, Yemen, Kuwait, Sudan etc, all apostates are punished by death penalty.
 
@@ -431,3 +426,11 @@ Contrary to all the platitudes, <em>Taqiyya</em>, disinformation, misinformation
 Document Source: <a href="https://atlasshrugs2000.typepad.com/atlas_shrugs/2009/09/rifqa-bary-death-threat-exhibit-a-the-document-fatwa-death-penalty-for-apostasy.html" target="_blank">https://atlasshrugs2000.typepad.com/atlas_shrugs/2009/09/rifqa-bary-death-threat-exhibit-a-the-document-fatwa-death-penalty-for-apostasy.html</a>
 
 6.  Some glaring examples of modern day incidences of punishing an Apostate in the 21<sup>st</sup> Century world.
+
+-----
+*Syed Kamran Mirza*
+- Born in a Muslim family of Bangladesh
+- After having Ph.D. in Biological science he worked as a teacher in one of the reputed Universities in Bangladesh for a period of 12 years, now lives in USA
+- Author of the book, "Roots of Islamic Terrorism" published in 2004
+- Published more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals
+- Can be reached at *mirza.syed at gmail dot com*

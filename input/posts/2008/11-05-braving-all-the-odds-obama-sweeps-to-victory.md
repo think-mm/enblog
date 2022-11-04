@@ -11,7 +11,7 @@ OldURL: 2008/11/05/braving-all-the-odds-obama-sweeps-to-victory/
 
 ~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
-![](../../images/2008/11-05-obama_win-yahoo_img.jpg)
+![](../../images/2008/11-05_obama-win-yahoo-img.jpg)
 
 Conquering some insurmountable odds Obama beat Senator John McCain on November 4, 2008.  It was definitely a history making event in America.  Barack Obama, a virtually unknown entity in American politics who came to Washington in 2006 as a senator, had rapidly ascended to the highest position beating all the odds.  He would be sworn as the 44th president of America on January 20, 2009.
 

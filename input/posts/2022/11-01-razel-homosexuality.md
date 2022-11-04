@@ -8,6 +8,8 @@ Published: 2022-11-01 17:27:28 -08:00
 Updated: 2022-11-02 17:10:24 -08:00
 ---
 
+~ *Md Abdul Bachith Razel*
+
 The words homosexuality, transsexualism, bisexuality, heterosexuality were never coined in the Western world. On the contrary, since the birth of ancient civilization in the history of all parts of the world, Greek, Native American, Chinese, Aztex, Mayan, Egyptian civilization, the life of pagan history, the history of Arab tribes, Persian literature, in the poetic literature of the subcontinent, the prevalence of different aspects of sexuality is seen everywhere. It was not until the 19th century that the powers that be in the Western world, in pursuit of their own political interests, introduced laws and customs to limit human behavior to a limited set of rules, with the aim to subject people to certain ways of life and to constrict and control them. 
 
 This can give guarantees to the powerful people to gain political and economic interests. Michel Foucault developed his research in three books on the history of sexuality. In article 37, Bangladesh is part of the decision of the British Empire. India is one of our neighbors that has come out of the influence of this imperialist history and abandoned article 37 of the colonial law. More recently, Taiwan and Bhutan have also legalized consensual homosexuality. It can be noted that pedophilia or sex with children and forced rape are not encouraged and homosexuality cannot be blamed for it. For example, no one in Bangladesh blames heterosexuality for all brutal rape, violence against each other, dowry, cheating in the name of marriage and sexual harassment. 
@@ -34,6 +36,6 @@ In our conservative society, which lacks education in sexual awareness, homosexu
 
 
 ----
-~ Guest Writer: **Razel**  
+~ Guest Writer: **Md Abdul Bachith Razel**  
 *Volunteer
 (Aiming to prevent the isolation and suicide of young LGBT+ people, aged 14 to 25, victims of homophobia or transphobia and in a situation of family breakdown)*

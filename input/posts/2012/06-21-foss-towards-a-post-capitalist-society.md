@@ -4,17 +4,17 @@ Tags:
   - politics
   - science
   - phylosophy
-  - society
   - software
   - economics
   - open source software
   - intellectual property
-  - culture
   - farhad
 Published: 2012-06-21 15:43:42 +06:00
 Updated: 2012-06-21 15:56:52 +06:00
 OldURL: 2012/06/21/foss-towards-a-post-capitalist-society/
 ---
+
+~ *Farhad*
 
 The software industry plays a major economic, social, and political role in the Information Age. It at once enables the freeing up and the corporate restriction of digital resources and careful restriction of digital information itself has become a rather lucrative industry. As our capitalist society moves into the Information Age, we begin to see how the owners of means of production can put software to use in restricting who can access and what can be done with digital information. So far, advanced capitalism, whether by chance or design, has fostered the widespread ontological belief that ideas can be expressed clearly and definitively in language and exchanged like any other commodity on the free market. This false ontology allows the mega-corporations not only to make profit selling back to culture its own excrement, but also to perpetuate themselves by convincing the working classes that even their ideas do not belong to them.
 
@@ -42,10 +42,8 @@ At the same time, there is something in capital's inner dynamic that works to th
 
 Nevertheless, allow me to ponder the meaning of this new mentality of networked commons. A network of enthusiastic individuals stands behind the production of program code, text, pictures and video. The F/OSS movement shifted from compulsory labor to free collaboration. It has already made its mark through well-developed, free alternatives to the products of monopolistic Microsoft. Many of today's public sector organizations choose F/OSS. So download Firefox as your browser instead of Microsoft Explorer, the email program Thunderbird instead of Microsoft Outlook, word processing and spreadsheet programs with Open Office in preference to Microsoft Office, and Wikipedia as your free encyclopedia. And with iTunes and its descendents, who really needs to physically own music or video CDs? A nominal rental fee should be sufficient. Free, public-access broadband is already being rolled out. Databases will replace libraries once search engines like Google have scanned copious quantities of old books. Bookshelves, CD shelves, and DVD collections will become relics of the past – fixation that will baffle our children.
 
-
 It is true that traditionally the governing powers have always sought to preserve their authority. In a similar way, the capitalists of the market economy attempt to block the production of "pirate" copies of AIDS medicines, Chinese Rolex watches and Hollywood films on DVD. However, today the customer is always right, the consumer sits firmly in the driver's seat, and the society hastens to the side of its rights – hungry citizens. There is democratizing effect when demand takes power. Consumer can penalize exploitative capitalist and shareholders can pull out of unethical ventures. Similarly, more and more often today, the PC and the mobile phone are the so-called modes of production, favoring small, dynamic enterprises over traditional industry leaders. The latter become too unwieldy, tripping over themselves in an effort to keep pace with rapidly unfolding diversity, innovation, relocation, and the dynamic of global communication.
 
 In the past transitions from one society to another, humans had more or less the possibility to see in practice the forms of the new society. Feudal economic relations developed within ancient slavery, capitalist relations within the feudal society. F/OSS could represent in some years also a kind of "model", even if partial, of a post-capitalist society, where the concepts of equality and freedom are reinforced. F/OSS proves, in practical terms, that humans can produce the most modern and advanced products without merchant relations and without a State. For the moment, only a very small minority of the world population knows what is F/OSS, even in the most developed countries. It can hardly play the role yet. But remember, Marx reflected on capitalist industrialism while living within the confines of English agrarian society. Who would have thought that the country's hundred or so factories would precipitate global industrialism?
 
 On Marx's gravestone one can read: "Philosophers have interpreted the world in different ways. The point is however to change it". F/OSS programmers are changing the world. Sooner or later they will need to have a general philosophy to understand all the dimensions and perspectives of their actions.
-

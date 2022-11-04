@@ -1,9 +1,7 @@
 ---
 Title: Gaza is Sinking in a River of Blood
 Tags:
-  - israel
-  - international
-  - human rights
+  - conflict palestinian-israel
   - Mukto-Mona Editor
 Published: 2009-01-13 12:11:01 +06:00
 Updated: 2009-01-13 12:11:01 +06:00

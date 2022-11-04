@@ -1,10 +1,7 @@
 ---
 Title: MALAYSIAN MUSLIM ALLAH
 Tags:
-  - religion
-  - culture
-  - mukto-mona
-  - bangalee freethinker
+  - malaysia
   - Bhaskar
 Published: 2014-01-03 17:35:20 +06:00
 Updated: 2014-01-03 20:32:08 +06:00
@@ -22,5 +19,3 @@ The Malaysian <em>Ulema</em> have again proved that cultural slavery of Arabia i
 The Prime Minister of Malaysia, Najib Razak is allegely behind all this to divert majority people's anger for his subsidy cuts which are likely to put financial pressure on common citizen. In all Islamic countries, Islam has been serving the vested interests of ruling class since the death of Prophet.
 
 I, under no situation, am endorsing Christianity here.
-
-

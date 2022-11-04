@@ -1,10 +1,7 @@
 ---
 Title: Our past ceremonial presidents and hope for the next
 Tags:
-  - politics
-  - bangladesh
-  - zillur rahman
-  - election 2009
+  - bd election 2008
   - hasina
   - Anwarul Kabir
 Published: 2009-01-15 17:56:22 +06:00

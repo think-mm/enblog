@@ -11,6 +11,8 @@ Updated: 2009-07-31 21:38:40 +06:00
 OldURL: 2009/07/28/tajuddin-ahmed-a-rare-breed-of-patriot/
 ---
 
+~ *[Mozammel H Khan](https://gold.mukto-mona.com/Articles/mozammel/index.html)* 
+
 <p class="NoSpacing" align="justify"> </p>
 <p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;"><img src="https://www.numismondo.com/pm/bgd/bgd%20PM%20Tajuddin%20Ahmed.jpg" alt="" /></span></p>
 <p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;">Two reputed constitutional lawyers of Canada while analyzing the legalities of the possible separation of Quebec from Canada observed, "after 1945 Bangladesh was the only country of the world that successfully seceded from Pakistani State through an armed struggle. However, the principal strength of that struggle came from the unparallel election victory of Awami League, led by its charismatic leader Sheikh Mujibur Rahman. The popular support their leader enjoyed was unheard of in a Western democracy."</span></p>
@@ -29,5 +31,8 @@ OldURL: 2009/07/28/tajuddin-ahmed-a-rare-breed-of-patriot/
 <p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;">On November 23, 1971, before the all-out attack by <em>Muktibahini</em>, Tajuddin Ahmed delivered a defining speech to the nation through Swadhin Bangla Betar Kendra that reflected no rhetoric nor any uncertain promise, but reflected the determined self-conviction of a leader to his suffering but determined people. In his address he reiterated, "in exchange of our tears and blood, we are fighting for our freedom, the day of that final destination is very much within our reach. But we have to sacrifice more lives; we have to suffer more. The denotation of independence is more deep and meaningful. The essence of freedom is related to the price we pay for it during war and how we use them during the time of peace. As we eliminate our enemies in the battlefield, we have to pledge to build a society that befits the blood of our martyrs."</span></p>
 <p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;"> </span></p>
 <p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;">The dream that Tajuddin Ahmed dreamt during the most crucial crossroad of our history never crystallized into reality. As a humble 'engineer' of our nation, Tajuddin became a forgotten man even when Bangabandhu was in the helm of the state. The conspirators were finally successful in creating a rift between the 'architect' and the 'engineer'. The results were the multiple catastrophes that engulfed our nation. During the nine months of bloody struggle for our existence, Tajuddin was the nucleus of most everything. He performed his responsibilities with utmost devotion and unbounded honesty. But this modest human being never disclosed anything about his own role. As a result, the many untold stories of our liberation war will remain unknown forever. I am not questioning the distortion of history for around three decades. But in the last government of AL and in the last six months of its current tenure, did we do enough to offer the deserving recognition to the memory of our first Prime Minister, the man who showed our nation a rare breed of patriotism? I would have been happier to receive an affirmative answer to my skepticism.</span></p>
-<p class="NoSpacing" align="justify"> </p>
-<p class="NoSpacing" align="justify"><span style="font-size: medium; font-family: Garamond;"><em>Dr. Mozammel H. Khan is the<span lang="EN-CA"> Convenor</span> of the Canadian Committee for Human Rights and Democracy in Bangladesh.</em></span></p>
+
+----
+*Dr. Mozammel H. Khan*
+- Convenor of the Canadian Committee for Human Rights and Democracy in Bangladesh
+- Can be reached at *mozammel.khan at sheridanc dot on dot ca*

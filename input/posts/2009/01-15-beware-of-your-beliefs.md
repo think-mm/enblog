@@ -1,13 +1,7 @@
 ---
 Title: Beware of Your Beliefs
 Tags:
-  - israel
-  - palestine
-  - conflict
-  - jew
-  - muslims
-  - politics
-  - culture
+  - conflict palestinian-israel
   - human rights
   - Mukto-Mona Editor
 Published: 2009-01-15 22:28:43 +06:00

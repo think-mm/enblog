@@ -1,20 +1,16 @@
 ---
-Title: A Guide to the Qur'anic Contradictions (Part-3)
+Title: A Guide to the Quranic Contradictions Part-3
 Tags:
-  - islam
-  - religion
-  - koranic contradictions
-  - culture
-  - philosophy
+  - koran
   - Abul Kasem
 Published: 2009-01-18 10:29:01 +06:00
 Updated: 2009-05-17 09:40:37 +06:00
 OldURL: 2009/01/18/a-guide-to-the-qur%e2%80%99anic-contradictions-part-3/
 ---
 
-<h2 class="MsoTitle"><span style="COLOR: #008000; FONT-FAMILY: ">A Guide to the Qur'anic Contradictions (Part-3)</span></h2>
-<p class="MsoNormal" style="text-align: center" align="center"><span lang="EN-AU"><span style="FONT-SIZE: medium; FONT-FAMILY: "><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></span></span></p>
-<p class="MsoNormal"> After <a href="https://enblog.muktomona.com/?p=73">2nd Part</a></p>
+~ *[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html) 
+
+<p class="MsoNormal"> After <a href="https://en.muktomona.com/posts/2009/01-12-a-guide-to-the-koranic-contradictions-part-2">2nd Part</a></p>
 
 <h2 style="margin-top: 0pt"><span style="COLOR: #800080; FONT-FAMILY: ">Sura 5: al‑Maeda (The Table Spread)</span></h2>
 <p class="MsoNormal"><span style="FONT-FAMILY: Verdana"><strong>5:5
@@ -224,6 +220,13 @@ OldURL: 2009/01/18/a-guide-to-the-qur%e2%80%99anic-contradictions-part-3/
 <p class="MsoNormal" align="right"><strong><span style="FONT-FAMILY: Verdana">To be continued in <a href="https://enblog.muktomona.com/?p=89">part 4</a>.</span></strong></p>
 <p class="MsoNormal"> </p>
 
-<hr />
-<p class="MsoNormal"> </p>
-<p class="MsoNormal"><em><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></em> is a Bengali freethinker and is a teacher by profession. He has contributed in <a href="https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689/ref=pd_bbs_sr_1/104-8919824-5747905?ie=UTF8&amp;s=books&amp;qid=1176351399&amp;sr=1-1" target="_blank"><em>Leaving Islam - Apostates Speak Out</em></a><em> </em>and<em> <a href="https://www.amazon.com/gp/product/1933146192/sr=8-1/qid=1144991009/ref=pd_bbs_1/002-2152279-3237646?_encoding=UTF8" target="_blank">Beyond Jihad - Critical Voices from Inside</a></em>. He has also written extensively on Islam in various websites and is the author of several e-Books including: <em>A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam</em>. Mr. Kasem leaves in Sydney, Australia. His latest contribution is in the book <em><a href="https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102">Why We left Islam</a></em>, edited by Susan Crimp et al.  He can be contacted at <a href="mailto:abul88@hotmail.com">abul88@hotmail.com</a> and <a href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a></p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)*
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam. Mr. Kasem leaves in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 
+
+- [this post on internet archive for mm enblog](https://web.archive.org/web/20191029075536/http://enblog.mukto-mona.com/2009/01/18/a-guide-to-the-qur%e2%80%99anic-contradictions-part-3)

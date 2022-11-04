@@ -133,7 +133,12 @@ It appears Maulana Asad has adopted the tried and tested method of Islamic trick
   
 
 ----
-*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html) is an Bengali freethinker and is a teacher by profession. He has contributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192). He has also written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam. Mr. Kasem leaves in Sydney, Australia. His latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.* He can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com*
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)*
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam. Mr. Kasem leaves in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com*
 
 
 - [Linked Article in Avijit Roy's comment](https://web.archive.org/web/20191024014031/https://mm-gold.azureedge.net/Articles/avijit/atma1.html)

@@ -2,13 +2,6 @@
 Title: Sayed Ashradul Islam - A leader worth remembering
 Tags:
   - politics
-  - religion
-  - bangladesh
-  - personality
-  - terrorism
-  - liberation war
-  - history
-  - secularism
   - Tonoy Emroz
 Published: 2019-01-09 02:44:47 +06:00
 Updated: 2019-01-09 02:50:11 +06:00

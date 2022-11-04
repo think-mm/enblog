@@ -1,15 +1,15 @@
 ---
 Title: Analysis of a terrorist in Gulsan incident -why our kids are vulnerable to radical preachers
 Tags:
-  - gulsan
-  - terrorism. bangladesh
-  - bangladesh
+  - terrorism
   - bangalee freethinker
   - Biplab Pal
 Published: 2016-07-03 10:47:23 +06:00
 Updated: 2016-07-03 10:47:23 +06:00
 OldURL: 2016/07/03/analysis-of-a-terrorist-in-gulsan-incident-why-our-kids-are-vulnerable-to-radical-preachers/
 ---
+
+~ *[Biplab Pal](https://gold.mukto-mona.com/Articles/biplab_pal/index.html)*
 
 I looked at the FB profile of one of the terrorists (Nirbas Islam) in Gulshan attack in Bangladesh.   Nirbas looks perfectly normal teenager coming from affluent family  and his profile shows no inclination that he is at all a radicalized religious youth. However, it is quite clear the guy had a deep interest in international politics. He shared a post, which was apparently made to protest against refugee policy of the Europe, describing how Europeans flooded to North Africa for safe shelter during second world war. There is no doubt, a kid like him was deeply influenced more by International politics and religion served him a purpose to the concerns he had for something he found unjust.
 
@@ -27,3 +27,11 @@ Nirbas, like many Muslims ( and many leftists) were only convinced of imperial d
 When kids like Nirbas turns to radical political ideology, I am not surprised. Most of the Muslims in South Asia hail radical preacher  Zakir Naik as a hero whose knowledge will not surpass that of a class 4-th grade student. For me that is the real concern when even highly educated Muslims are unable to comprehend unscrupulous nature of radical preaching because formal education failed to build a foundation of critical mind.
 
 Practically I don't see a solution to the problem of Islamic terrorism unless and until we all admit, we need to change our school education system for developing a more scientific and critical mind. Cry as much you want, speak as loud as you want, roar as thunder as you want against terrorism, denounce as hard as you can -but Islamic terror will only escalate. Unless we all understand, we are not doing a good job to develop critical, rational and scientific mind in schools and homes so that our kids are not vulnerable to radical preachers in the Internet. It is already late. There are too many radical preachers and millions of vulnerable kids getting ready to be next Jihadi John. None of us are safe.
+
+
+-----
+*Dr. Biplab Pal*
+- A physicist writing from Washington DC
+- Can be reached at *biplabpal2000 at yahoo dot com*
+
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191027015131/https://enblog.mukto-mona.com/2008/12/30/birth-of-a-new-bangladesh-joy-bangla)

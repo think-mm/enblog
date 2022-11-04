@@ -1,10 +1,8 @@
 ---
 Title: Some Odd Things Regarding BD Politics
 Tags:
-  - bangladesh
   - politics
   - election
-  - journalism
   - Etnesto Guenara
 Published: 2008-11-14 21:22:37 +06:00
 Updated: 2008-11-14 21:22:37 +06:00

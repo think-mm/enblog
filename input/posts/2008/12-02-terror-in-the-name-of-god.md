@@ -11,7 +11,6 @@ Updated: 2008-12-02 06:55:42 +06:00
 OldURL: 2008/12/02/terror-in-the-name-of-god/
 ---
 
-
 ~ *Yoginder Sikand*  
 
 *The Quran, Al-Hadid: 20*

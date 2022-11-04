@@ -1,7 +1,6 @@
 ---
 Title: WB Report on the Goodness of Qoumi Madrassahs
 Tags:
-  - international
   - secularism
 Published: 2009-06-06 08:37:22 +06:00
 Updated: 2009-07-21 21:26:12 +06:00

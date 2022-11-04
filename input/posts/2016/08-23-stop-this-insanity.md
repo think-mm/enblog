@@ -8,7 +8,7 @@ Updated: 2016-08-23 11:47:07 +06:00
 OldURL: 2016/08/23/stop-this-insanity/
 ---
 
-<strong>By: Kazi  Muinur Rahman</strong> 
+~ *Kazi  Muinur Rahman*
 
 Insanity is when you keep doing the same thing over and over again, but expecting 
 different outcomes. And the current state of affairs in Dhaka and Bangladesh, seem to make 
@@ -106,4 +106,3 @@ bodes ill because it means that these people really do not have a clue of what t
 So, please allow these people to talk and to engage. But at the same time — demonstrate that 
 threat of violence or violence should not be the primary factor for people to attain power. 
 When we can establish that people will feel safe and support the administration.  
-

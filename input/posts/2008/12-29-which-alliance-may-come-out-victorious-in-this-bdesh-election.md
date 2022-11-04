@@ -1,8 +1,7 @@
 ---
 Title: Which alliance may come out victorious in this B'desh election?
 Tags:
-  - election 2008
-  - politics
+  - bd election 2008
   - A. H. Jaffor Ullah
 Published: 2008-12-29 12:48:27 +06:00
 Updated: 2009-07-09 18:18:48 +06:00

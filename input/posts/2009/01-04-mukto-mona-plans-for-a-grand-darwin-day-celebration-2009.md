@@ -30,7 +30,7 @@ OldURL: 2009/01/04/mukto-mona-plans-for-a-grand-darwin-day-celebration-2009/
 
 <blockquote>
 <p align="left"><font face="Times New Roman"><strong><font color="#008080">Send your article at:</font> </strong><a href="mailto:muktomona@googlegroups.com"><font color="#0000cc">muktomona@googlegroups.com</font></a></font></p>
-<p align="left"><font face="Times New Roman"><font color="#008080"><strong>CC:</strong></font> <a href="mailto:mukto-mona-owner@yahoogroups.com"><font color="#0000cc">mukto-mona-owner@yahoogroups.com</font></a></font></p>
+
 <p align="left"><font color="#008080" face="Times New Roman"><strong>Deadline: </strong>February 10, 2009</font></p>
 <p align="left"><font color="#008080" face="Times New Roman">Please write "<strong>Article for Darwin Day 2009</strong>" in your email subject heading.</font></p>
 </blockquote>
@@ -40,7 +40,7 @@ OldURL: 2009/01/04/mukto-mona-plans-for-a-grand-darwin-day-celebration-2009/
 </table>
 <font face="Verdana">All over the world, more and more Humanist, Rationalist and Free thought groups as well as scientific communities are putting on events to celebrate 12 February, Darwin's birthday as 'Darwin Day'. This celebration of science and humanity, in honor of the scientist who perhaps more than any other has altered our understanding of the world and of ourselves, whose powerful explanation of the evolution of species made mythical deities redundant and design argument obsolete, is of  particular significance to all of us. The idea of Darwin Day as a secular celebration has been promoted by the Darwin Day Program, a non-profit organization dedicated to educational and social outreach activities aimed at widening understanding of topics related to evolution, and countering the impact of misinformation. Many ceremonies in our society are religious. But non-religious freethinkers like us celebrate various events too, and they prefer to do so in secular ceremonies that reflect their beliefs and values. Let Darwin Day be the part of our secular culture from now on. </font>
 
-<font face="Verdana">To commemorate this event on this very special year, we would like to request our members to send their articles for our special Darwin Day page which would be launched on this day. Please send in your articles (either in Bangla or in English) at <a href="mailto:muktomona@googlegroups.com"><font color="#0000cc" face="Arial">muktomona@googlegroups.com</font></a>  and give a CC at <a href="mailto:mukto-mona-owner@yahoogroups.com"><font color="#0000cc" face="Arial">mukto-mona-owner@yahoogroups.com</font></a> before Feb the 10th so that we have time to design the page in time for the celebration. Darwin Day is now becoming a major international celebration of science and humanity. Darwin Day should be viewed as an important positive opportunity to bring secular and humanist groups together in a way that improves their public visibility and strengthens their voice in the arena of ideas so they can better serve as an inspiration for the future. Celebrate with us, and let us plan for a GRAND celebration on the 12th February with you. </font>
+<font face="Verdana">To commemorate this event on this very special year, we would like to request our members to send their articles for our special Darwin Day page which would be launched on this day. Please send in your articles (either in Bangla or in English) at <a href="mailto:muktomona@googlegroups.com"><font color="#0000cc" face="Arial">muktomona@googlegroups.com</font></a>.com</font></a> before Feb the 10th so that we have time to design the page in time for the celebration. Darwin Day is now becoming a major international celebration of science and humanity. Darwin Day should be viewed as an important positive opportunity to bring secular and humanist groups together in a way that improves their public visibility and strengthens their voice in the arena of ideas so they can better serve as an inspiration for the future. Celebrate with us, and let us plan for a GRAND celebration on the 12th February with you. </font>
 
 <font face="Verdana">With thanks and best wishes, </font>
 
@@ -50,6 +50,8 @@ OldURL: 2009/01/04/mukto-mona-plans-for-a-grand-darwin-day-celebration-2009/
 
 <font face="Times New Roman"><strong>Related:</strong></font>
 <ul>
-	<li><font color="#0000cc" face="Arial"><a href="https://muktomona.com/Special_Event_/Darwin_day/index.htm">Mukto-Mona Celebrates Darwin Day</a></font></li>
-	<li><font face="Times New Roman"><a href="https://muktomona.com/feedback6.htm"><font color="#0000cc" face="Arial">Feedback from the Readers on previous Darwin day Celebration</font></a> </font></li>
+	<li><font color="#0000cc" face="Arial"><a href="https://gold.mukto-mona.com/Special_Event_/Darwin_day/index.html">Mukto-Mona Celebrates Darwin Day</a></font></li>
+
+  <!-- need to find correct URL for feedback6.htm -->
+	<li><font face="Times New Roman"><a href="https://gold.mukto-mona.com/feedback6.html"><font color="#0000cc" face="Arial">Feedback from the Readers on previous Darwin day Celebration</font></a> </font></li>
 </ul>

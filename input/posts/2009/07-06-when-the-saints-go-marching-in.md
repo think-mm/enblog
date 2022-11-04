@@ -1,12 +1,8 @@
 ---
 Title: When The Saints Go Marching In
 Tags:
-  - india
-  - hindutva
-  - hinduism
+  - india election 2009
   - bjp
-  - politics
-  - religion
   - Meera Nanda
 Published: 2009-07-06 23:53:59 +06:00
 Updated: 2009-09-07 08:22:35 +06:00

@@ -1,12 +1,9 @@
 ---
 Title: Iran's election debacle gives the ruling Ayatollahs a black eye
 Tags:
-  - iran's election 2009
-  - ayatollah
-  - ahmadinejad
+  - iran election 2009
+  - ayatollah ahmadinejad
   - mousavi
-  - politics
-  - international
   - A. H. Jaffor Ullah
 Published: 2009-07-09 19:51:50 +06:00
 Updated: 2009-07-09 19:52:46 +06:00

@@ -1,22 +1,14 @@
 ---
-Title: A Guide to the Qur'anic Contradictions (Part-1)
+Title: A Guide to the Quranic Contradictions Part-1
 Tags:
-  - islam
   - koran
-  - koranic contradictions
-  - contradiction
-  - religion
-  - philosophy
-  - science
   - Abul Kasem
 Published: 2009-01-05 09:36:48 +06:00
 Updated: 2009-05-17 09:41:06 +06:00
 OldURL: 2009/01/05/a-guide-to-the-qur%e2%80%99anic-contradictions-part-1/
 ---
 
-
-<h2 align="center" class="MsoTitle"><font color="#008000">A Guide to the Qur'anic Contradictions (Part-1)</font></h2>
-<p align="center" style="text-align: center" class="MsoNormal"><span lang="EN-AU"><font size="4"><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></font></span></p>
+~ *[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html) 
 
 <h2><font color="#800080"><span style="font-weight: 400">Introduction</span></font></h2>
 <p class="MsoNormal">This guide is a compilation of contradictory verses in the Qur'an, the holiest book of Islam. Muslims consider the Qur'an as the infallible words of Allah, free of any ambiguities, contradictions, errors and irrationalities. This guide will demonstrate that far from being perfect, free of ambiguities and errors, the Qur'an is replete with hundreds of contradictory statements that will surprise the critical readers of the Qur'an. It is unbelievable that an omnipotent, omniscient, all‑knowing, and all‑powerful Allah will have such a demented intellect to construct so many contradictory passages.</p>
@@ -185,8 +177,17 @@ OldURL: 2009/01/05/a-guide-to-the-qur%e2%80%99anic-contradictions-part-1/
 <span style="color: #0066ff">Contradiction</span>: 42:51 says Allah speaks only through a veil or through a messenger.
 
 <p class="MsoNormal"><span style="color: #c00000">End of Part 1</span></p>
-<p align="right" class="MsoNormal"><em><strong>To be continued in <a href="https://enblog.muktomona.com/?p=73">part 2</a>.</strong></em></p>
 
-<hr />
+<!-- manually added following author's articles on the series -->
+<p class="MsoNormal" align="right"><em><strong>To be continued in <a href="https://en.muktomona.com/posts/2009/01-12-a-guide-to-the-koranic-contradictions-part-2">part 2</a>.</strong></em></p>
 
-<p class="MsoNormal"><em><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></em> is an Bengali freethinker and is a teacher by profession. He has contributed in <a target="_blank" href="https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689/ref=pd_bbs_sr_1/104-8919824-5747905?ie=UTF8&amp;s=books&amp;qid=1176351399&amp;sr=1-1"><em>Leaving Islam - Apostates Speak Out</em></a><em> </em>and<em> <a target="_blank" href="https://www.amazon.com/gp/product/1933146192/sr=8-1/qid=1144991009/ref=pd_bbs_1/002-2152279-3237646?_encoding=UTF8">Beyond Jihad - Critical Voices from Inside</a></em>. He has also written extensively on Islam in various websites and is the author of several e-Books including: <em>A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam</em>. Mr. Kasem leaves in Sydney, Australia. His latest contribution is in the book <em><a href="https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102">Why We left Islam</a></em>, edited by Susan Crimp et al.  He can be contacted at <a href="mailto:abul88@hotmail.com">abul88@hotmail.com</a> and <a href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a></p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)*
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam. Mr. Kasem leaves in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 
+
+- [this post on internet archive for mm enblog](https://web.archive.org/web/20191025195235/https://enblog.mukto-mona.com/2009/01/05/a-guide-to-the-qur%e2%80%99anic-contradictions-part-1)

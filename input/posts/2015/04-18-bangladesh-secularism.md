@@ -9,6 +9,8 @@ Updated: 2015-07-03 15:58:40 +06:00
 OldURL: 2015/04/18/bangladesh-secularism/
 ---
 
+~ *Bhaskar*
+
 I got tempted to write this post as a sequel of Jahed Ahmed's post "Bangladesh: where words cost lives". Jahed agreed on lamentation of Dr Ajoy Roy about the Bangladesh which has gradually gone in the hands of Islamists. Dr Ajoy Roy also expressed that bangladesh was not liberated from Pakistan for Islamist activities.
 
 Jahed wrote in response to my comment that during freedom struggle of Bangladesh vast majority did not fight for Islamic Republic or Caliphate. What 'vast majority', he was talking of? That was the same vast majority who fought for East Pakistan in 1946-47. 'Vast majority' is a vast bunch of goats. They are driven by national, regional and local leaders and civil society to a particular direction be it creation of East Pakistan or Bangladesh or Islamic Republic or Caliphate. The leaders ignite passion for Pakistan, Bangladesh or Islamic Republic or Caliphate among the vast majority and they act accordingly.
@@ -28,4 +30,3 @@ BJP has developed a strong hold in Assam and trying hard to get a foothold in We
 Many Bangladeshi liberal Muslims may not like the fact that from Indian perspective, liberation of Bangladesh was counterproductive. Had Bangladesh been still East Pakistan, the leaders would have remained busy to counter the exploitative actions of West Pakistani leadership and Islamists would not have a condusive environment to grow in Bangladesh.
 
 Bangladesh and secularism are antithesis of each other.
-

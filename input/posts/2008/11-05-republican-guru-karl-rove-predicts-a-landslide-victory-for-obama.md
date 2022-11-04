@@ -11,11 +11,11 @@ OldURL: 2008/11/05/republican-guru-karl-rove-predicts-a-landslide-victory-for-ob
 [Rove suggests landscape favors Obama](https://politicalticker.blogs.cnn.com/2008/11/04/rove-predicts-obama-landslide)
 
 Posted: 11:36 AM ET
-[CNN Ticker Producer Alexander Mooney](https://politicalticker.blogs.cnn.com/tag/cnn-ticker-producer-alexander-mooney)
-<br />
+[CNN Ticker Producer Alexander Mooney](https://politicalticker.blogs.cnn.com/tag/cnn-ticker-producer-alexander-mooney) 
+  
 
-![cnnStoryPhotoBox](https://i2.cdn.turner.com/cnn/2008/images/11/04/art.rove.cnn.jpg)
-<br />
+![cnnStoryPhotoBox](https://i2.cdn.turner.com/cnn/2008/images/11/04/art.rove.cnn.jpg) 
+  
 Karl Rove's Electoral prediction
 
 **CNN** – John McCain and his aides are still banking on a come-from-behind victory Tuesday, but the GOP's most famous political strategist is forecasting Obama is well positioned to win.

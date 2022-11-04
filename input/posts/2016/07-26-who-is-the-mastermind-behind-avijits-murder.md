@@ -1,16 +1,9 @@
 ---
 Title: Who is the mastermind behind Avijit's murder?
 Tags:
-  - mukto-mona
-  - bangladesh
-  - science
-  - human rights
-  - personality
-  - terrorism
   - bangalee freethinker
   - avijit roy
   - blogger killings
-  - freethinking
   - Raihan Abir
 Published: 2016-07-26 23:55:41 +06:00
 Updated: 2016-07-27 04:29:22 +06:00
