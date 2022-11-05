@@ -2,10 +2,7 @@
 Title: Mukto-Mona plans for a Grand Darwin Day Celebration (2009)
 Tags:
   - darwin day
-  - philosophy
-  - mukto-mona
   - science
-  - celebration
   - Mukto-Mona Editor
 Published: 2009-01-04 14:34:11 +06:00
 Updated: 2009-01-07 21:30:18 +06:00

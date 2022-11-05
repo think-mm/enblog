@@ -3,16 +3,15 @@ Title: My Response to a Pakistani School Student
 Tags:
   - bangladesh
   - 1971 genocide
-  - liberation war
+  - liberation war crime trial
   - Abul Kasem
 Published: 2008-12-24 02:14:09 +06:00
 Updated: 2009-05-17 09:41:25 +06:00
 OldURL: 2008/12/24/my-response-to-a-pakistani-school-student/
 ---
 
+~ *[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html) 
 
-<p align="center"><font size="5" color="#008000">My Response to a Pakistani School Student</font></p>
-<p align="center"><font size="4"><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></font></p>
 <font face="Verdana">Hi Moujee;
  
 Thank you for reading <a href="https://avijit.humanists.net/26th_march/nights_and_days.htm">this very old essay</a>. In this essay I have described in complete honesty what I had seen with my own eyes, and what I had experienced with my own person in the tumultuous days of the onslaught of Pakistani army's atrocities in Bangladesh. </font>
@@ -85,3 +84,11 @@ the book "witness to surrender" u must read
 after winning war india also looted u a bengali writes in defence forum pakistan (pls visit)<a rel="nofollow"><font color="#0068cf">https://www.defence.pk/forums/military-history/17630-loot-plunder-indian-army-after-liberation-war-1971-a.html</font></a>
  
 <p class="EC_EC_postfont">i hope u will not mind. i apologise for any inconvenience but its fact in mind of a pakistani.</p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)*
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam. Mr. Kasem leaves in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

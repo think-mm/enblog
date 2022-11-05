@@ -203,23 +203,21 @@ Islam is a spiritual tyranny. A real God shall never resort to sex, violence and
 
 " ... If you love Allah, and follow me (Muhammad), God will love you, and forgive you your sins." (Q: 3. 25)
 
-Allah is obliged to throw a person in Hell even if he is sincerely devoted of Him but does not believe in Muhammad's Prophetic claim. So we can see how helpless the God of Islam is. Such a weak God does not exist. Neither he has the power to throw the non-Muslims in Hell nor can he reward anyone with Paradise. Hellfire theory was a useful tool for Muhammad to use the fear factor for propagating his religion. There are 146 references to Hell in the Qur'an. Out of this, 94% of the reasons for being in Hell are for the intellectual sin of disagreeing with Muhammad, an unpardonable crime (Glazov &amp; Warner, 2007). The common Muslim masses are just stupefied by this Hellfire theory. Their ethical and logical faculties are completely subdued. 
+Allah is obliged to throw a person in Hell even if he is sincerely devoted of Him but does not believe in Muhammad's Prophetic claim. So we can see how helpless the God of Islam is. Such a weak God does not exist. Neither he has the power to throw the non-Muslims in Hell nor can he reward anyone with Paradise. Hellfire theory was a useful tool for Muhammad to use the fear factor for propagating his religion. There are 146 references to Hell in the Qur'an. Out of this, 94% of the reasons for being in Hell are for the intellectual sin of disagreeing with Muhammad, an unpardonable crime (Glazov & Warner, 2007). The common Muslim masses are just stupefied by this Hellfire theory. Their ethical and logical faculties are completely subdued. 
 
 This absurd theory is the main support of Islam for domination. It worked wonder for Muhammad by enriching and empowering him during his lifetime. Today it works wonder for the Imams, Mullahs and tyrants alike. Islam was created for one Malignant Narcissist's quest for narcissistic attention. It is utter foolishness to search for spirituality in Islam. Islam is not just a false belief but also a mental disorder that reduces sane people into insane people. That's why they cannot see the dishonesty of their Prophet.
 
 
-References
+**References** 
+1. Sagan, Carl (1997); The Demon Haunted World: Science as a Candle in the Dark. Ballantine Books. Random House Inc. USA.
 
+2. Lovecraft, H. P (1973); Supernatural horror in literature. Dover  Publications, Inc. NY.
 
-1.	Sagan, Carl (1997); The Demon Haunted World: Science as a Candle in the Dark. Ballantine Books. Random House Inc. USA.
+3. Ahmad, Mahmood bin (2006); The magnificence of the Qur'an. Maktaba Dar-us-Salam. Riyadh. 
 
-2.	Lovecraft, H. P (1973); Supernatural horror in literature. Dover  Publications, Inc. NY.
+4. Batchelor, Stephen (1994); The awakening of the west: the encounter of Buddhism and Western culture. Parallax Press. California
 
-3.	Ahmad, Mahmood bin (2006); The magnificence of the Qur'an. Maktaba Dar-us-Salam. Riyadh. 
-
-4.	Batchelor, Stephen (1994); The awakening of the west: the encounter of Buddhism and Western culture. Parallax Press. California
-
-5.	Glazov, Jamie, Warner (2007); The Study of Political Islam. An interview of Bill
+5. Glazov, Jamie, Warner (2007); The Study of Political Islam. An interview of Bill
       Warner published on February 05, 2007. FrontPageMagazine.com. URL:
       https://97.74.65.51/readArticle.aspx?ARTID=297 (Last accessed Apr. 19 / 2010)
 

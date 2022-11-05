@@ -1,21 +1,16 @@
 ---
 Title: Allah recognizes the existence of other Gods!
 Tags:
-  - allah
-  - isalm
-  - god
-  - gods
-  - religion
-  - culture
-  - philosophy
+  - koran
   - Mukto-Mona Editor
 Published: 2009-01-27 18:48:55 +06:00
 Updated: 2009-01-27 19:21:50 +06:00
 OldURL: 2009/01/27/allah-recognizes-the-existence-of-other-gods/
 ---
 
-<h2><span style="color: #008000;">Allah recognizes the existence of other Gods! </span></h2>
-<h2><span style="font-weight: 400;"><a href="https://gold.mukto-mona.com/Articles/asghar/index.html">Mohammad Asghar</a> </span></h2>
+~ *Mohammad Asghar*
+
+
 <div class="ArticleText">
 
 <span style="color: #000000; font-family: Verdana;"><font id="role_document" face="Verdana" color="#000000">

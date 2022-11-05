@@ -2,10 +2,6 @@
 Title: Bangladesh - the race for education
 Tags:
   - human rights
-  - violence
-  - William Gomes
-  - bangladesh
-  - education
   - William Gomes
 Published: 2009-12-06 20:18:42 +06:00
 Updated: 2009-12-06 20:19:31 +06:00

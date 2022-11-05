@@ -2,7 +2,7 @@
 Title: Bouquets, Boots And Bush
 Tags:
   - politics
-  - international
+  - iraq
   - Ram Puniyani
 Published: 2009-01-05 10:23:16 +06:00
 Updated: 2009-07-15 08:39:19 +06:00
@@ -29,4 +29,4 @@ It's a shame that in the name of civilizing missions, exporting democracy etc., 
 <p align="justify">Ram Puniyani is a Professor at IIT Mumbai and is associated with EKTA, Committee for Communal Amity, Mumbai. He writes in Mukto-mona forum.</p>
 
 
-Tags: iraq, bush, shoe, iraq
+More tags: iraq, bush, shoe

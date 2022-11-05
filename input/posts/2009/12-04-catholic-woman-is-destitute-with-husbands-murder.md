@@ -1,21 +1,9 @@
 ---
 Title: Catholic woman is destitute with husband's murder
 Tags:
-  - william gomes
-  - christianity in bangladesh
-  - churh in dhaka
-  - catholic under persecution
-  - politics
-  - religion
-  - philosophy
-  - international
-  - bangladesh
-  - india
   - human rights
   - terrorism
-  - liberation war
-  - bangalee freethinker
-  - health
+  - freethinker
   - William Gomes
 Published: 2009-12-04 01:31:30 +06:00
 Updated: 2009-12-04 01:31:30 +06:00
@@ -54,5 +42,4 @@ A Catholic priest, Joseph Arsenault, the parochial vicar at St. Bridget's Church
 [caption id="attachment_738" align="aligncenter" width="300" caption="Ronjon Palma, a young Christian, showing the place where Costa\'s body was found. (Photo/Dipal Barua)"]<img src="https://enblog.muktomona.com/wp-content/uploads/2009/12/3.jpg" alt="Ronjon Palma, a young Christian, showing the place where Costa&#39;s body was found. (Photo/Dipal Barua)" width="300" height="225" class="size-full wp-image-738" />[/caption]
 
 Joseph Arsenault told Asia News, "I will be offering the Holy Sacrifice of Mass for her intentions and that of her family on Dec. 1st."
-
 

@@ -1,12 +1,7 @@
 ---
 Title: Remembering Stanley Miller's 50-year-Old abiogenesis experiments on Darwin Day
 Tags:
-  - mukto-mona
-  - darwin day celebration
   - darwin day
-  - stanley miller
-  - abiogenesis experiments
-  - celebration
   - Mukto-Mona Editor
 Published: 2009-02-12 10:32:21 +06:00
 Updated: 2009-02-12 10:32:21 +06:00
@@ -58,3 +53,8 @@ OldURL: 2009/02/12/remembering-stanley-miller%e2%80%99s-50-year-old-abiogenesis-
 <p class="MsoNormal" style="line-height: 14.4pt;"><span style="color: #333333;">Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans , USA</span></p>
 <p class="MsoNormal"> </p>
 <p class="MsoNormal" style="text-align: center;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/">Darwin Day Celebration 2009</a></p>
+
+
+Additional tags:
+  - stanley miller
+  - abiogenesis experiments

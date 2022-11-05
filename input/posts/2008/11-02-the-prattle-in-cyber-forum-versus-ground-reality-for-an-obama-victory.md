@@ -8,8 +8,8 @@ Published: 2008-11-02 11:14:40 +06:00
 Updated: 2009-07-09 18:22:20 +06:00
 OldURL: 2008/11/02/the-prattle-in-cyber-forum-versus-ground-reality-for-an-obama-victory/
 ---
-~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)* 
 
 As the Election Day nears in America, a few deshi Republicans smattered on about an upset McCain victory in a deshi forum (See one example here), which I frequent on a daily basis.  I was amused by their forecast that defies all the popular polls.  But that is their prerogatives.
 
@@ -19,11 +19,11 @@ Not that I have too much faith on any particular poll, but the veteran pollster,
 
 In today's CNN "View from the Right" (November 1, 2008) 5 conservative commentators headed by David Brody of Christian Broadcasting Network had opined that the Conservatives (Read Republican's base) are in disarray.  These commentators have all but given up hopes for a McCain's victory.  They are amazed how the Obama campaign was able to package their leading candidate as a centrist. 
 
-On November 5, 2008 – a day after the election there will be finger pointing in all directions among Republicans for what went so wrong with McCain campaign and why did so many congressional and senatorial candidates lose the election.  And of course ‘Bush-Cheney' duo will have to take the maximum blame for the catastrophe.  The blame game will continue for weeks and I am sure the selection of Sarah Palin as the vice president by Senator McCain will also be analyzed by the Republican pundits for umpteenth times as one of the major reason for the defeat.  Ms. Palin had turned off many voters because they felt she was not prepared for the position and her dismal interviews to news network such as ABC and CBS had shed light indicating her insular macro worldview.  In addition, Ms. Palin holds extreme conservative views on many burning issues of the day, which had scared the hell out of many female voters.
+On November 5, 2008 – a day after the election there will be finger pointing in all directions among Republicans for what went so wrong with McCain campaign and why did so many congressional and senatorial candidates lose the election.  And of course 'Bush-Cheney' duo will have to take the maximum blame for the catastrophe.  The blame game will continue for weeks and I am sure the selection of Sarah Palin as the vice president by Senator McCain will also be analyzed by the Republican pundits for umpteenth times as one of the major reason for the defeat.  Ms. Palin had turned off many voters because they felt she was not prepared for the position and her dismal interviews to news network such as ABC and CBS had shed light indicating her insular macro worldview.  In addition, Ms. Palin holds extreme conservative views on many burning issues of the day, which had scared the hell out of many female voters.
 
 By reading their posts in the cyber forum deposited by the deshi Republicans, I gather that Obama is not liked by religious Hindus because he sports an Arabic middle name.  A few months back in the same cyber forum another deshi Republican had mentioned that Obama is a liberal; therefore he should not be trusted. 
 
-In 1980, when the ex-governor of California Ronald Reagan was running for the office, he anathematized the Democrats by calling them liberals who only know how to tax and spend.  This mischaracterization of the liberals continued for the last two decades.  The overuse of this definition of liberals is not getting the currency these days.  Sarah Palin and John McCain tried their best to label ‘Obama-Biden' ticket as the big spender liberals but the voters are not buying this message.  They saw how a strong economy with budget surplus during Clinton times (1993-2000) was transformed into a weak economy with massive budget deficit.  On top of the shrinking economy, a spate of massive banks failure due to subprime lending and meltdown in the Wall Street has alarmed the voters.  If McCain come out as a sore loser, which is apparent right now, the main reason for his failure to come out victorious in the lection would be solely due to deteriorating economy in the U.S.  More voters hold the view that Obama will be a better steward of the economy than Senator McCain.
+In 1980, when the ex-governor of California Ronald Reagan was running for the office, he anathematized the Democrats by calling them liberals who only know how to tax and spend.  This mischaracterization of the liberals continued for the last two decades.  The overuse of this definition of liberals is not getting the currency these days.  Sarah Palin and John McCain tried their best to label 'Obama-Biden' ticket as the big spender liberals but the voters are not buying this message.  They saw how a strong economy with budget surplus during Clinton times (1993-2000) was transformed into a weak economy with massive budget deficit.  On top of the shrinking economy, a spate of massive banks failure due to subprime lending and meltdown in the Wall Street has alarmed the voters.  If McCain come out as a sore loser, which is apparent right now, the main reason for his failure to come out victorious in the lection would be solely due to deteriorating economy in the U.S.  More voters hold the view that Obama will be a better steward of the economy than Senator McCain.
 
 The tax policy favored by Obama is gaining confidence among the electorates.  Obama's plan is to tax the rich Americans, who received a favorable treatment from Bush-Cheney Administration, and give a tax break to the middle class.  Both John McCain and Sarah Palin are telling the Americans that Obama will be rise the tax of the middle class to fund his pet project and make the government bigger and wasteful.  However, the electorates are not in a mood to pay attention to the Republican message.
 
@@ -35,4 +35,6 @@ We shall have to wait until the wee hours of November 5 to know the result.  It 
 
 
 -----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*

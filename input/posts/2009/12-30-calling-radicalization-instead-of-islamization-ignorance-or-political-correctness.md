@@ -7,8 +7,7 @@ Updated: 2009-12-30 20:31:48 +06:00
 OldURL: 2009/12/30/calling-radicalization-instead-of-islamization-ignorance-or-political-correctness/
 ---
 
-By Syed Kamran Mirza
-Mirza.syed@gmail.com
+~ *[Syed Kamran Mirza](https://gold.mukto-mona.com/Articles/skm/index.html)*  
 
 
 *Blaise Pascal, mathematician, 1670*
@@ -74,4 +73,10 @@ How can one cure a body by keeping the cancerous lesion inside the body? Nothing
 2. The Holy Qur'an, Translated by Dr. Muhammad Taqi-ud-Din Al-Hilali, Formerly   Professor of Islamic Faith and Teachings, Islamic University, Al-Madinah Al-Munawwarah and Dr. Muhammad Muhsin Khan, Formerly Director, University Hospital, Islamic University, Al-Madinah Al-Munawwarah. "The Noble Qur'an" – Published and freely distributed by His Excellency King Fahd Bin Abdul Aziz (Khademul Haramine Shareefine).
 
 
-
+-----
+*Syed Kamran Mirza*
+- Born in a Muslim family of Bangladesh
+- After having Ph.D. in Biological science he worked as a teacher in one of the reputed Universities in Bangladesh for a period of 12 years, now lives in USA
+- Author of the book, "Roots of Islamic Terrorism" published in 2004
+- Published more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals
+- Can be reached at *mirza.syed at gmail dot com*

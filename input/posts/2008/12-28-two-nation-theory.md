@@ -8,9 +8,9 @@ Updated: 2008-12-28 13:28:50 +06:00
 OldURL: 2008/12/28/two-nation-theory/
 ---
 
+~ [*Ishfaq Ilahi Choudhury*](https://gold.mukto-mona.com/Articles/ishfaq/index.html)
 
-<p align="center"><font size="5" color="#008000">Two-nation theory</font></p>
-<p align="center"><a href="https://gold.mukto-mona.com/Articles/ishfaq/index.html">Ishfaq Ilahi Choudhury</a></p>
+
 <font face="Verdana">NIZAMI'S statement eulogising the "two-nation theory" shows that the party remains loyal to its dark past. He tries to justify the hypothesis on which Pakistan was created. He argued that if Pakistan had not been created, Bangladesh would never have been born. </font>
 
 <font face="Verdana">Coming on Victory Day, such statements are an insult to our national ethos. It is apparent that Nizami has poor understanding of history and is engaged in hoodwinking the people. It was also clear that renaming of "Jamaat-e-Islami Bangladesh" to "Bangladesh Jamaat-e-Islami" was nothing more that a cosmetic "cut and paste" job, signifying no change in the ideological position of the party. </font>
@@ -44,5 +44,5 @@ OldURL: 2008/12/28/two-nation-theory/
 <font face="Verdana">That playing politics with religion ultimately brings ruination is proven by the sad spectacle in Pakistan -- a nation that had the highest number of suicide attacks in the world in 2008. We need to learn from others' mistakes for we may not live long to make those ourselves.</font>
 
 ----
-~ Ishfaq Ilahi Choudhury
-*The article has been published in Daily Star. The author is a freelance contributor to The Daily Star and member of Mukto-Mona. He sent the article for publication in Mukto-Mona.*
+~ *Ishfaq Ilahi Choudhury* 
+- Source: Daily Star; author is a freelance contributor to The Daily Star and member of Mukto-Mona. He sent the article for publication in Mukto-Mona

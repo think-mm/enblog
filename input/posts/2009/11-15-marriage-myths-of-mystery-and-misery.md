@@ -1,19 +1,10 @@
 ---
 Title: Marriage - Myths of Mystery and Misery
 Tags:
-  - bangladesh
-  - religion
-  - william gomes
   - marriage
   - abraham lincoln
-  - politics
-  - culture
-  - philosophy
-  - mukto-mona
   - human rights
-  - bangalee freethinker
-  - women
-  - literature
+  - freethinker
   - William Gomes
 Published: 2009-11-15 00:57:46 +06:00
 Updated: 2009-11-15 00:57:46 +06:00

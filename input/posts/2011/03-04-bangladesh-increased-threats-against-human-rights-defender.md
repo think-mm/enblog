@@ -1,12 +1,7 @@
 ---
 Title: Bangladesh - Increased threats against human rights defender
 Tags:
-  - 'bangladesh: increased threats against human rights defender'
-  - politics
-  - personality
-  - bangalee freethinker
-  - society
-  - activism
+  - freethinker
   - William Gomes
 Published: 2011-03-04 19:06:55 +06:00
 Updated: 2011-03-04 19:06:55 +06:00
@@ -57,5 +52,6 @@ When contacted the Officer-in-Charge (OC) of the Paikgachha police station Mr. E
 
 Human rights activist and journalist expressed their concern about the growing threats against the prominent journalist Mr. F. M. A. Razzak, Editor of the Gonomichhil (a fortnightly newspaper) and President of Human Rights Development Centre (HRDC) and his family. Recently the Paikgachha Press club shared their conceren about the fabricated charges against their journalist and the ex president of Paikgachha press club. 
 Journalists urged to Prime minister Sheikh Hasina to immedialtey identify the army officer, Major Mr. Mustafizur Rahman Bokul. They also urged to investigate the scheme behind the false allegation of attempt to murder and take action against the perpetrators by judicial officer.
+
 They also urged to provide adequate protection to Razzak and the members of his family without any further delay.
 

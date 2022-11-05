@@ -4,11 +4,12 @@ Tags:
   - humayun azad
   - politics
   - terrorism
-  - Farida Majid
 Published: 2009-08-24 20:55:03 +06:00
 Updated: 2009-08-24 20:55:03 +06:00
 OldURL: 2009/08/24/remembering-that-humayuns-assailants-are-still-roaming-free/
 ---
+
+~ *Farida Majid*
 
 <p align="justify"><span style="font-size: medium; font-family: Garamond;"><strong>Selectivity of "Freedom" Chokes People's Free Voice (2004)</strong> </span></p>
 <p align="justify"><span style="font-size: medium; font-family: Garamond;">A friend of mine, a British man working in EU-Bangladesh Govt.'s joint program, Adorsho Gram, recently went to Modhupur on a tour. He was taken to the forest area, which was a joke, since the hillsides are denuded of trees. On top of one of the scraggly hills he noticed some unusual sheds that did not look like local people's dwellings. He asked his guide about them, and the guide told him, "They are the Al-Qaeda training camps. The local madrassah boys are sent there for extra-curricular activities." The casualness of the answer reveals that today's Bangladesh must be the only country after Taliban-run Afghanistan where Al-Qaeda training camps can run freely and openly, and apparently, with the approval of the authorities concerned. </span></p>

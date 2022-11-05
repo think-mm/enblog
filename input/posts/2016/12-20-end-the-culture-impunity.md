@@ -2,7 +2,7 @@
 Title: End the culture of impunity
 Tags:
   - human rights
-  - bangladeshi bloggers
+  - blogger killing
   - Tonoy Emroz
 Published: 2016-12-20 09:23:18 +06:00
 Updated: 2016-12-21 14:45:20 +06:00

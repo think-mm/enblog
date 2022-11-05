@@ -2,7 +2,6 @@
 Title: My interview with Frontpage Magazine
 Tags:
   - islam
-  - religion
   - terrorism
   - Syed Kamran Mirza
 Published: 2009-01-13 11:33:21 +06:00
@@ -10,11 +9,7 @@ Updated: 2009-07-15 07:18:18 +06:00
 OldURL: 2009/01/13/my-interview-with-frontpage-magazine/
 ---
 
-
-<p align="center" class="MsoNormal"><font color="#800000"><strong><span style="font-size: 16pt">Interview of Frontpage Magazine with Syed Kamran Mirza!</span></strong></font></p>
-<p align="center" class="MsoNormal">&nbsp;</p>
-<p align="center" class="MsoNormal">By Syed Kamran Mirza</p>
-<p align="center" class="MsoNormal">&nbsp;</p>
+~ *[Syed Kamran Mirza](https://gold.mukto-mona.com/Articles/skm/index.html)*  
 
 <p align="justify" class="MsoNormal"><font face="Verdana">Frontpage Interview's guest today is Dr. Syed Kamran Mirza, the author of Roots of Islamic Terrorism and contributing-author of Beyond Jihad and Leaving Islam-Apostates Speak Out. </font></p>
 
@@ -218,5 +213,12 @@ OldURL: 2009/01/13/my-interview-with-frontpage-magazine/
 <p align="justify" class="MsoNormal"><font face="Verdana">I am positive, within 15/20 years of proper western cumulative actions—this madness by Islamic suicide bombers will be evaporated for good. If we fail to take positive actions narrated above—our civilization will perish. Killing some terrorists, arresting and killing Osama bin Laden or spending billions of dollars to establish democracy in the Middle East will solve nothing. Because, to solve the terrorist problem, we must destroy the ultimate machine (Quran and Islam), which do create terrorists. Let me finish my comments by quoting this very important saying:  <strong><em>"It would be naïve to ignore in Islam a deep thread of intolerance toward unbelievers."</em>—</strong>Andrew Sullivan.</font></p>
 
 
-<hr />
 <p class="MsoNormal">The interview has been published on December 30, 2008.</p>
+
+-----
+*Syed Kamran Mirza*
+- Born in a Muslim family of Bangladesh
+- After having Ph.D. in Biological science he worked as a teacher in one of the reputed Universities in Bangladesh for a period of 12 years, now lives in USA
+- Author of the book, "Roots of Islamic Terrorism" published in 2004
+- Published more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals
+- Can be reached at *mirza.syed at gmail dot com*

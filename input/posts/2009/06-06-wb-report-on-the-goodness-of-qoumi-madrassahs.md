@@ -7,9 +7,8 @@ Updated: 2009-07-21 21:26:12 +06:00
 OldURL: 2009/06/06/wb-report-on-the-goodness-of-qoumi-madrassahs/
 ---
 
-<p class="MsoNormal" align="center"><span style="color: #008000;"><strong><span style="font-size: 14pt;">WB Report on the Goodness of Qoumi Madrassahs</span></strong></span><strong><span style="font-size: 14pt;"> </span></strong></p>
-<p class="MsoNormal" align="center"><strong><span style="font-size: 14pt;">             <span style="color: #000080;">    Farida Majid</span></span></strong></p>
-<p class="MsoNormal"><strong><span style="font-size: 14pt;"> </span></strong> </p>
+~ *Farida Majid*
+
 <p class="MsoNormal" align="center"><img src="https://news.indiainfo.com/2009/04/14/images/madrassa_400_01.jpg" alt="" /></p>
 <p class="MsoNormal" align="center"> </p>
 <p class="MsoNormal" style="text-indent: 0.5in;"><span style="font-family: Verdana;">The news of a new World Bank report on Quomi madrassahs in Bangladesh, published on 9<sup>th</sup> May, 2009 on the front page of the <em>New Age</em>, raised quite a few eyebrows. We learn from it that the madrassahs are normal educational venues of communities and survive under community and individual household donations. While percentages of madrassah running expenses that derive from these donations are mentioned, there is a conspicuous silence on the share of money that comes from abroad.  Though there are 5,230 Quomi madrassahs with about 14 lakh students, their uncontrolled proliferation should not cause any public alarm, the report claims. Quomis are doing a good job because all Muslim Bangladeshi parents only care about their children excelling in religious studies.</span></p>

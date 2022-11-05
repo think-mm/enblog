@@ -58,7 +58,9 @@ In my view Dr. Graves should have said that the clusters of Kangaroo genes are s
 On a lighter side, it has not escaped my attention that humans still sport a pair of strong legs just as goats, cattle, kangaroos; consequently, humans could jump.The basketball players, soccer player etc., are adept in jumping; therefore, the genes controlling the muscle strength of legs in humans must have originated from kangaroo or the species that is the ancestor of Australian jumping marsupials.Try telling all these to a person who thinks that the biblical account of genesis is true.You surely will get a strange response.
 
 
-----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*
 
 [this post on internet archive for mm enblog](https://web.archive.org/web/20191027023824/https://enblog.mukto-mona.com/2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack)

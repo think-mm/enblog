@@ -1,7 +1,6 @@
 ---
 Title: Sufisism vs. Terrorism
 Tags:
-  - philosophy
   - terrorism
   - Sentu Tikadar
 Published: 2008-12-11 21:39:11 +06:00

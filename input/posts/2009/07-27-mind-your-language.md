@@ -1,8 +1,6 @@
 ---
 Title: Mind your language
 Tags:
-  - mind your language
-  - bahuguna joshi-mayawati
   - politics
   - india
   - Ram Puniyani

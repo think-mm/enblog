@@ -11,15 +11,11 @@ Updated: 2013-12-16 07:26:40 +06:00
 OldURL: 2012/12/15/homage-to-my-martyr-colleagues-2/
 ---
 
-_Mukto-Mona Editor, On behalf of Dr. Ajoy K. Roy_
+~ *[Dr Ajoy Roy](https://gold.mukto-mona.com/Articles/ajoy/index.html)*  
 
-<strong>Homage to my martyr colleagues</strong>
+<img src="https://gold.mukto-mona.com/Articles/ajoy/gen11.jpg" alt="" width="346" height="248" />
 
--<a href="https://mukto-mona.net/Articles/ajoy/index.htm">Ajoy Roy</a>
-
-<img src="https://mukto-mona.net/Articles/ajoy/gen11.jpg" alt="" width="346" height="248" />
-
-Fourteenth December is known to us as "Shahid Budhijibi Dibas" (Martyr Intellectual Day). I am not sure if the word "Martyr" is the exact equivalent to "Shahid". I think the word <em>Shahid</em> carries much more deeper feeling and intensive sense that touches heart. We shall, who had even remote touch with war of liberation for our motherland, Bangladesh or with those days of 69 - 71, the days of movement for autonomy, non-cooperation movement of 71 that ultimately led us to war with the occupying Pakistani army never forget these martyrs. If we do we would betray them and their cause.
+Fourteenth December is known to us as "Shahid Budhijibi Dibas" (Martyr Intellectual Day). I am not sure if the word "Martyr" is the exact equivalent to "Shahid". I think the word *Shahid* carries much more deeper feeling and intensive sense that touches heart. We shall, who had even remote touch with war of liberation for our motherland, Bangladesh or with those days of 69 - 71, the days of movement for autonomy, non-cooperation movement of 71 that ultimately led us to war with the occupying Pakistani army never forget these martyrs. If we do we would betray them and their cause.
 
 16th December is our victory day, the day on which the occupation force led by Niazi surrendered to the Joint commander of the Bangladesh-India joint force,  Lt. General Aurora, commander of the Eastern command of Indian force, popularly known as "Mitra Bahini". Bangladesh Government and the Liberation force was represented by now Air Vice Marshal AK Khondkar, the then and freedom fighter Kader Siddiqui, Beeruttam, commander of the liberation force of Tangail-Jamalpur zone represented the freedom fighters.
 
@@ -33,11 +29,11 @@ Today I shall remember the by my tributes to my colleagues who became Shahids fo
 
 Readers, I shall take you to those terrible days when we were fighting for our independence as I pay homage to my martyr colleagues.
 
-<strong>Anudwaipayan Bhattacharya, Lecturer in Applied Physics (DU)</strong>
+**Anudwaipayan Bhattacharya, Lecturer in Applied Physics (DU)**
 
 Anudwaipayan hailing from Sylhet was a student of mine in the physics department. All through he had an excellent academic. After obtaining an M.Sc. degree with first class he joined the newly created Department of Applied Physics in 1968. Simultaneously he was appointed assistant house tutor in Jagannath Hall. Socially conscious Anudwaipayan, although not an activist was a silent supporter of all progressive movement. He was selected for commonwealth scholarship and was scheduled to leave the country on 26th March, 1971. But alas, the dreadful army operation  "Operation Search light" in Jagannath hall on the black night of 25th March took his life. His body was never discovered. His body was buried in a mass grave dug by the Pakistani army on 26th March by bulldozer. I personally saw this grave on the following day when I went to see the devastating scene f battlefield in and around JN hall. But today I shall not describe it. Readers please pardon me. Let us remember him at least today for a moment. Please visit the mass grave within the JN hall premise if you have not done before.
 
-<strong>Anowar Pasha, Senior Lecturer in Bangla (DU) </strong>
+**Anowar Pasha, Senior Lecturer in Bangla (DU)**
 
 A very good friend of mine, born in 1928 in the district of Murshidabad migrated to the then East Pakistan after obtaining M. A. degree in Bangla from Calcutta University. He began his teaching career as a lecturer in Pabna Edward College in 1958. He then came to Bangla Deparment of DU as a lecturer in Bangla in 1966. Subsequently he became Senior lecturer in 1970. A staunch supporter of Bengalism with all its associated attributes i.e. a believer of pluralism and secularism. He easily earned the animism of the fundamentalists against whom we were all then fighting. He was our comrade in arms. It is no wonder that he was picked up on the morning of 14th December by Al Badrs from his university residence.
 
@@ -45,23 +41,23 @@ He never returned nor we could discover his dead body. He completed his novel "R
 
 A great personal loss to me.
 
-<strong>Abdul Muktadir, Lecturer in Geology (DU)</strong>
+**Abdul Muktadir, Lecturer in Geology (DU)**
 
 He was my neighbor living in DU campus known as Fuller Road locality. All most every day we used to see each other. He always greeted me with a cheerful smile. A good looking medium stature was a typical Bangali in every respect. A silent and progressive supporter of non-cooperation movement. On the dreadful morning of 26th March he was shot dead at his residence by a group of army jowans of Pakistan when army raided our area in the early morning. From my 3rd floor flat through a window hole I saw his blood-letting dead body being dragged out and lifted on army truck. I shall never forget this scene nor shall I ever pardon those Pakistani beasts in human form.
 
-<strong>Dr. Abdul Khayer, Senior Lecture in History, DU</strong>
+**Dr. Abdul Khayer, Senior Lecture in History, DU**
 
 Another very good friend and well wisher of mine. Born in 1929, he joined History department in 1955 as a lecturer. He did his Ph. D. on Foreign Policy USA as regards to Indian subcontinent from !937 - 1947. An enthusiastic supporter of independence movement of Bangladesh. He was an activist inside the university organizing movement of autonomy of university and non-cooperation movement. He was one of our gallant fighters. For this he had to pay very dearly. When I left Dacca in early April, 1971 after surviving the army crack down, I saw him in his hiding place and discussed with him my plan of action and requested him to accompany me or do the same later on. Alas he could not make it.
 
 He was picked up by the army some time in August together with other few of the university teachers. But luckily he was released after a month. He stayed back in his university flat from where he was picked up by the Al Badrs on 10th December never to return. He was brutally killed.
 
-<strong>Ataur Rahman Khan Khadim, Lecturer in Physic, DU</strong>
+**Ataur Rahman Khan Khadim, Lecturer in Physic, DU**
 
 Khan Khadim was my colleague in Physics Department. A dedicated teacher having extraordinary brilliant academic caliber. He studied theoretical physics fro Gotingent University in Germany and joined his alma mater in 1965. He was killed brutally by the Pakistani soldiers in an early dawn operation of 26th March in Dhaka Hall. He was shot dead in his room. A silent worker gave his life silently.
 
 No body remembers him even in his department. We named one of the third year laboratories where he worked after his name. But when the laboratory was shifted to a new modern building his name was wiped out. This is the way we want to preserve our history of liberation movement. A sad aspect of our character indeed.
 
-<strong>Gyasuddin Ahmed, Senior Lecturer in History, DU</strong>
+**Gyasuddin Ahmed, Senior Lecturer in History, DU**
 
 Our Gyas Bhai, as he was known to us. A gallant fighter for our freedom movement and of our autonomy for university movement. A popular teacher loved equally loved by students and his colleagues. He joined DU as a lecturer in history in 1958. He got B. Sc (Hons) degree in Economics from London University. During those dreadful days of occupation period he was a house tutor of Mahasin Hall. In middle of August he was taken by the army along with his another colleague for interrogation. They were however released within a fortnight. But Al Bdars did not forget his pro-liberation activities from within occupation zone. He had to pay the price for it with his life for his decision to stay back and work from within.
 
@@ -69,13 +65,13 @@ A few years during AL regime of Hasina his sister filed a case of murder of Gyas
 
 The culprits are still around us; nay they are now in the seat of power. And we are in retreat. Have we fought for this Bangladesh? Who has the answer ?
 
-<strong>Dr. G. C. Dev, Professor of Philosophy, DU</strong>
+**Dr. G. C. Dev, Professor of Philosophy, DU**
 
 Internationally known Philosopher Professor Dev was my teacher and Principal while I was a student of SN College studying Inter Science at Dinajpur. Principal Dev had to leave the college for local politics, which of course became a boon for him as DU offered him to join in Philosophy department in 1953. Dr. Dev as a Pundit of Indian Philosophy and eastern religion including Islam earned reputation for his department and the university through his writings. A well-known philosopher in Indian thoughts he devoted his life for education and research. But even then the Pakistani army during the dreadful night of 25th March raided his residence and killed him and his "son in law", husband of his Moslem adopted daughter.
 
 His body was buried in the mass grave of JN hall.
 
-<strong>Dr. Jyotirmoy Guhathakurata, Reader in English, DU (Provost of JN Hall)</strong>
+**Dr. Jyotirmoy Guhathakurata, Reader in English, DU (Provost of JN Hall)**
 
 Dr. Guhathakuratha was my teacher in the sense he was my house tutor when I was a student of Dhaka Hall from 1953 - 57. A perfectly cultured person he was an out an out humanist. Whatever humanistic value I acquired, if any I leaned from him. He showed me how to love men irrespective of their difference in religion, caste and race. He was a follower of great personality Manavendra Ray. He was great lover of beauty, environment and whatever we understand by the word "fineness". He was a perfectionist.
 
@@ -85,7 +81,7 @@ On the dreadful night of 25th March army raided his residence near the present S
 
 In him I lost a true philosopher and guide.
 
-<strong>Dr. N. A. M. Faizul Mahi, Senior Lecturer, Institute of Education &amp; Research, DU </strong>
+**Dr. N. A. M. Faizul Mahi, Senior Lecturer, Institute of Education &amp; Research, DU**
 
 Born in 1939 at Feni, Dr. Faizul Mahi, a tall handsome man was know to his friend circle as a progressive looking personality. He was not vocal compared to many of his colleagues in the university but very much dedicated to the cause of war of liberation that was going on from March to December, helping the freedom fighters from within keeping a low profile, a very difficult job indeed. But he could not keep secret of his real identity from the watchful eyes of his collaborator colleagues within IER. During non-cooperation movement or '69 mass movement he had been always with us in our little effort to strengthen the nation wide movement for autonomy rapidly turning into a movement of independence under the charismatic leadership of Bangabandhu Sheikh Mujib and fiery Maulana and other national leaders.
 
@@ -97,7 +93,7 @@ The barbarous Al Badr group picked him on 14th December early in the morning fro
 
 Let us pay homage to this silent but gallant freedom fighter to day.
 
-<strong>Dr. Fazlur Rahman Khan, Senior Lecturer in Soil Science, DU </strong>
+**Dr. Fazlur Rahman Khan, Senior Lecturer in Soil Science, DU**
 
 Dr. Fazlur Rahman was born in Mymensingh in 1939. He was a silent but dedicated teacher of the department. He joined the department in 1963 as a lecturer after obtaining M.Sc. degree in soil science. Subsequently he proceeded to London University, UK for higher studies obtaining degree of Doctor of Philosophy in 1968. He immediately returned to the University of his own.
 
@@ -105,7 +101,7 @@ I knew him as a dedicated researcher, a very rare quality we do not find in our 
 
 On the dreadful night of 25th March '71 he was brutally killed by the members of the Pakistani army in his residence in Nilkhet area during army raid in the university campus. His dead body was left for several days, finally taken away by the army engaged in cleaning.
 
-<strong>Prof. Munier Choudhury, Department of Bangla, DU </strong>
+**Prof. Munier Choudhury, Department of Bangla, DU**
 
 A luminary in our literary and cultural world needs no introduction. Who could imagine that his Islamist students belonging to Al Badr bahini would pick up a great personality like him ? His only fault that he believed in Bengali identity of ours and worked for it. This is annoying for the fundamentalists as Munir Bhai had tremendous influence over his students and university colleagues. Once a dedicated theoretical communist turned into a liberal democrat Munier Choudhury was known for his liberal and secular views - the views he propagated through his notable writings and lectures. He was a great orator who could mould, charm and hypnotize his listeners.
 
@@ -123,7 +119,7 @@ The members of the Al Badr picked him from his residence at Hatirpul and subsequ
 
 In him I personally lost a true guide, a great benevolent well-wisher. How could I forget his love and affection I received from him? To great a loss to absorb ! Long live Munir Bhai and his ideals.
 
-<strong>Mofazzal Haidar Choudhury, Reader in Bangla, DU </strong>
+**Mofazzal Haidar Choudhury, Reader in Bangla, DU**
 
 A mild soft spoken and naturally shy, Mr. Choudhury could be killed by Al Badrs was beyond imagination. He was not an activist in any sense, nor was he a publicly known figure- even then the Al Badr Bahini picked him up on 14th December from his residence where he was hiding. It is now known that Al Badrs came to his residence at Fuller Road area and forcibly took his mail servant who was looking after the house during their absence. The servant could not bear the torture any more who was forcibly carried to his hiding place.
 
@@ -131,7 +127,7 @@ Mr. Choudhury was my neighbour just living opposite to my residence before the d
 
 Mr. Choudhury, born in Noakhali in 1926, joined department of Bangla in 1955. He studied at London University for couple of years in linguistics. He was awarded 'Sahitya Bharati' by the Viswa Bharati University, Santiniketan. He became Reader in Bengali 1970. His famous writings include Bangla Banan o Lipi Sanskar, Rabi Parikrama, Colloquial Bengali, Bhasa o Sanskriti, Sahityer Nava Rupayan etc.
 
-<strong>Muhammad Murtaza (Doctor), Medical officer, DU </strong>
+**Muhammad Murtaza (Doctor), Medical officer, DU**
 
 How could I forget him? I owe my life to him. He saved me from the probable onslaught at the hands of the Pakistani bahini. I was then hiding in a residential flat of a good friend of mine at Dhanmondi some time in the first week of April. A military zeep came at about 2-30 pm with some army officials. They enquired to my host who happened to be a medical practitioner whether a professor of DU was hiding here. He some how managed to impress upon them that no such person was residing in his residence. In fact I was not staying within his flat, but to an adjacent small flatlet behind but adjacent to the main building. My friend advised me that it would not be safe for me to stay there as the army might come back if they had positive information. We decided that best safe place would be, for to night at least, my university quarter. Because before coming over here the army  must had checked with my original residence. Just before the curfew was re-imposed in the evening I quietly moved to the university flat unnoticed- a barren, deserted and dreadfully calm place then. But Dr. Murtaza, who lived just opposite to my flat on the ground floor, noticed my arrival from his window. Immediately he came to my place knocking the door with a whispering voice asking me to open the door. I didn't put on any light. He advised me to leave the place the earliest moment, preferably early in the morning tomorrow as soon as the curfew was lifted. When I argued that when he could stay here why should I not. He replied that he was not that activist, - he was primarily a Maoist theoretician plus he was a medical doctor. He further advised me that so long I could not move to a safer place, I must not get out of the flat he would do the necessary domestic things. He also asked one of his aids to find me a place of safety. I left the flat a couple of days later to a new hiding place.
 
@@ -151,7 +147,7 @@ Honestly speaking I didn't know much of him, although we had nodding acquaintanc
 
 He left his Dhaka residence on 26th April '71 presumambly for his village home, but since then no trace of him found. It was heard later that on his way home to Narshingdi he might had been arrested by the army and killed.
 
-<strong>Muhammad Sadek, Head Master, University Laboratory School</strong>
+**Muhammad Sadek, Head Master, University Laboratory School**
 
 Mr. Sadek was born in Bhola in 1939. He was a Head master in charge of the University Labratory High School. He used to live in Fuller road area on the ground floor of Building number 11.
 
@@ -159,7 +155,7 @@ In the morning of 26th March '71 under curfew the army raided in our area and en
 
 On 27th Morning when curfew was lifted for a few hours, his body was temporarily buried in a lawn just behind the building.
 
-<strong>Rashedul Hasan, Lecturer in English, DU</strong>
+**Rashedul Hasan, Lecturer in English, DU**
 
 A very good friend of mine, Rashedul Hasan, born in 1932 at Bhirbhum district in West Bengal migrated to this part of the subcontinent then under Pakistani rule in 1949. He obtained B.A.(Hons.) and M. A in English from DU in 1957 and 1958 respectively. He taught at various colleges including Narsingdi, Pabna Edward College and Krishna Chandra College of Bhirbhum in West Bengal. Finally he joined English Department, DU as a lecturer in 1967. Rashedul was a good orator- his thoughtful eloquent speech on many occasion in DUTA meetings earned praise from his colleagues.
 
@@ -167,7 +163,7 @@ He was a liberal democrat and a life long fighter against fundamentalism and com
 
 A close friend of Anawar Pasha, Rashedul Hasan was picked up together with his friend Anawar from the same flat within the DU campus. The two families were then living together in a flat in Isa Khan Road area within the campus.
 
-<strong>Sharafat Ali, Lecturer in Mathematics, DU </strong>
+**Sharafat Ali, Lecturer in Mathematics, DU**
 
 An ex-student and a junior colleague of mine in mathematics department was killed by the army in a predawn operation search light directed against Dacca Hall near Curzon Hall area. Sharafat was then residing in one of the rooms meant for junior and bachelor teachers in a two storied building adjacent to dining hall of the students' dormitory. He was brutally killed by a group of soldiers forcibly entering his room. His dead body together with his colleague Mr. Khan Khadim was left unattended for several days before the army men carried it away.
 
@@ -177,7 +173,7 @@ Who thought a subdued and mild natured innocent boy, a potentially brilliant tea
 
 But we did, and failed to bring those war criminals to justice. Not only that, the day might be awaiting for us when those demons would have to be praised or worshiped for trying to save disintegrating Pakistan. Why not, if collaborators could today share power within the government is it an utopian thought ?
 
-<strong>Santosh Bhattacharyya, Senior Lecturer in History, DU</strong>
+**Santosh Bhattacharyya, Senior Lecturer in History, DU**
 
 Son of a famous and traditional Bramhin family of a village just on the other side river Buriganga- a village called Yantrail, Shree Santosh Bhattacharyya was born on 30th August, 1915. The family was very much known for its Sanskritic learning and studies. He passed B. A. (Hons.) and M. A. in history from Dacca University n 1937 and 1938 respectively. After serving as a professor of history in JN college for over 10 years he subsequently joined history department of DU as a lecturer in History in 1949. He became Senior lecturer after a few years.
 
@@ -189,7 +185,7 @@ On The 14th December together with his other colleagues, Al Badrs picked him up 
 
 Santosh Bhattacharyya was my respected teacher in Dacca Hall. I had greatest respect and love for him. He was our house tutor from 1954-1957. He was a very lovable person with open heart. He could mix with his students very freely irrespective of their age and  difference in cultural and economic status.
 
-<strong>Sirajul Haque Khan, Senior Lecturer in Education, IER, DU </strong>
+**Sirajul Haque Khan, Senior Lecturer in Education, IER, DU**
 
 Dr. Siajul Haque Khan was born in 1924 in the district of Noakhali. He graduated in Education in 1949 and then he obtained M. Ed degree from IER, DU in 1965. Later on he obtained Ed. D from the State College of Colorado, USA in 1967 after which he joined IER, DU as a senior lecturer in the following year.
 
@@ -200,8 +196,22 @@ A group of Al Badr members took him forcibly in a bus in the morning of 14th Dec
 Whom should we blame? We the survivors after 1971 who failed to carry the true message of war of liberation and independent Bangla to our future generation.
 
 <img src="https://www.nycomsga.org/wp-content/uploads/2010/05/blue_horizontal_line.gif" alt="" width="562" height="6" />
-[<strong>About the Author</strong>: <a href="https://en.wikipedia.org/wiki/Ajoy_Roy">Prof. Ajoy K. Roy</a>, a reputed scientist of high esteem, studied in Bangladesh and in UK and took his Ph.D. in Physical Chemistry from Leeds University. With his initiative an advanced center of Solid State Physics and crystallography was established in 1969 under the sponsorship of UNESCO. His work led to the discovery of some fundamental process in radiation chemistry of aliphatic and amino acids and their salts. The process of dissociative electron capture and the subsequent fate of electron is considered to be his major contribution as a scientist. He has been invited twice by the Nobel committee to nominate candidates for Nobel prize in 1998 and in 2001.  In 2012, he received <em>Ekushey Padak</em>, the highest civilian award of Bangladesh.
+[**About the Author**: <a href="https://en.wikipedia.org/wiki/Ajoy_Roy">Prof. Ajoy K. Roy</a>, a reputed scientist of high esteem, studied in Bangladesh and in UK and took his Ph.D. in Physical Chemistry from Leeds University. With his initiative an advanced center of Solid State Physics and crystallography was established in 1969 under the sponsorship of UNESCO. His work led to the discovery of some fundamental process in radiation chemistry of aliphatic and amino acids and their salts. The process of dissociative electron capture and the subsequent fate of electron is considered to be his major contribution as a scientist. He has been invited twice by the Nobel committee to nominate candidates for Nobel prize in 1998 and in 2001.  In 2012, he received *Ekushey Padak*, the highest civilian award of Bangladesh.
 
 Socially conscious Prof. Roy, since his student life, participated in all progressive movements including Language movement of 1952, Mass Movement in 1969, and Non Co-operation movement of 1970 --all these finally culminated in his participation in the 1971 War of Liberation of Bangladesh as a freedom fighter. After Liberation Prof. Roy was the General Secretary of the Asiatic Society of Bangladesh in the 1972-73 period, succeeding Dr. Ahmed Sharif.
 
 Prof. Roy, as a secular democrat believes in rationalism and secularism. As an ardent activist of Human Rights he has participated in most movements against Human Rights violation in Bangladesh.
+
+
+*Mukto-Mona Editor, On behalf of Dr. Ajoy Roy* 
+
+----
+*[Prof. Ajoy K. Roy](https://gold.mukto-mona.com/Articles/ajoy/index.html)*
+- A scientist and human rights activist writes from Bangladesh
+- Professor of Physics in Dhaka University, is one of the  pioneer members of Mukto-Mona Advisory Board
+- Prof. Roy, as a secular democrat believes in rationalism and secularism. As an ardent activist of Human Rights he has participated in most movements against Human Rights violation in Bangladesh
+- Recently achieved Bangla Academy Fellowship award in recognition of his total contribution in Scientific and Academic research.
+- Can be reached at *roya_k2003 'at' yahoo 'dot' com*
+ 
+
+[this post on internet archive for mm enblog](https://web.archive.org/web/20191029081231/http://enblog.mukto-mona.com/2008/12/14/homage-to-my-martyr-colleagues)

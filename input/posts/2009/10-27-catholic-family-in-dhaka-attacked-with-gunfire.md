@@ -1,16 +1,9 @@
 ---
 Title: Catholic family in Dhaka attacked with gunfire
 Tags:
-  - william gomes
-  - bangladesh awami league
-  - christian in bangladesh
-  - police
   - politics
-  - religion
   - human rights
   - terrorism
-  - society
-  - women
   - William Gomes
 Published: 2009-10-27 08:28:58 +06:00
 Updated: 2009-10-27 08:28:58 +06:00

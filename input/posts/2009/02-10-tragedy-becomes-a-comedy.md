@@ -1,9 +1,7 @@
 ---
 Title: Tragedy Becomes a Comedy
 Tags:
-  - bnagladesh india and pakistan relationship
-  - international
-  - bangladesh
+  - pakistan
   - india
   - terrorism
   - Sentu Tikadar

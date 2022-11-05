@@ -3,12 +3,10 @@ Title: Justice and accountability and democratic reform in Burma
 Tags:
   - politics
   - William Gomes
-Published: 2012-01-10 19:45:16 +06:00
+Published: 2012-01-11 19:45:16 -08:00
 Updated: 2012-02-14 13:58:58 +06:00
 OldURL: 2012/01/10/justice-and-accountability-and-democratic-reform-in-burma/
 ---
-
-January 11, 2012
 
 Mr. Alain Juppé
 Minister of Foreign and European Affairs
@@ -64,6 +62,6 @@ Sincerely yours,
 
 William Nicholas Gomes
 William's Desk
-www.williamgomes.org
+www.williamgomes.org (discontinued)
 
 <a href='https://enblog.muktomona.com/wp-content/uploads/2012/01/Justice-and-accountability-and-democratic-reform-in-Burma.pdf'>Justice and accountability and democratic reform in Burma</a>

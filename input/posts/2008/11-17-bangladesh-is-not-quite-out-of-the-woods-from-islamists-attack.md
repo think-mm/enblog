@@ -31,7 +31,10 @@ The government should ponder over the facts that despite a number of major arres
 
 In summary, the news of a bomb making factory in the outskirts of Dhaka should not be taken lightly by the government or the civil society.  The government certainly had railroaded the 6 super bosses of the JMB outfit, but the political conviction of many JMB supporters still lingers in their mind and so is the zealotry that serves as the engine of hate and that fuels a promise leading up to the false notion that someday Bangladesh miraculously will be converted into an Islamic Utopia.
 
+
 -----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*
 
 [this post on internet archive for mm enblog](https://web.archive.org/web/20191027023824/https://enblog.mukto-mona.com/2008/11/17/bangladesh-is-not-quite-out-of-the-woods-from-islamists%e2%80%99-attack)

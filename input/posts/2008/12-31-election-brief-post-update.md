@@ -14,7 +14,7 @@ Dear mukto-monas,
 
 Here is the latest election update. The Grand Alliance: led by AL has further consolidated its position in the ensuing Parliament by securing 263 seats, more than three-fourth of the total seats (300). It is a astounding as well as astonishing victory in deed in the history of Bangladesh parliamentary election. The Awami League itself secured 232 seats which is ¾ of the total seats. Many have termed AL victory as a sweet revenge against BNP in the notorious election of 2001. In the rigged election, alleged by AL, BNP won 193 seats as against AL wining only 68 seats or so.
 
-(image erased from web: http://www.thedailystar.net/photo/2008/12/31/2008-12-31__f02.jpg)
+// (image erased from web: http://www.thedailystar.net/photo/2008/12/31/2008-12-31__f02.jpg)
 
 
 Here is the latest Partywise position of the election result:  

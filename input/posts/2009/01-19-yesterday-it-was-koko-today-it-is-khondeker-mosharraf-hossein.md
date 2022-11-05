@@ -2,18 +2,15 @@
 Title: Yesterday, it was Koko; today, it is Khondeker Mosharraf Hossein
 Tags:
   - politics
-  - bangladesh
   - corruption
-  - khondeker mosharraf hossain
   - A. H. Jaffor Ullah
 Published: 2009-01-19 06:03:32 +06:00
 Updated: 2009-07-09 18:17:53 +06:00
 OldURL: 2009/01/19/yesterday-it-was-koko-today-it-is-khondeker-mosharraf-hossein/
 ---
 
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
-<h2 align="center"><font size="5" color="#008000">Yesterday, it was Koko; today, it is Khondeker Mosharraf Hossein</font></h2>
-<h3 align="center"><span style="font-weight: 400"><font size="4" color="#000080"><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A. H. Jaffor Ullah</a></font></span></h3>
 <font size="2" face="Arial">The sphere of corruption under Khaleda Zia rule goes beyond her immediate family members.  One of the stalwarts of BNP, Khondeker Mosharraf Hossain, had stashed millions of British pounds in England's banks.  When asked where this money came from?  He replied that these are his earnings from his student days in England during 1969 through 1975.  Well, I was a student in America during 1969 through 1975.  And in all likelihood my stipends were larger than his and still then I could not save enough.  Bangladesh's people would like to know what kind of investment Musharraf Hossain did to turn a measly sum of stipends to millions of English Sterling.</font>
 
 <font size="2" face="Arial">Please read the following Daily Star article (dated January 19, 2009) to understand the level of corruption this BNP politician did to amass such filthy sum of illegal money.  I feel like suggesting to ACC that these profligates should be locked up in a jail and please throw away the keys to jail cell.  These are the vilest people of Bangladesh who misused the trust our people bestowed on them.  The BNP was nothing more than an evil political party who schemed to make its party official filthy rich at the expense of Bangladesh's common people.
@@ -142,3 +139,8 @@ OldURL: 2009/01/19/yesterday-it-was-koko-today-it-is-khondeker-mosharraf-hossein
 <font size="2" face="Arial">They believe a good number of high profile graft suspects have huge sums in banks abroad. </font>
 
 <font size="2" face="Arial">Mostly former ministers and lawmakers of the BNP-led four-party alliance and their family members, they are suspected of earning those from big government projects</font>
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA* 

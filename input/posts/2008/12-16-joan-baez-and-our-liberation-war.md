@@ -1,9 +1,7 @@
 ---
 Title: Joan Baez and our Liberation War
 Tags:
-  - bangladesh
   - liberation war
-  - joan baez
   - Avijit Roy
 Published: 2008-12-16 19:32:40 +06:00
 Updated: 2016-12-27 22:32:49 +06:00

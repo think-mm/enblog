@@ -1,9 +1,6 @@
 ---
 Title: Torture survivors exposed the horrific accounts of torture
 Tags:
-  - bangladesh
-  - william gomes
-  - torture
   - human rights
   - William Gomes
 Published: 2011-04-22 23:13:35 +06:00

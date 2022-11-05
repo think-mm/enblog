@@ -1,11 +1,7 @@
 ---
 Title: The Infinite
 Tags:
-  - infinite
-  - hegelian philosophical category
-  - modern theoretical natural science
-  - philosophy
-  - science
+  - mathematics
   - Mukto-Mona Editor
 Published: 2009-02-05 22:06:48 +06:00
 Updated: 2009-02-05 22:06:48 +06:00
@@ -131,3 +127,11 @@ OldURL: 2009/02/05/the-infinite/
 
 <hr />
 <p class="MsoNormal" style="text-align: justify;">Abdul Malek, 980 Rue Robert Brossard, Quebec J4X 1C9, Canada; E-mail: <a href="mailto:abdulmalek@qc.aibn.com">abdulmalek@qc.aibn.com</a> </p>
+
+Additional tags:
+  - infinite
+  - hegelian philosophical category
+  - modern theoretical natural science
+  - philosophy
+  - science
+ 

@@ -67,7 +67,7 @@ Clearly, Hilali and Khan were perturbed at what the Qur'an says. So they had to 
 In a footnote Maulana Asad writes,
 
 > Maulana Asad's comment on 78:38  
-> Footnote 18: Lit., the "soul", in the singular but implying a plural. This is according to Ibn ‘Abbas, Qatadah and Al-Hasan (all of them quoted by Tabari), the meaning of ar-Ruh in the above context.
+> Footnote 18: Lit., the "soul", in the singular but implying a plural. This is according to Ibn 'Abbas, Qatadah and Al-Hasan (all of them quoted by Tabari), the meaning of ar-Ruh in the above context.
 
 As written in part 1, Maulana Asad completely denies the real existence of any of Allah's Souls (Gabriel or otherwise). So he has inserted inside square bracket the word 'human'.
 
@@ -78,7 +78,7 @@ As Maulana Asad refers to ibn Abbas's tafsir to assert that the "soul", though s
 > (On the day when the angels and the Spirit) Gabriel; and it is also said: this is a created being whose tremendousness only Allah knows; Ibn Mas'ud also said: the Spirit is an angel greater than every thing save the Throne, and this angel glorifies Allah each day 12,000 formulas of glorification, and which each glorification he utters Allah creates an angel who seeks forgiveness for the believers until the Day of Judgement (sic); it is also said this refers to a group of angels who have feet and hands like those of humans (stand arrayed, they speak not) to intercede, (saving him whom the Beneficent alloweth) to intercede (and who speaketh right) truly "there is no deity save Allah".
 >   
 > Tafsir Jalalyn on 78:38  
-> on the day (yawma is the adverbial qualifier for lā yamlikūna, ‘they will not be able to') when the Spirit, Gabriel, or God's hosts, and the angels stand arrayed (saffan is a circumstantial qualifier, in other words, mustaffīna). They, creatures, will not speak, except him whom the Compassionate One permits, to speak, and who says what is right, from among the believers and the angels: as if [meaning] that they will intercede for he whom He approves of.
+> on the day (yawma is the adverbial qualifier for lā yamlikūna, 'they will not be able to') when the Spirit, Gabriel, or God's hosts, and the angels stand arrayed (saffan is a circumstantial qualifier, in other words, mustaffīna). They, creatures, will not speak, except him whom the Compassionate One permits, to speak, and who says what is right, from among the believers and the angels: as if [meaning] that they will intercede for he whom He approves of.
 
 [Please note: the above quotes are from [Jordanian Government \(Royal Aal al-Bayt Institute for Islamic Thought, Jordan\) website on Islamic affairs](https://www.altafsir.com/Tafasir.asp?tMadhNo=0&amp;tTafsirNo=74&amp;tSoraNo=78&amp;tAyahNo=38&amp;tDisplay=yes&amp;UserProfile=0). The translation is by Dr Feras Hamza, who is the English translator of Tafsir al‑Jalalyn,and ibn.Abbas.]
 

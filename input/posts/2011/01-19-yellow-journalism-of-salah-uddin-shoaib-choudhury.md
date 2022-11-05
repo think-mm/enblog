@@ -1,18 +1,8 @@
 ---
 Title: Yellow journalism of Salah Uddin Shoaib Choudhury
 Tags:
-  - william gomes
-  - yellow journalism
-  - yellow journalism of salah uddin shoaib choudhury
-  - politics
-  - religion
-  - philosophy
-  - bangladesh
-  - human rights
-  - personality
   - terrorism
-  - bangalee freethinker
-  - activism
+  - freethinker
   - William Gomes
 Published: 2011-01-19 20:33:33 +06:00
 Updated: 2011-01-19 20:33:33 +06:00
@@ -23,8 +13,8 @@ OldURL: 2011/01/19/yellow-journalism-of-salah-uddin-shoaib-choudhury/
 
 Salah Uddin Shoaib Choudhury a notorious journalist who is the editor of controversial  weekly Blitz, you will not find out the printed edition in market published a news item titled" Conspiracy against Bangladesh" which is against the journalist ethics and a personal attack against  me. What he has claimed against me is totally bogus. I have exposed his tie with the Islamic fundamentalist in past.12 
 
-Shoaib, who was arrested at Zia International Airport in November, 2003 and charged with sedition in January, 2004 .He questioned about my religious status, I am a Roman catholic by faith and I have no tie with any Islamic fundamentalist now and before. 
-But its Shoaib who was is always doing conspiracy against the people of Bangladesh. I am not to oil any political government; I am always with the people of Bangladesh. Shoaib is a agent of "Mosad" and he was arrested on this link .1
+Shoaib, who was arrested at Zia International Airport in November, 2003 and charged with sedition in January, 2004. He questioned about my religious status, I am a Roman catholic by faith and I have no tie with any Islamic fundamentalist now and before. 
+But its Shoaib who was is always doing conspiracy against the people of Bangladesh. I am not to oil any political government; I am always with the people of Bangladesh. Shoaib is a agent of "Mosad" and he was arrested on this link. 1
 Shoaib is a controversial journalist, and he is the main force to form the Islamic Democratic Party with the Islamic fundamentalist. A prominent journalist Rahnuma Ahmed recently wrote "DGFI features in WikiLeaked cables too. The military's intelligence agency reportedly supported the idea of the Islamist terrorist group Harkatul Jihad Al Islami (HuJi) joining mainstream politics through forming the Islamic Democratic Party before the 2008 general elections. According to a news report, at an IDP-held iftar party, guests included Salah Uddin Shoaib Choudhury, editor, weekly Blitz and a campaigner for awarding official recognition to Israel. 'If Hizb-ut Tahrir,' said Choudhury, 'banned across the countries and had role in the Bali blasts, and anti-Liberation forces like Jamaat-e-Islami can operate openly, why can't IDP?' (The Daily Star, September 29, 2008)."2
 Later on CID hunts for IDP adviser Azizul Huq and the IDP Chief Sheikh Abdus Salam who is now being grilled on a remand in August 21 grenade attack case.3
 Shoaib said in his writing that "It may also be mentioned here that, while Mushrefa Mishu is under police custody, it is almost impossible for William Gomes to interview her on 'several' occasions, as he claimed. It is easily understood that, William Gomes is making such news with the ulterior motive of serving the purpose of anti-Bangladesh elements. William Gomes is claiming in public to be the correspondent of Sri Lanka Guardian, though, according to the newspaper, it does not have any correspondent yet in Bangladesh."
@@ -42,14 +32,7 @@ Its nothing new for controversial journalist shoaib to practice yellow journalis
 I dream for a nation where there will be no torture, where poor worker will be well paid, where imperialist will not rule us. Where the human rights will be promoted and protected. 
 Capitalism encourages the negative aspects of human nature, supplanting values such as mercy, kindness, justice and compassion in favor of greed, selfishness and blind ambition. I share the political goals of Marxists, for example replacing capitalism with socialism, which should in turn be followed by communism at a later point in the future. At any point even in gun point, if that cause my life I will stand against the suppressing Directorate General of Forces Intelligence (DGFI), the Bangladesh's Military Intelligence is behind the arrest of labor rights activist Moshrefa Mishu. I am against the inhuman torture, cross fire, disappearance which is mainly guided by DGFI and RAB. 
 He even applied the yellow journalism against my friend exiled journalism Jahangir Alam Akash.11
-I will ask the controversial journalist Shoaib to ask apology openly for his yellow journalism against me in his writing "Conspiracy against Bangladesh". 
-
-
-
-
- 
-
-
+I will ask the controversial journalist Shoaib to ask apology openly for his yellow journalism against me in his writing "Conspiracy against Bangladesh".
  
 
 <strong>Notes:</strong>

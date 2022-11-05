@@ -1,25 +1,15 @@
 ---
 Title: Bible Contradictions
 Tags:
-  - jesus
-  - myth
   - christianity
-  - christian
-  - contradiction
-  - bible
-  - biblical contradictions
-  - religion
-  - culture
+  - bible contradictions
   - Mukto-Mona Editor
 Published: 2009-01-30 03:41:34 +06:00
 Updated: 2009-01-30 10:14:43 +06:00
 OldURL: 2009/01/30/bible-contradictions/
 ---
 
-<h2><span style="color: #008000;">Bible Contradictions</span></h2>
-<h3><span style="color: #000080;">Dan Barker</span></h3>
-<hr />
-<p align="center"> </p>
+~ *Dan Barker*
 
 <blockquote><span style="color: #008000;"><strong>[Moderator's note: </strong>The following article is excerpted from Dan Barker's recent book,  "Godless". Dan Barker (born June 25, 1949) is a prominent American atheist activist who served as a Christian preacher and musician for 20 years, but left Christianity in 1984. After almost 20 years of evangelical preaching, missionizing, and Christian songwriting, Dan Barker <a href="https://ffrf.org/books/lfif/?t=lostfaith"><span style="color: #0000cc; font-family: Arial;">started loosing his faith in faith</span></a>. In Godless, Barker describes the intellectual and psychological path he followed in moving from fundamentalism to freethought. Godless includes sections on biblical morality, the historicity of Jesus, biblical contradictions, the unbelievable resurrection, and much more. It is an arsenal for skeptics and a direct challenge to believers. Along the way, Barker relates the positive benefit readers will experience from learning to trust in reason and human kindness instead of living in fear of false judgment and moral condemnation. He is the current co-president of the <a href="https://ffrf.org/"><span style="color: #0000cc; font-family: Arial;">Freedom From Religion Foundation</span></a>, an American Freethought organization that promotes the separation of church and state.</span>
 

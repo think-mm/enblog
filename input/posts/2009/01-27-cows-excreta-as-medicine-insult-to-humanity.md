@@ -2,24 +2,16 @@
 Title: Cow's Excreta as Medicine - Insult to Humanity
 Tags:
   - pseudoscience
-  - science p.o.v.
-  - hindu
   - hinduism
-  - rational scrutiny of hindu myth
-  - religion
-  - culture
-  - philosophy
   - india
-  - science
   - Srinivas Kakkilaya
 Published: 2009-01-27 19:13:39 +06:00
 Updated: 2009-08-27 23:08:09 +06:00
 OldURL: 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
 ---
 
- 
-<h2><span style="color: #008000;"><span style="font-weight: 400;">Cow's Excreta as Medicine: Insult to Humanity </span></span></h2>
-<h3><span style="font-weight: 400;"><span style="color: #000080;">Srinivas Kakkilaya </span></span></h3>
+~ *Srinivas Kakkilaya*
+
 <p style="text-align: justify;"><span style="font-family: Verdana;">The cow is, at the least, an animal domesticated by man for help in agricultural activities.[1]  Although the mighty machines now used in farming have made these animals irrelevant in agriculture, valiant attempts are being made, at least in India, to preserve the exalted position of the so called 'second mother' [2] or even 'mother of the world' [3,4].</span></p>
 
 <span style="font-family: Verdana;"> The stringent agitations to protect the 'cow-mother' [4,5] and even riots and murders of dalits for the sake of the cow,[6,7] suggest that the human life is far less important than a dead cow in this part of the world.[7] This extraordinary reverence for the cow has led to the development and marketing of many 'products' made from the secretions and excretions of the cow, with claims that these products may be more 'lucrative' than even the dairy.[8]</span>

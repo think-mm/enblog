@@ -1,14 +1,10 @@
 ---
 Title: Abduction, detention, cruel and inhuman treatment and interrogation by DGFI
 Tags:
-  - william gomes
   - dgfi
   - nsi
   - rab
-  - politics
-  - bangladesh
   - human rights
-  - activism
   - William Gomes
 Published: 2011-06-16 22:31:44 +06:00
 Updated: 2011-06-16 22:31:44 +06:00

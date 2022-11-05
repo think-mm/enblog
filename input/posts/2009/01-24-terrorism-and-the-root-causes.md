@@ -2,18 +2,14 @@
 Title: Terrorism and the Root Causes
 Tags:
   - terrorism
-  - root causes
-  - politics
-  - culture
   - Mukto-Mona Editor
 Published: 2009-01-24 02:54:34 +06:00
 Updated: 2009-01-24 02:54:34 +06:00
 OldURL: 2009/01/24/terrorism-and-the-root-causes/
 ---
 
+~ *Real Ahsan*
 
-<h2 style="text-align: center"><span style="font-weight: 400"><font color="#008000">Terrorism and the Root Causes </font></span></h2>
-<h3 style="text-align: center"><span style="font-weight: 400"><font color="#000080">Real Ahsan </font></span></h3>
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><font size="3">Terrorism, while an old phenomenon, has taken new dimensions over the last 8 years or so.  Why suddenly, this surge of terroristic activities and how they can be addressed to be eradicated from our societies.  Not an easy task by any standards.<o></o></font></span></p>
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><o></o></span></p>
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><font size="3">First, we need to agree that Extremism and Terrorism are not one and the same; while one responds with extreme measures in reaction to an event or an existing socio-economic or socio-political  situation or as a response to a direct measure of someone else that are often disproportionate to the existing or the applied force; the other however, spreads the senses of terror to induce fear among the general mass to attain certain pre-conceived response to an existing or introduced act of intervention.  There is a correlation between the two but one does not replace the other neither can one be super-imposed on the other.  With that definition in mind, I would start my analysis.<o></o></font></span></p>
@@ -38,5 +34,3 @@ OldURL: 2009/01/24/terrorism-and-the-root-causes/
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><font size="3">The second factor that turns people into terrorism is for economic reasons.  Economically deprived mass would very easily be recruited by the religious operatives.  Religion is a platform, where the economically disadvantaged people can easily take refuge and feel relieved. They turn to God for changing their economic dire situations.  The near to free healthcare, free food and charity becomes their lively hood and those acts are all managed by the organized religious groups.  These acts of charity and kindness turn them to a loyal and cohesive force that would be ready to sacrifice their lives for a cause that had made the social disparity in the first place.  The cumulative anger and stored frustration is the breeding ground for the onlookers to make their move and this is what becomes a breeding ground for the potential terror network to get started.  In conclusion, I would say that we directly or indirectly contribute to the process of developing the psyche of a future extremist or a terrorist and the opportunists with a plan and agenda takes advantage of them.<o></o></font></span></p>
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><o></o></span></p>
 <p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><font size="3">We can not solve this problem anytime soon until the economic and social deprivation our stamped out from our intelligent designs and a more equitable social architectures are put in place.  To be honest, the current upheavals, no matter where it stems from, the root causes are more economic than religion and religion has found an agenda and a just cause to thrive on. If the economic conditions and social justices are brought to bear, religions would not have that opportunity any more to bank on.<o></o></font></span></p>
-<p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><o></o></span></p>
-<p style="text-align: justify" class="MsoNormal"><span style="color: black; font-family: 'Cambria','serif'"><o></o></span></p>

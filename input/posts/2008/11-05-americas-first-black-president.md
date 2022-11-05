@@ -10,7 +10,7 @@ OldURL: 2008/11/05/americas-first-black-president/
 
 ![Democrat Barack Obama.(AP)](../../images/2008/10-30_obama-yahoo.jpg)
 
-The people of the United States have spoken and have selected Senator Barack Obama as their next President.  This highly-energized election brought out new voter groups and increased levels of involvement where Barack Obama beats John McCain and becomes the country’s first black president.  Congratulations to him on behalf of Mukto-Mona. 
+The people of the United States have spoken and have selected Senator Barack Obama as their next President.  This highly-energized election brought out new voter groups and increased levels of involvement where Barack Obama beats John McCain and becomes the country's first black president.  Congratulations to him on behalf of Mukto-Mona. 
 
 We believe, Obama with his youthful energy and enthusiasm will give USA and the rest of the world a better hope.   At this event of history, we should also remember Martin Luther King Jr. and all of the other martyrs who died for civil rights. We owe all of them for this moment.
 

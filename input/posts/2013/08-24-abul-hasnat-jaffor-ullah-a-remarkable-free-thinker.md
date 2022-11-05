@@ -1,13 +1,7 @@
 ---
 Title: Abul Hasnat Jaffor Ullah, a Remarkable Free-Thinker
 Tags:
-  - politics
-  - philosophy
-  - mukto-mona
-  - bangladesh
-  - human rights
-  - personality
-  - bangalee freethinker
+  - freethinker
   - Sukhamaya Bain
 Published: 2013-08-24 05:40:47 +06:00
 Updated: 2013-08-25 17:34:32 +06:00

@@ -39,5 +39,6 @@ At the Victory speech given at Grant Park before 125,000 people, Obama promised 
 Barack Obama is considered a visionary and transformative politician.  America needs a leader like him when bad times have fallen all across the nation.  He promised to bring a change in the way the government is run.  America is surely entering a new age with an African American president.  Let us hope that it is a new beginning not only for America but also for the world.
 
 -----
+*Dr. A.H. Jaffor Ullah* 
 
-~ *Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+- A researcher and columnist, writes from New Orleans, USA*

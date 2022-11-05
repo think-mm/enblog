@@ -41,7 +41,7 @@ Best of luck, America!
 
 
 ----
-*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/kasem/index.html)*
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
 - An employee of the NY state government; a secular activist and writer
 - Member of humanist network and "muktwanesha"-a Bangla magazine on science and rationalism published from Dhaka
 - Can be contacted at email: *worldcitizen73 at yahoo dot com* 

@@ -3,10 +3,9 @@ Title: Ansarullah Bangla Team - Genesis and Beyond
 Tags:
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - blogger killings
-  - bangladeshi bloggers
   - Siddhartha Dhar
 Published: 2016-08-03 22:00:03 +06:00
 Updated: 2016-08-05 04:03:01 +06:00

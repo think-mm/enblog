@@ -11,7 +11,7 @@ OldURL: 2008/11/08/is-barack-obama-black-a-response/
 
 ~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
-Professor Ajoy Roy, a retired pedagogue from Dhaka University , asked this question to members of Mukto-mona forum in the Internet after Barack Obama won the presidential election on November 4, 2008. He argued – Obama’s mother was a 100% white woman.   Why should he be considered a Black person?    Like Prof. Ajoy Roy, many folks allover the world are now very much interested knowing more about the first African American (or Black) President of America.
+Professor Ajoy Roy, a retired pedagogue from Dhaka University , asked this question to members of Mukto-mona forum in the Internet after Barack Obama won the presidential election on November 4, 2008. He argued – Obama's mother was a 100% white woman.   Why should he be considered a Black person?    Like Prof. Ajoy Roy, many folks allover the world are now very much interested knowing more about the first African American (or Black) President of America.
 
 
 If you look at the photo of Barack Obama you may think that he looks more like a Libyan, or a Somali man.  He quite does not look like a typical African person but why do American media call him the first ever Black President?  After all, his mother was 100% white.  The answer lies in the culture of America.
@@ -30,5 +30,8 @@ It is a fact that Barack Obama has 50% African genes due to the fact that his fa
 
 America is indeed a strange place.  Because of the history of slavery, the society still could not get rid of the prejudice it once had against the black people.  In my view, the racial profiling of people based on race has to end soon.  I however think that American society is headed in the right direction.  The people of this great nation have chosen Barack Obama to be their president with a big margin (53-46%).  This is a testament that the racial barriers are now coming down fast!
 
-----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*

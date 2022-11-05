@@ -38,6 +38,8 @@ India should take positive steps to find a permanent solution in Kashmir.  If th
 
 
 -----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*
 
 [this post on internet archive for mm enblog](https://web.archive.org/web/20191030050722/https://enblog.mukto-mona.com/2008/12/01/thanksgiving-day-mumbai-massacre-%E2%80%93-lesson-for-india)

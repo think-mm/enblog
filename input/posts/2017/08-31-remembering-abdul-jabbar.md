@@ -1,13 +1,8 @@
 ---
 Title: Remembering Abdul Jabbar
 Tags:
-  - bangladesh
-  - personality
   - liberation war
-  - bangalee freethinker
-  - society
-  - freethinking
-  - history
+  - freethinker
   - Sukhamaya Bain
 Published: 2017-08-31 08:51:36 +06:00
 Updated: 2017-09-05 17:57:50 +06:00
@@ -35,6 +30,3 @@ To make the story short, in October of that year BANE celebrated Bijoya Reunion,
 My wife, Anjali Bain, actually trained for freedom fight in 1971; and she was more emotional than me about bringing the Islamic fanatics to task. She decided to read those 'words of wisdom' in the Victory Day program. As she spoke about the fanatics spreading of hatred within the Bangladeshi community, many in the audience shouted "shame, shame" to those 'words of wisdom'. Muhammed Abdul Jabbar was on the podium at that time; and as he felt the pain in her mind, the fighter in him for a Bangladesh for all its people got quite a bit angry. He expressed his surprise that even after coming and staying abroad, people had so narrow minds. He told the fanatics that they had caused pain in the mind of his sister, and admonished them by saying that they should be ashamed of themselves in spite of their academic accomplishments and establishments in the USA.
 
 The great soul named Muhammed Abdul Jabbar has died at the age of about 80 years. I feel fortunate and humble that I was able to interact with him at a personal level for about two days. Lal Salam (Red Salute), Jabbar Bhai!
-
-
-

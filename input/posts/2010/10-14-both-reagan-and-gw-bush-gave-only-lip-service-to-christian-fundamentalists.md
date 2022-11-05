@@ -1,8 +1,7 @@
 ---
 Title: Both Reagan and G.W. Bush gave only lip service to Christian Fundamentalists
 Tags:
-  - christian fundamentalists
-  - culture
+  - christianity
   - A. H. Jaffor Ullah
 Published: 2010-10-14 11:37:14 +06:00
 Updated: 2010-10-14 11:37:14 +06:00

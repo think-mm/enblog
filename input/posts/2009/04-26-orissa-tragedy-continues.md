@@ -1,16 +1,10 @@
 ---
 Title: Orissa - Tragedy Continues
 Tags:
-  - hindutva
-  - 'orissa: tragedy continues'
   - bjp
-  - anti christian violence orissa
-  - hinuism
-  - religion
   - india
   - human rights
   - terrorism
-  - society
   - Ram Puniyani
 Published: 2009-04-26 03:20:08 +06:00
 Updated: 2009-07-15 08:39:31 +06:00

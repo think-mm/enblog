@@ -2,24 +2,16 @@
 Title: Would any aspiring president dare to emulate Bush's legacy?
 Tags:
   - obama
-  - politics
-  - bush
-  - america
-  - president
-  - culture
-  - international
-  - personality
+  - us election
   - A. H. Jaffor Ullah
 Published: 2009-01-21 19:41:48 +06:00
 Updated: 2009-07-09 18:17:41 +06:00
 OldURL: 2009/01/21/would-any-aspiring-president-dare-to-emulate-bush%e2%80%99s-legacy/
 ---
 
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)* 
 
-<p align="center"><font size="5" color="#008000" face="Garamond"><strong>Would any aspiring president dare to emulate Bush's legacy?</strong></font></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 11pt"><font size="4" face="Garamond"><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></font></span></p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
+
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond"><span id="lw_1232550987_0" class="yshortcuts">George Bush</span>'s presidency was over by the <span id="lw_1232550987_1" class="yshortcuts">time Joe Biden</span> took the oath for the office of Vice President administered by <span id="lw_1232550987_2" class="yshortcuts">Supreme Court Justice Stevens</span>.  Be mindful that <span id="lw_1232550987_3" class="yshortcuts">Barack Obama</span>'s oath taking ceremony had not taken place at the time.  The <span id="lw_1232550987_4" class="yshortcuts">U.S. constitution states</span> that the <span id="lw_1232550987_5" class="yshortcuts">outgoing president</span> ceases to be the chief executive of the <span id="lw_1232550987_6" class="yshortcuts">Federal government</span> when the VP is sworn in.</font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>
@@ -48,8 +40,8 @@ OldURL: 2009/01/21/would-any-aspiring-president-dare-to-emulate-bush%e2%80%99s-l
 <p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">American historians those specializing in US government will probably judge George Bush very negatively and unkindly. Before his tenure could expire, many a historian has said openly that George Bush would make a failing grade as a president.  It is very doubtful whether any future president would emulate his presidency as a model to follow.  The Iraq War, the collapse in the financial world due to excessive subprime lending, a deep recession caused by excesses in the home building sector, a blatant disregard for human rights of captured foreign soldiers, etc., will remain Bush's failure and emblematic of a failed presidency.  His was a legacy of failed <span id="lw_1232550987_32" class="yshortcuts">public policies</span>.  Bush never did consult a large body of intellectuals and experts in the field and this is perhaps is the reason why his public policies never blossomed but instead withered in the vine.</font></span></p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
 
-<hr />
-<p style="margin: 0in 0in 0pt" class="MsoNormal">&nbsp;</p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans , USA</font></span></p>
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA* 

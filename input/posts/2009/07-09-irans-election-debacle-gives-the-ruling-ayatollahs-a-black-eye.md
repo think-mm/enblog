@@ -10,15 +10,9 @@ Updated: 2009-07-09 19:52:46 +06:00
 OldURL: 2009/07/09/iran%e2%80%99s-election-debacle-gives-the-ruling-ayatollahs-a-black-eye/
 ---
 
-<div>
-<p align="center"><strong><span style="font-size: large; color: #008000; font-family: Garamond;">Iran's election debacle gives the ruling Ayatollahs a black eye</span></strong> </p>
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
 
-</div>
-<div>
-<p align="center"><strong><span style="font-size: medium; font-family: Garamond;"><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></span></strong></p>
 
-</div>
-<div> </div>
 <div>
 <p align="justify"><span style="font-size: medium; font-family: Garamond;">Iran's ruling clerics may erroneously think that their nation elects its president democratically; however, it is far from that.  The only semblance of democracy lies in the fact that Iranians go to poll to cast their ballots.  And that is where the similarity ends.  After the ousting of Shah of Iran in 1979 the clergies have instituted a foolproof system of governance where a select few Ayatollahs are calling the shot.</span></p>
 
@@ -149,9 +143,10 @@ Mousavi's speech came at a time when as the country's top three reformist leader
 <p align="justify"> </p>
 
 </div>
-<div>
-<p align="justify"><span style="font-size: medium; font-family: Garamond;">In summary, two groups of Ayatollahs are fighting to capture the seat of power in Tehran.  From the look of it, it seems as if the hardliners are in control at this point. Would the supreme leader annul the June 12 election to keep dissident clergies under his fold?  Stay tuned.  No one really knows what the next act would be like.  This is the fight between two groups of Mullahs what the West was looking forward to for a long time.  One thing is for sure —there will be casualties.  Will Iran implode as these two groups of clergies fight it out for the control of political power?
----------------
-Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA</span>
 
-</div>
+<p align="justify"><span style="font-size: medium; font-family: Garamond;">In summary, two groups of Ayatollahs are fighting to capture the seat of power in Tehran.  From the look of it, it seems as if the hardliners are in control at this point. Would the supreme leader annul the June 12 election to keep dissident clergies under his fold?  Stay tuned.  No one really knows what the next act would be like.  This is the fight between two groups of Mullahs what the West was looking forward to for a long time.  One thing is for sure —there will be casualties.  Will Iran implode as these two groups of clergies fight it out for the control of political power?
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA* 

@@ -1,7 +1,6 @@
 ---
 Title: Stop this Insanity
 Tags:
-  - bangladesh
   - Guest Writer
 Published: 2016-08-23 11:47:07 +06:00
 Updated: 2016-08-23 11:47:07 +06:00

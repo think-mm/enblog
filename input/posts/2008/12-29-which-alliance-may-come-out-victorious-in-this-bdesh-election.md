@@ -1,5 +1,5 @@
 ---
-Title: Which alliance may come out victorious in this B'desh election?
+Title: Which alliance may come out victorious in this Bangladesh election?
 Tags:
   - bd election 2008
   - A. H. Jaffor Ullah
@@ -8,11 +8,8 @@ Updated: 2009-07-09 18:18:48 +06:00
 OldURL: 2008/12/29/which-alliance-may-come-out-victorious-in-this-b%e2%80%99desh-election/
 ---
 
-<font size="2" face="Arial"> </font>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="5" color="#008000" face="Garamond"><strong>Which alliance may come out victorious in this B'desh election?</strong></font></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
-<p align="center" style="margin: 0in 0in 0pt" class="MsoNormal"><font size="4" face="Garamond"><strong><a href="https://gold.mukto-mona.com/Articles/jaffor/index.html">A.H. Jaffor Ullah</a></strong></font></p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 8pt"></span></p>
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)*
+
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">Living in America it gets very difficult to know the voters' sentiment.  And an abbreviated campaign season also added uncertainty to making a prediction.  Thus, I relied more on Bangladesh media to receive information and to know which party might secure more seats in the parliament.  </font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">Only 3-4 days before the election one news caught my attention.  <span style="cursor: hand; border-bottom: #0066cc 1px dashed" id="lw_1230532697_0" class="yshortcuts">Khaleda Zia</span> asked the voters for forgiveness for the mistakes her administration have done during 2001 through 2006.  This is telling me in volume that she has sensed that her party and alliance may lose the election.  We have to wait only 2-3 days to know whether that might have been the case.</font></span></p>
@@ -28,5 +25,9 @@ OldURL: 2008/12/29/which-alliance-may-come-out-victorious-in-this-b%e2%80%99desh
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">Of the two evils, the BNP and Awami League, the military probably thought that the Awami League is a lesser evil.  What role the military played to unite Jatio Party (JP- Ershad) with AL 's alliance is an open question.  When Khaleda Zia says that a conspiracy was hatched to keep her from assuming power, she means that the military has decided that BNP should not be allowed to come to power at least at this time.  </font></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"></span></p>
 <p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">The election is being held today and in all likelihood we will know the result by tomorrow.  This writer won't be surprised if Awami alliance receives over 50 to 55% parliamentary seats in this election. Therefore, stay tuned for the final verdict.        </font></span></p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">--------------------------</font></span></p>
-<p style="margin: 0in 0in 0pt" class="MsoNormal"><span style="font-size: 10pt"><font size="4" face="Garamond">A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans , USA</font></span></p>
+
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA* 

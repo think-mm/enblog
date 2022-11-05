@@ -1,9 +1,7 @@
 ---
 Title: Terror in the Name of God
 Tags:
-  - islam
   - india
-  - human rights
   - terrorism
   - Jahed Ahmed
 Published: 2008-12-02 06:55:42 +06:00
@@ -66,4 +64,4 @@ _Jahed Ahmed on behalf of Yoginder Sikand_
 -----
 *Yoginder Sikand is a freelance writer, working out of Bangalore and Delhi. He is the author of several books on Islam-related issues in India. He is the editor and primary writer of Qalandar, a monthly electronic publication covering relations between Muslims and followers of other religions. Mr. Sikand is a staunch and a strident critic of Hindutva organizations.*
 
-[this post on internet archive for mm enblog](https://web.archive.org/web/20191030050704/https://enblog.mukto-mona.com/2008/12/02/terror-in-the-name-of-god)
+- [this post on internet archive for mm enblog](https://web.archive.org/web/20191030050704/https://enblog.mukto-mona.com/2008/12/02/terror-in-the-name-of-god)

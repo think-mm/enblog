@@ -2,7 +2,6 @@
 Title: Our past ceremonial presidents and hope for the next
 Tags:
   - bd election 2008
-  - hasina
   - Anwarul Kabir
 Published: 2009-01-15 17:56:22 +06:00
 Updated: 2009-07-21 20:28:54 +06:00

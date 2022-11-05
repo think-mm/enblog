@@ -14,23 +14,23 @@ OldURL: 2008/11/30/allah-plays-with-his-souls-part-2/
 
 [From Part-1](https://en.muktomona.com/posts/2008/11-25-allah-plays-with-his-souls)
 
-### Allah’s Soul impregnates Mary
+### Allah's Soul impregnates Mary
 
-In part 1, we read that according ibn Kathir (verse 2:87) Allah’s Soul is Gabriel, the archangel. Because of this lofty position, Allah also calls Gabriel Ruh al‑Quddus, the Holy Soul or the Holy Spirit. This is akin to the Christians’ concept of the Holy Ghost.  In this part, we shall read how Allah’s Soul also impregnated Mary, the mother of Jesus. The Christians believe that a Holy Ghost had made Mary pregnant.
+In part 1, we read that according ibn Kathir (verse 2:87) Allah's Soul is Gabriel, the archangel. Because of this lofty position, Allah also calls Gabriel Ruh al‑Quddus, the Holy Soul or the Holy Spirit. This is akin to the Christians' concept of the Holy Ghost.  In this part, we shall read how Allah's Soul also impregnated Mary, the mother of Jesus. The Christians believe that a Holy Ghost had made Mary pregnant.
 
 Ibn Ishaq (pp.270‑272) writes that a sixty‑member delegate of Christians from Najaran came to Muhammad to debate about religious matter. Muhammad commanded them to submit to Islam. They were adamant they already believed in Allah and Jesus. But Muhammad was not satisfied. He insisted that because of their belief in Trinity and because of their consumption of pork, they have been excluded from the assembly of believers. The leaders of the delegation explained to Muhammad that because there was no known father of Jesus, they called Jesus the son of God. Then they asked Muhammad who he thought was the father of Jesus. Muhammad remained silent; he had no answer. So Allah sent down a few verses of Sura al‑Imran (Sura 3) and Sura Maryam (Sura 19).
 
 In verse 3:49 Allah claimed that Jesus could make the figure of a bird in clay, and with the blessing of Allah, breathed life into it; healed the blind and the lepers.
 
-Jalalyn, one of the most respected exegetes of the Qur’an writes that Gabriel breathed into the opening of Maryam’s garment and she became pregnant.
+Jalalyn, one of the most respected exegetes of the Qur'an writes that Gabriel breathed into the opening of Maryam's garment and she became pregnant.
 
 In verse 19:17, Allah told Muhammad that an angel (only one angel; contradiction: 3:43, 45 say several angels visited Mary), as a man, appeared to Mary.
 
-According to ibn Kathir, the angel was Gabriel, Allah’s soul. He appeared to her complete and perfect in the shape of a man. Gabriel is Allah’s Ruh or Soul.
+According to ibn Kathir, the angel was Gabriel, Allah's soul. He appeared to her complete and perfect in the shape of a man. Gabriel is Allah's Ruh or Soul.
 
-In 19:18, we read that Mary sought protection of Allah from the angel who came to her in the shape of a man. As per ibn Kathir, Mary thought the man (angel) was about to rape her. This means Allah’s soul, Gabriel, was menacing. Mary was petrified that this Allah’s soul might molest her.
+In 19:18, we read that Mary sought protection of Allah from the angel who came to her in the shape of a man. As per ibn Kathir, Mary thought the man (angel) was about to rape her. This means Allah's soul, Gabriel, was menacing. Mary was petrified that this Allah's soul might molest her.
 
-Allah’s Soul, archangel Gabriel, informed Mary that Allah is capable of doing anything; her son (Jesus) would be a sign from Allah.
+Allah's Soul, archangel Gabriel, informed Mary that Allah is capable of doing anything; her son (Jesus) would be a sign from Allah.
 
 Jalalyn writes that Gabriel breathed into the opening of her shirt, whereupon she sensed the formed foetus in her womb.
 
@@ -40,11 +40,11 @@ Ibn Kathir writes:
 
 > …the angel (who was Jibril) blew into the opening of the garment that she was wearing. Then the breath descended until it entered into her vagina and she conceived the child.
 
-This means Allah’s Soul, Gabriel, carried in his breath the seed of Allah, which induced Mary’s pregnancy.
+This means Allah's Soul, Gabriel, carried in his breath the seed of Allah, which induced Mary's pregnancy.
 
-In verse 21:91, we read that Mary guarded her chastity (sexual organ). Allah breathed into her His spirit, the Ruh. Thus, Allah made her and her son (Jesus) signs for all people. Note that Allah did not specifically mention that the Ruh or the Soul was Gabriel. So we can be certain that it was Allah’s seed that caused Mary’s pregnancy, and not the seed of Gabriel.
+In verse 21:91, we read that Mary guarded her chastity (sexual organ). Allah breathed into her His spirit, the Ruh. Thus, Allah made her and her son (Jesus) signs for all people. Note that Allah did not specifically mention that the Ruh or the Soul was Gabriel. So we can be certain that it was Allah's seed that caused Mary's pregnancy, and not the seed of Gabriel.
 
-Jalalyn writes that the Ruh in 21:91 was Gabriel, and Gabriel breathed into the opening of Mary’s garment and she became pregnant.
+Jalalyn writes that the Ruh in 21:91 was Gabriel, and Gabriel breathed into the opening of Mary's garment and she became pregnant.
 
 Let us read in full what ibn Kathir writes on 21:91:
 
@@ -78,31 +78,31 @@ It appears that the Qur'an supports the Christians assertion that Jesus is the s
 
 The scenario of the creation of Jesus can be summed up in this manner:
 
-Allah gave Gabriel His (Allah’s) seed.
+Allah gave Gabriel His (Allah's) seed.
 
 Allah sent His Soul or Spirit, Gabriel, to impregnate Mary.
 
 Gabriel brought with him the seed of Allah.
 
-Gabriel opened Mary’s garment and inserted Allah’s seed inside Mary’s vagina.
+Gabriel opened Mary's garment and inserted Allah's seed inside Mary's vagina.
 
-Mary became pregnant with Allah’s seed.
+Mary became pregnant with Allah's seed.
 
 Mary gave birth to Jesus.
 
-Jesus became Allah’s Soul, the Son.
+Jesus became Allah's Soul, the Son.
 
-Maulana Asad translates that Jesus was Allah’s soul. Let us read 4:171 as translated by him:
+Maulana Asad translates that Jesus was Allah's soul. Let us read 4:171 as translated by him:
 
-**4:171 Maulana Asad**: O FOLLOWERS of the Gospel! Do not overstep the bounds [of truth] in your religious beliefs, and do not say of God anything but the truth. The Christ Jesus, son of Mary, was but God’s Apostle – [the fulfillment of] His promise which He had conveyed unto Mary – and a soul created by Him. Believe, then, in God and His apostles, and do not say, "[God is] a trinity". Desist [from this assertion] for your own good. God is but One God; utterly remote is He, in His glory, from having a son: unto Him belongs all that is in the heavens and all that is on earth; and none is as worthy of trust as God.
+**4:171 Maulana Asad**: O FOLLOWERS of the Gospel! Do not overstep the bounds [of truth] in your religious beliefs, and do not say of God anything but the truth. The Christ Jesus, son of Mary, was but God's Apostle – [the fulfillment of] His promise which He had conveyed unto Mary – and a soul created by Him. Believe, then, in God and His apostles, and do not say, "[God is] a trinity". Desist [from this assertion] for your own good. God is but One God; utterly remote is He, in His glory, from having a son: unto Him belongs all that is in the heavens and all that is on earth; and none is as worthy of trust as God.
 
 In a footnote Maulana Asad writes this comment:
 
-> Footnote 181: Lit., "His word which He conveyed unto Mary and a soul from Him". According to Tabari, the "word" (kalimah) was "the announcement (risalah) which God bade the angels to convey to Mary, and God’s glad tiding to her" (a reference to 3: 45) – which justifies the rendering of kalimatuhu as "[the fulfilment of] His promise". (See also note on 3: 39.) As regards the expression, "a soul from Him" or "created by Him", it is to be noted that among the various meanings which the word ruh bears in the Qur’an (e.g., "inspiration" in 2: 87 and 253), it is also used in its primary significance of "breath of life", "soul", or "spirit": thus, for instance, in 32: 9, where the ever-recurring evolution of the human embryo is spoken of: "and then He forms him [i.e., man] and breathes into him of His spirit" – that is, endows him with a conscious soul which represents God’s supreme gift to man and is, therefore, described as "a breath of His spirit". In the verse under discussion, which stresses the purely human nature of Jesus and refutes the belief in his divinity, the Qur’an points out that Jesus, like all other human beings, was "a soul created by Him".
+> Footnote 181: Lit., "His word which He conveyed unto Mary and a soul from Him". According to Tabari, the "word" (kalimah) was "the announcement (risalah) which God bade the angels to convey to Mary, and God's glad tiding to her" (a reference to 3: 45) – which justifies the rendering of kalimatuhu as "[the fulfilment of] His promise". (See also note on 3: 39.) As regards the expression, "a soul from Him" or "created by Him", it is to be noted that among the various meanings which the word ruh bears in the Qur'an (e.g., "inspiration" in 2: 87 and 253), it is also used in its primary significance of "breath of life", "soul", or "spirit": thus, for instance, in 32: 9, where the ever-recurring evolution of the human embryo is spoken of: "and then He forms him [i.e., man] and breathes into him of His spirit" – that is, endows him with a conscious soul which represents God's supreme gift to man and is, therefore, described as "a breath of His spirit". In the verse under discussion, which stresses the purely human nature of Jesus and refutes the belief in his divinity, the Qur'an points out that Jesus, like all other human beings, was "a soul created by Him".
 
 But Allah contradicts Himself. In the very next verse Allah says Jesus was His servant.
 
-**4:172 Maulana Asad**: Never did the Christ feel too proud to be God’s servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself: (**4:173**) whereupon unto those who attained to faith and did good deeds He will grant their just rewards, and give them yet more out of His bounty; whereas those who felt too proud and gloried in their arrogance He will chastise with grievous suffering: and they shall find none to protect them from God, and none to bring them succour.
+**4:172 Maulana Asad**: Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself: (**4:173**) whereupon unto those who attained to faith and did good deeds He will grant their just rewards, and give them yet more out of His bounty; whereas those who felt too proud and gloried in their arrogance He will chastise with grievous suffering: and they shall find none to protect them from God, and none to bring them succour.
 
 Disturbed by such an imbroglios mind of Allah, one anonymous Islamist writer attempts to [distinguish between a Soul (nafs) and a Spirit (Ruh)](http://www.altway.freeuk.com/Views/View-23.htm). He writes:
 
@@ -112,15 +112,15 @@ This obfuscation continues when this Islamist writer continues:
 
 > The soul may be regarded as a local organization of the spirit and contains the information relating to the individual (his inherited and acquired characteristics and those created by his own efforts at integration).
 
-This attempt is silly, fatuous and a sign of desperation, for, nowhere in the Qur’an Allah says that the Spirit is a Universal Principle. In part 3 we shall learn that when the Jews asked Muhammad about his claim of visitation by a Spirit, Muhammad replied that the knowledge of spirit was only with Allah. Later, Muhammad said that the spirit was Gabriel. The Jews replied that they could not accept Muhammad as their messenger as they considered spirit Gabriel as their enemy. We also noted that most exegetes of the Qur’an consider Muhammad’s Soul was Gabriel. In this context, there is virtually no difference between an Islamic spirit and an Islamic soul.
+This attempt is silly, fatuous and a sign of desperation, for, nowhere in the Qur'an Allah says that the Spirit is a Universal Principle. In part 3 we shall learn that when the Jews asked Muhammad about his claim of visitation by a Spirit, Muhammad replied that the knowledge of spirit was only with Allah. Later, Muhammad said that the spirit was Gabriel. The Jews replied that they could not accept Muhammad as their messenger as they considered spirit Gabriel as their enemy. We also noted that most exegetes of the Qur'an consider Muhammad's Soul was Gabriel. In this context, there is virtually no difference between an Islamic spirit and an Islamic soul.
 
 In the following verse Allah says:
 
-**16:102 Hilali and Khan**: Say (O Muhammad) Ruh-ul-Qudus [Jibrael (Gabriel)] has brought it (the Qur’an) down from your Lord with truth, that it may make firm and strengthen (the Faith of) those who believe and as a guidance and glad tidings to those who have submitted (to Allâh as Muslims).
+**16:102 Hilali and Khan**: Say (O Muhammad) Ruh-ul-Qudus [Jibrael (Gabriel)] has brought it (the Qur'an) down from your Lord with truth, that it may make firm and strengthen (the Faith of) those who believe and as a guidance and glad tidings to those who have submitted (to Allâh as Muslims).
 
 And here is more from Allah:
 
-**26:192 Hilali and Khan**: And truly, this (the Qur’ân) is a revelation from the Lord of the ‘Alamîn (mankind, jinns and all that exists),
+**26:192 Hilali and Khan**: And truly, this (the Qur'ân) is a revelation from the Lord of the 'Alamîn (mankind, jinns and all that exists),
 **26:193 Hilali and Khan** Which the trustworthy Rûh [Jibrael (Gabriel)] has brought down;
 26:194 Upon your heart (O Muhammad) that you may be (one) of the warners,
 

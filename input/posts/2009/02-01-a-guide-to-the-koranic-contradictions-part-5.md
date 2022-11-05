@@ -1,12 +1,7 @@
 ---
 Title: A Guide to the Qur'anic Contradictions (Part-5)
 Tags:
-  - islam
-  - koran
-  - contradictions
   - koranic contradictions
-  - religion
-  - culture
   - Abul Kasem
 Published: 2009-02-01 12:20:20 +06:00
 Updated: 2009-05-17 09:40:01 +06:00

@@ -23,4 +23,6 @@ Avijit Roy posted a message in the forum telling us that he added a link to the 
 
 
 -----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*

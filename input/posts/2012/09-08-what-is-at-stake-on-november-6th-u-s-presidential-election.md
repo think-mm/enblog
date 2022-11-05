@@ -1,16 +1,14 @@
 ---
 Title: What is at stake on November 6th U.S. presidential election?
 Tags:
-  - u.s. presidential election
-  - politics
-  - philosophy
-  - international
-  - society
+  - us election
   - A. H. Jaffor Ullah
 Published: 2012-09-08 11:14:43 +06:00
 Updated: 2012-09-08 21:26:17 +06:00
 OldURL: 2012/09/08/what-is-at-stake-on-november-6th-u-s-presidential-election/
 ---
+
+~ *[A.H. Jaffor Ullah](https://gold.mukto-mona.com/Articles/jaffor/index.html)* 
 
 <img src="https://www.theamericandishtv.com/blog/wp-content/uploads/2010/06/Election.jpg" alt="" width="425" height="266" />I have witnessed many a presidential election in the U.S. starting from Richard Nixon versus George McGovern in 1972 ending in Obama versus McCain in 2008 but never before have I seen an election which is about to be so closely contested.  Another thing is also very different this time.  The big money had entered the contest.  Thanks to the U.S. Supreme Court which gave its approval to the U.S. companies to contribute as much they wished to any candidate. Thus, contributions are pouring in and this is helping the Republican candidate, Mitt Romney and his supporters to bombard the airwaves with negative ad against Obama to confuse the voters in tossup states such as Ohio, Florida, Iowa, Virginia, Wisconsin, Colorado, New Hampshire, and a few more states.
 
@@ -27,5 +25,9 @@ From the above-mentioned examples it is very clear that it matters who is at the
 Both in Tampa and Charlotte conventions, Republicans and Democrats have amply expressed their vision for America.  The Republican candidate, Mitt Romney, represents the views of conservative people who prefer a smaller government but a big military budget and no government oversight of industries. Not to mention their disdain for social programs that helps the needy Americans. Contrast this vision with that of the Democrats who believe in shared prosperity, universal healthcare, strengthening education system via government spending to produce skilled workers, technicians, researchers, etc.  Democrats view the present tax code to favor the rich while Republicans views on tax are status quo. A stark contrast does exist between the visions these two parties have for economy, social welfare, education, environment, and military.
 
 Which party will come out victorious in this election?  All the recent polls indicate that the election will be too close but when it comes to Electoral College, Obama may have an edge over Mitt Romney.  Obama Administration may not have put the economy in the fast track but it has certainly saved the nation from a free fall and an economic meltdown.  Would the voters think about it for a moment before pressing the lever in the privacy of the voting booth?  A new administration in Washington may mean a new direction. The tweaking of a fragile economy could be risky to say the least.  Would Americans go for that? The election is hardly 60 days away. Many things could happen between now and the Election Day. Therefore, stay tuned.
-----------------------
-A.H. Jaffor Ullah writes from New Orleans, USA
+
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*

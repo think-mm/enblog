@@ -35,8 +35,11 @@ I read earlier this year in a report that Hispanic population is rising faster a
 
 It is often said that morning shows the day.  If this is the beginning, who knows what Obama is going to say in the next four years?  I don't know about others, but I sure will listen to every word that he will say.  I believe some of the thing he will say in public may shock many Americans.  Three cheers to Obama for ushering in an American glasnost. 
 
--------
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+
+-----
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*
 
 
 [this post on internet archive for mm enblog](https://web.archive.org/web/20191030054619/https://enblog.mukto-mona.com/2008/11/10/self-deprecation-is-an-art-reserved-only-for-barack-obama)

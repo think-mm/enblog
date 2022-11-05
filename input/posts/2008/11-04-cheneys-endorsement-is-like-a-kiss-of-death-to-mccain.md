@@ -33,4 +33,6 @@ During the presidential campaign John McCain stayed far away from Bush-Cheney du
 
 
 -----
-*Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans, USA*
+*Dr. A.H. Jaffor Ullah* 
+
+- A researcher and columnist, writes from New Orleans, USA*
