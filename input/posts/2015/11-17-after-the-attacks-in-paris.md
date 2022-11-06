@@ -4,7 +4,7 @@ Tags:
   - religion
   - culture
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-11-17 13:22:49 +06:00

@@ -3,12 +3,11 @@ Title: THE LAPTOP JIHADI
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - india
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-12-15 16:58:43 +06:00

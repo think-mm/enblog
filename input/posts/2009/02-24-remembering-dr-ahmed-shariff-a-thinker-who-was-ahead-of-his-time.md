@@ -1,18 +1,13 @@
 ---
 Title: Remembering Dr. Ahmed Shariff - A thinker who was ahead of his time
 Tags:
-  - dr. ahmed shariff
-  - bangladesh
-  - philosophy
   - Jahed Ahmed
 Published: 2009-02-24 00:30:45 +06:00
 Updated: 2009-03-03 02:18:10 +06:00
 OldURL: 2009/02/24/remembering-dr-ahmed-shariff-a-thinker-who-was-ahead-of-his-time/
 ---
 
-(originally written on 24th Februray, 2008, on the ninth death anniversary of Prof. Ahmed Shariff)
-
--Jahed Ahmed
+~ [*Jahed Ahmed*](https://gold.mukto-mona.com/Articles/jahed/index.html)
 
 The year was nineteen ninety-nine. Finishing off Master's degree from India, I had returned Bangladesh a year ago, and was preparing myself for graduate studies in the USA. Because of reasons—personal as well as non-personal—for the first time in life, interest in philosophy was rapidly growing in me.
 
@@ -32,21 +27,29 @@ As I studied more, I discovered that the belief in God or religion, not necessar
 
 Born in 1921 in Chittagong, Ahmed Sharif spent most of student and professional life in Dhaka. He's regarded as an authority on the medieval Bangla literature, although in his thoughts and writings, Prof. Ahmed Sharif was far ahead than many of today's modernists. Author of more than fifty thought-provoking books, Prof. Sharif was a true rebel and a rationalist who—despite all the odds and hostilities from the reactionary forces—never hesitated to act according to his beliefs. No wonder, his students include such eminent intellectuals as Dr. Humayun Azad, author Ahmed Sofa, educationalist Abdullah Abu Sayeed, eminent dramatist Dr. Salim Al Din—to name a few.
 
-"Our first and foremost identity is that we are human beings; our last identity is that we are human beings. Our aim should not be to remain a Hindu-Buddhist-Christian-Muslim, but to live as a human being," wrote Ahmed Sharif in his personal diary, one of his last pieces, published posthumously in the weekly 2000. That, succinctly, sums up the whole philosophy of Sharif.
+> Our first and foremost identity is that we are human beings; our last identity is that we are human beings. Our aim should not be to remain a Hindu-Buddhist-Christian-Muslim, but to live as a human being,
+
+wrote Ahmed Sharif in his personal diary, one of his last pieces, published posthumously in the weekly 2000. That, succinctly, sums up the whole philosophy of Sharif.
 
 More than anything else, Dr. Sharif was a rationalist human being. That is how, I believe, the history would always remember this unparalleled thinker of Bangali origin.
 
 Hats off to Ahmed Sharif on this 24th February, 2009, his tenth death anniversary.
 
--------
-
 New York
-02.23.2009
+02.23.2009 *(written on 24th Februray, 2008, on the ninth death anniversary of Prof. Ahmed Shariff)*
 
-P.S. Here are links to two more articles (by Dr. Nehal Karim) on Ahmed Shariff published in the  Daily Star &amp; the daily New Age in Bangladesh:
-
+P.S. Here are links to two more articles (by Dr. Nehal Karim) on Ahmed Shariff published in the  Daily Star & the daily New Age in Bangladesh,
 1. https://www.thedailystar.net/newDesign/news-details.php?nid=77145#
-
 2. https://www.newagebd.com/2009/feb/24/oped.html
 
-<span style="font-size: 8pt;">About the writer: Jahed Ahmed is employed in the New York State Dept. of Agriculture and Markets. He is involved <span style="color: black;">with <a href="https://muktomona.com/"><span style="color: black;">www.muktomona.com</span></a>, a South Asian network of humanists and freethinkers, and the Muktanwesha, a science and reason based magazine published from Dhaka. E-mail: <a href="mailto:worldcitizen73@yahoo.com"><span style="color: black;">worldcitizen73@yahoo.com</span></a></span></span>
+
+----
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
+- Can be contacted at email: *worldcitizen73 at yahoo dot com* 
+
+
+Additional tags:
+- dr. ahmed shariff

@@ -1,7 +1,6 @@
 ---
 Title: Meandering thoughts on Darwin's bicentennial
 Tags:
-  - mukto-mona
   - darwin day celebration
   - darwin day
   - philosophy

@@ -1,7 +1,6 @@
 ---
 Title: Bar Moudud Ahmed, May I Have Your Attention Please
 Tags:
-  - bangladesh
   - liberation war
   - 1971 genocide
   - Shazzad Khan

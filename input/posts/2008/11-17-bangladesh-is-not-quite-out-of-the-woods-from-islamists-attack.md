@@ -3,7 +3,6 @@ Title: Bangladesh is not quite out of the woods from Islamists' attack!
 Tags:
   - religion
   - culture
-  - bangladesh
   - A. H. Jaffor Ullah
 Published: 2008-11-17 21:45:28 +06:00
 Updated: 2009-07-09 18:19:50 +06:00

@@ -2,7 +2,6 @@
 Title: IHEU condemns the Arrests of Atheist Bloggers in Bangladesh
 Tags:
   - Atheist Bloggers
-  - bangladesh
   - shahbagh movement 2013
   - Mukto-Mona Editor
 Published: 2013-04-05 03:48:18 +06:00

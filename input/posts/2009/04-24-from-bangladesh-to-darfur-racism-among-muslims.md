@@ -2,7 +2,6 @@
 Title: From Bangladesh to Darfur - Racism among Muslims
 Tags:
   - politics
-  - bangladesh
   - human rights
   - 1971 genocide
   - Tarek Fatah

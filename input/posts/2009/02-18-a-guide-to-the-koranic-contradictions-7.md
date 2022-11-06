@@ -177,6 +177,13 @@ OldURL: 2009/02/18/a-guide-to-the-qur%e2%80%99anic-contradictions-7/
 <p class="MsoNormal"><span style="COLOR: #c00000">End of Part 7</span></p>
 <p class="MsoNormal" align="right">To be continued in <a href="https://enblog.muktomona.com/?p=198">part 8</a>.</p>
 
-<hr />
-<p class="MsoNormal">Abul Kasem writes from Sydney, Australia. Send your comments to <a style="COLOR: blue; TEXT-DECORATION: underline; text-underline: single" href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a></p>
-<p class="MsoNormal"> </p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

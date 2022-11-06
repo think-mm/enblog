@@ -7,7 +7,6 @@ Tags:
   - domestic work
   - maids
   - culture
-  - bangladesh
   - human rights
   - society
   - activism

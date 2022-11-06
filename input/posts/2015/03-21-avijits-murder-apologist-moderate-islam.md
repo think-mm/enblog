@@ -3,13 +3,11 @@ Title: AVIJIT'S MURDER &amp; APOLOGIST MODERATE ISLAM
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-03-21 20:45:41 +06:00

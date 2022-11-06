@@ -1,7 +1,6 @@
 ---
 Title: My Response to a Pakistani School Student
 Tags:
-  - bangladesh
   - 1971 genocide
   - liberation war crime trial
   - Abul Kasem

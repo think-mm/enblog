@@ -3,10 +3,9 @@ Title: The Spirits of 1971 and 2013 (Part II)
 Tags:
   - politics
   - religion
-  - bangladesh
   - terrorism
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - society
   - 1971 genocide
   - activism

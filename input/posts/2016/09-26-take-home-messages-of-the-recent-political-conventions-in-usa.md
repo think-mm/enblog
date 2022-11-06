@@ -2,7 +2,7 @@
 Title: Take Home Messages of the Recent Political Conventions in USA
 Tags:
   - politics
-  - bangalee freethinker
+  - freethinker
   - activism
   - Jiten Roy
 Published: 2016-09-26 01:29:45 +06:00

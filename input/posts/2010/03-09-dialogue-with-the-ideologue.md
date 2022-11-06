@@ -1,7 +1,7 @@
 ---
 Title: Dialogue With the Ideologue
 Tags:
-  - bangalee freethinker
+  - freethinker
   - Jiten Roy
 Published: 2010-03-09 09:37:08 +06:00
 Updated: 2010-03-13 23:00:54 +06:00

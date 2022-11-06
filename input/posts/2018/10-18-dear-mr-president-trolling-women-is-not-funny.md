@@ -3,7 +3,6 @@ Title: Dear Mr. President, trolling women is not funny
 Tags:
   - women's rights
   - politics
-  - bangladesh
   - human rights
   - society
   - Tonoy Emroz

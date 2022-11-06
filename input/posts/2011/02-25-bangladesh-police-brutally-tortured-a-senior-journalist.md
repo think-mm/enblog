@@ -4,9 +4,8 @@ Tags:
   - gias ahmed
   - desh tv
   - politics
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - activism
   - William Gomes
 Published: 2011-02-25 00:04:36 +06:00

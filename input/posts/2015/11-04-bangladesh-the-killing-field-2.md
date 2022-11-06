@@ -3,10 +3,9 @@ Title: Bangladesh - the Killing Field
 Tags:
   - politics
   - religion
-  - bangladesh
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - blogger killings

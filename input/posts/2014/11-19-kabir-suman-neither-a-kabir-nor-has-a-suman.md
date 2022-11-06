@@ -2,9 +2,8 @@
 Title: KABIR SUMAN - NEITHER LIKE KABIR NOR HAS A SU MAN
 Tags:
   - religion
-  - bangladesh
   - india
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Bhaskar

@@ -4,9 +4,8 @@ Tags:
   - politics
   - economics
   - international
-  - bangladesh
   - india
-  - bangalee freethinker
+  - freethinker
   - society
   - education
   - Tonoy Emroz

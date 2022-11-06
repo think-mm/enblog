@@ -3,13 +3,11 @@ Title: AFTER THE MURDER OF AVIJIT
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-03-05 21:06:27 +06:00

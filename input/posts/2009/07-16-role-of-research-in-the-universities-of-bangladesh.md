@@ -3,7 +3,6 @@ Title: Role of Research in The Universities Of Bangladesh
 Tags:
   - research
   - universities of bangladesh
-  - bangladesh
   - society
   - Bijon Sarma
 Published: 2009-07-16 22:08:34 +06:00

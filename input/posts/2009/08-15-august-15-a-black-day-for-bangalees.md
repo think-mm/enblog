@@ -6,7 +6,6 @@ Tags:
   - sheikh mujibur rahman
   - sheikh mujib
   - politics
-  - bangladesh
   - personality
   - shabbir
 Published: 2009-08-15 21:42:51 +06:00

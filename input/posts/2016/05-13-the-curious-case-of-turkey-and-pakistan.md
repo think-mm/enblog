@@ -2,7 +2,6 @@
 Title: The curious case of Turkey and Pakistan
 Tags:
   - international
-  - bangladesh
   - liberation war
   - 1971 genocide
   - war crimes

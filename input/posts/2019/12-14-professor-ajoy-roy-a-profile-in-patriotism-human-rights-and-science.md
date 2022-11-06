@@ -3,7 +3,6 @@ Title: Professor Ajoy Roy - A profile in patriotism, human rights, and science
 Tags:
   - ajoy roy
   - avijit roy
-  - bangladesh
   - human rights
   - Jahed Ahmed
 Published: 2019-12-14 09:45:17 +06:00
@@ -13,7 +12,10 @@ OldURL: 2019/12/14/professor-ajoy-roy-a-profile-in-patriotism-human-rights-and-s
 
 Ajoy Roy has worn many hats throughout his life—as a bright scientist; professor of physics; human rights and secular activist; author; and perhaps, most significant of all, as a valiant freedom fighter. It is indeed hard to come up with an example of a Bangladeshi as decorated as Prof Roy. To sum up, the life of Prof Roy epitomises the famous Kennedy dictum, "Ask not what your country can do for you, ask what you can do for your country."
 
-[caption id="attachment_27384" align="aligncenter" width="601"]<a href="https://enblog.muktomona.com/2019/12/14/professor-ajoy-roy-a-profile-in-patriotism-human-rights-and-science/screen-shot-2019-12-13-at-7-56-56-pm/" rel="attachment wp-att-27384"><img src="https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2019/12/Screen-Shot-2019-12-13-at-7.56.56-PM.png" alt="" width="601" height="332" class="size-full wp-image-27384" /></a> Professor Ajoy Roy (1935-1019). Photo: File[/caption]
+<!-- width="601" height="332" -->
+![Professor Ajoy Roy (1935-1019)](https://raw.githubusercontent.com/think-mm/enblog-static/web/wp-uploads/2019/12/Screen-Shot-2019-12-13-at-7.56.56-PM.pn) 
+  
+Professor Ajoy Roy (1935-1019). Photo: File
 
 I have been lucky enough to interact and work with this courageous man for a brief period during the 2000s while serving as a co-moderator at Mukto-Mona, the online forum for Bengali secularists and freethinkers, founded by slain secular activist, blogger and Prof Roy's son, Avijit Roy. Prof Roy had been on the advisory board of Mukto-Mona. I have seen his passion and tireless energy to help and support the voiceless, poor and powerless.
 
@@ -31,5 +33,6 @@ I do not know what the fighting in the field felt like in 1971 for Ajoy Roy but 
 
 In 2012, the Bangladesh government bestowed upon Ajoy Roy the country's highest civilian honour, the Ekushey Padak. Though ceremonial, it was long due and a praiseworthy step. However, the administration has failed a father who, at 84 with ailing health and in a wheelchair, had been, for four years, attending the court hearing of his son's murder case without a visible headway. Tragically he had to leave this world on December 9 without getting any justice.
 
-~ Jahed Ahmed
-[Writer Jahed Ahmed lives and works in New York. Email: humanistnyc@hotmail.com]
+----
+~ Jahed Ahmed, NY
+- Email: humanistnyc at hotmail dot com

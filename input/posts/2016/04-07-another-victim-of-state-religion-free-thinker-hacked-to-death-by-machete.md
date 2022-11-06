@@ -1,7 +1,6 @@
 ---
 Title: Another victim of state religion, free-thinker hacked to death by machete
 Tags:
-  - bangladesh
   - Raihan Abir
 Published: 2016-04-07 02:22:56 +06:00
 Updated: 2016-04-08 10:36:51 +06:00
@@ -22,10 +21,10 @@ Even though nobody has claimed responsibility for this murder, the modus operand
 <blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Listen to me on CBC <a href="https://t.co/PalqgGm6LT">https://t.co/PalqgGm6LT</a> <a href="https://t.co/3kl1A1fhAT">https://t.co/3kl1A1fhAT</a></p>&mdash; Raihan Abir (@raihan_abir) <a href="https://twitter.com/raihan_abir/status/718255507904032769">April 8, 2016</a></blockquote>
 <script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-<strong>Bangladesh government will scrutinise Nazim's writings</strong>
+**Bangladesh government will scrutinise Nazim's writings**
 
 
-<blockquote>"It is needed to see whether he has written anything objectionable in his blogs."</blockquote>
+> It is needed to see whether he has written anything objectionable in his blogs.
 
 Home minister of Bangladesh, Mr. Asaduzzaman Kamal, told BBC that the government is going to scrutinise Nazim's writing (to see whether he deserve this punishment by the Islamic extremists or not) 
 
@@ -36,16 +35,13 @@ Home minister of Bangladesh, Mr. Asaduzzaman Kamal, told BBC that the government
 Rafida Ahmed Bonya, Mukto-Mona writer, wife of Avijit Roy wrote in response to the attack- 
 
 
-<blockquote>
-The change has to come from inside; the world can watch, sigh, sympathize, or even provide support, but the ultimate change has to come from inside. We have already seen that our so called 'secular' government will not side with us; they will either stay quiet or support the Islamic fundamentalists. They have been reluctant to find and try the killers of the previous bloggers and publishers. Starting from the killings of the secular writers, bloggers, activists, publishers, mass rape in our tribal areas, rape in protected army cantonment areas, to arrests of writers under ICT Act 57, the banning of bookstores and putting the writer/publisher in jail by the government - the government's actions are a far cry from its 'secular' constitution. Its completely unacceptable that you get hacked by the religious fanatics or arrested by the government of a democratic country when you express your views or simply ask questions about religion. The Bangladeshi people have to stand up against it; they need to build a movement to fight Islamic fundamentalism in the country and also pressurize the government to take action. </blockquote>
-
-Watch her interview with CNN.
-
-<iframe width="600" height="234" src="https://www.cnn.com/video/api/embed.html#/video/tv/2016/04/07/bangladesh-blogger-killings-intv.cnn" frameborder="0"></iframe>
+> The change has to come from inside; the world can watch, sigh, sympathize, or even provide support, but the ultimate change has to come from inside. We have already seen that our so called 'secular' government will not side with us; they will either stay quiet or support the Islamic fundamentalists. They have been reluctant to find and try the killers of the previous bloggers and publishers. Starting from the killings of the secular writers, bloggers, activists, publishers, mass rape in our tribal areas, rape in protected army cantonment areas, to arrests of writers under ICT Act 57, the banning of bookstores and putting the writer/publisher in jail by the government - the government's actions are a far cry from its 'secular' constitution. Its completely unacceptable that you get hacked by the religious fanatics or arrested by the government of a democratic country when you express your views or simply ask questions about religion. The Bangladeshi people have to stand up against it; they need to build a movement to fight Islamic fundamentalism in the country and also pressurize the government to take action.
 
 
-<strong>See Also:</strong>
+Watch [her interview with CNN](https://www.cnn.com/2016/04/07/asia/secular-bangladeshi-writer-murdered), video embedded.
 
+
+**See Also** 
 
 CNN: <a href="https://www.cnn.com/2016/04/07/asia/secular-bangladeshi-writer-murdered/">Secular Bangladeshi writer killed in the street</a>
 
@@ -74,7 +70,7 @@ Nazimuddin Samad: I am also scared, Sir, scared of getting killed. But what else
 </blockquote>
 
 
-<strong>More news on secular, atheist killing in Bangladesh</strong>
+**More news on secular, atheist killing in Bangladesh**
 
 26th February, 2015, on BBC: <a href="https://www.bbc.com/news/world-asia-31656222">US-Bangladesh blogger Avijit Roy hacked to death</a>
 
@@ -84,4 +80,6 @@ Nazimuddin Samad: I am also scared, Sir, scared of getting killed. But what else
 
 7th August, 2015, on BBC: <a href="https://www.bbc.com/news/world-asia-33819032">Bangladesh blogger Niloy Neel hacked to death in Dhaka </a>
 
-31st October, 2015, on BBC: <a href="https://Bangladeshi secular publisher hacked to death">Bangladeshi secular publisher hacked to death</a>
+31st October, 2015, on BBC: <a href="https://www.bbc.com/news/world-asia-34688245">Bangladeshi secular publisher hacked to death</a>
+
+~ *Raihan Abir*

@@ -4,14 +4,12 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - international
-  - bangladesh
   - science
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy

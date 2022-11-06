@@ -2,7 +2,6 @@
 Title: The American Dream -- An Illusion or Reality?
 Tags:
   - culture
-  - bangladesh
   - human rights
   - society
   - education

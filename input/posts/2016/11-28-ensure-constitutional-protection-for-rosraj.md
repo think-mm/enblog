@@ -5,7 +5,7 @@ Tags:
   - politics
   - religion
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - free speech
   - freethinking

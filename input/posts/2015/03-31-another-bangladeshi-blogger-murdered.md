@@ -2,11 +2,9 @@
 Title: ANOTHER BANGLADESHI BLOGGER MURDERED
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-03-31 20:19:27 +06:00

@@ -3,7 +3,6 @@ Title: Turkey's inexorable descent to extremism
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - society
   - activism

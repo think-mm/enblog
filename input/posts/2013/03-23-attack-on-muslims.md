@@ -2,8 +2,7 @@
 Title: ATTACK ON MUSLIMS
 Tags:
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-03-23 19:32:47 +06:00
 Updated: 2013-08-13 15:14:25 +06:00

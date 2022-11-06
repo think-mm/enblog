@@ -2,11 +2,9 @@
 Title: Dozens Attend "Standing With Avijit" Rally in Washington DC 3/21/15
 Tags:
   - avijit roy
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - Rashad Ullah
 Published: 2015-03-26 01:55:27 +06:00

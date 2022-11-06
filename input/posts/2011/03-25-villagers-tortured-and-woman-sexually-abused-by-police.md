@@ -4,9 +4,8 @@ Tags:
   - villagers tortured and woman sexually abused by police
   - politics
   - religion
-  - mukto-mona
   - human rights
-  - bangalee freethinker
+  - freethinker
   - activism
   - William Gomes
 Published: 2011-03-25 21:55:34 +06:00

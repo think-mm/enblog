@@ -2,9 +2,8 @@
 Title: Greek tragedy - no longer a myth
 Tags:
   - philosophy
-  - mukto-mona
   - international
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2015-07-06 15:38:13 +06:00
 Updated: 2015-07-06 15:38:13 +06:00

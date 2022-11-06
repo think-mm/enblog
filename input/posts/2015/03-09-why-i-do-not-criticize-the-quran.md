@@ -3,11 +3,9 @@ Title: Why I Do Not Criticize the Quran
 Tags:
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

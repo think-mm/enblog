@@ -4,7 +4,6 @@ Tags:
   - tipaimukh dam
   - bangladesh -india relationship
   - politics
-  - bangladesh
   - india
   - Bijon Sarma
 Published: 2009-07-27 22:06:44 +06:00

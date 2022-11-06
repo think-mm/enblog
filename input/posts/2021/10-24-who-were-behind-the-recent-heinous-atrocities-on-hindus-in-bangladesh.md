@@ -3,7 +3,6 @@ Title: Who Were Behind the Recent Heinous Atrocities on Hindus in Bangladesh?
 Tags:
   - politics
   - hinduism
-  - bangladesh
   - secularism
   - human rights
   - Sukhamaya Bain

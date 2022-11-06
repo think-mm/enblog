@@ -4,7 +4,7 @@ Tags:
   - culture
   - india
   - human rights
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-11-14 21:09:08 +06:00

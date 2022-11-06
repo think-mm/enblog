@@ -3,9 +3,8 @@ Title: Why I Am Not a Muslim
 Tags:
   - religion
   - philosophy
-  - mukto-mona
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - education
   - activism

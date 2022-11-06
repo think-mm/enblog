@@ -5,12 +5,11 @@ Tags:
   - religion
   - culture
   - philosophy
-  - bangladesh
   - science
   - human rights
   - terrorism
   - celebration
-  - bangalee freethinker
+  - freethinker
   - society
   - seminar
   - activism

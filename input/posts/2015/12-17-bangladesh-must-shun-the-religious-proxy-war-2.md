@@ -3,10 +3,8 @@ Title: Bangladesh must shun the religious proxy war
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - activism
   - A Rahman
 Published: 2015-12-17 18:18:18 +06:00

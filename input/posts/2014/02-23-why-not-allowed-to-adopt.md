@@ -2,9 +2,8 @@
 Title: WHY NOT ALLOWED TO ADOPT?
 Tags:
   - religion
-  - mukto-mona
   - india
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-02-23 20:37:57 +06:00

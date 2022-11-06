@@ -2,7 +2,7 @@
 Title: Press release by Passion for Freedom
 Tags:
   - celebration
-  - bangalee freethinker
+  - freethinker
   - activism
   - avijit roy
   - Mukto-Mona Editor

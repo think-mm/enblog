@@ -3,7 +3,6 @@ Title: Why this Happened
 Tags:
   - politics
   - religion
-  - bangladesh
   - Jiten Roy
 Published: 2011-07-23 08:15:04 +06:00
 Updated: 2011-07-25 03:56:22 +06:00

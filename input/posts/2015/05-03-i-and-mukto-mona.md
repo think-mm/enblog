@@ -1,9 +1,7 @@
 ---
 Title: I, AVIJIT AND MUKTO MONA
 Tags:
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Bhaskar
 Published: 2015-05-03 20:51:29 +06:00

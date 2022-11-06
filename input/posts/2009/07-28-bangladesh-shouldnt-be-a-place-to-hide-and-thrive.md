@@ -1,17 +1,8 @@
 ---
-Title: Bangladesh shouldn't be a place to hide and thrive
+Title: Bangladesh should not be a place to hide and thrive
 Tags:
-  - islamic militants are hiding in bangladesh
-  - laskar-e-taiba
-  - bangladeshi mujahids
-  - recent arrests of sheikh obaidullah
-  - abu zafar
-  - moulana mohammad mansur ali
-  - politics
-  - bangladesh
   - terrorism
-  - society
-  - Ripan
+  - Ripan Kumar Biswas
 Published: 2009-07-28 00:26:55 +06:00
 Updated: 2009-07-28 00:30:34 +06:00
 OldURL: 2009/07/28/bangladesh-shouldn%e2%80%99t-be-a-place-to-hide-and-thrive/
@@ -34,6 +25,13 @@ OldURL: 2009/07/28/bangladesh-shouldn%e2%80%99t-be-a-place-to-hide-and-thrive/
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;">Witnessing the presence of high profile international militants in Bangladesh, some hardliners may claim that Bangladesh is emerging as the haven of choice for South Asian terror operatives, and that there stay is being facilitated by local politicians, businessmen, or opportunist. Whatever, Bangladesh shouldn't be a place where terrorists can hide and thrive.</span></p>
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"> </span></p>
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"><span lang="EN">P</span></span><span class="bd1"><span style="font-size: medium; font-family: Garamond;">resent government, we believe, is very much concerned about the extremists' activities and determines to root out them in any way.</span></span><span style="font-size: medium; font-family: Garamond;"><span lang="EN"> But dependence on the government and security services all times to combat terrorism is not strength but a collective weakness. Extinguishing the flames of extremism should be a joint venture between government and general people. People</span> and government must be vigilant against any such persons and their activities.</span></p>
+
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"> </span></p>
 <p style="margin: 0in 0in 0pt; text-align: justify;"><span style="font-size: medium; font-family: Garamond;"><span lang="EN">Thursday, July23, 2009, New York</span></span></p>
-<p style="margin: 0in 0in 0pt; text-align: justify;"><span style="font-size: medium; font-family: Garamond;"><strong><span lang="EN">Ripan Kumar Biswas</span></strong><span lang="EN"> is a freelance writer based in New York. Email: </span><a href="mailto:Ripan.Biswas@yahoo.com">Ripan.Biswas@yahoo.com</a> </span></p>
+
+
+----
+~ Ripan Kumar Biswas
+
+- A freelance writer based in New York
+- EMail: ripan.biswas at yahoo dot com

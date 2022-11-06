@@ -1,7 +1,6 @@
 ---
 Title: Zahir Raihan was accused of defaming Sheikh Mujib
 Tags:
-  - bangladesh
   - liberation war
   - 1971 genocide
   - history

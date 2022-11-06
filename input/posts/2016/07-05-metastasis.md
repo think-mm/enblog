@@ -1,7 +1,6 @@
 ---
 Title: In the Time of the Assassins
 Tags:
-  - bangladesh
   - religion
   - terrorism
   - Mohsin Siddique

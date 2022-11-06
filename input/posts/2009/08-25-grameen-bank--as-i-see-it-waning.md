@@ -4,7 +4,6 @@ Tags:
   - grameen bank
   - dr. yunus
   - economics
-  - bangladesh
   - society
   - education
   - Nripen Sarker

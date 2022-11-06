@@ -2,7 +2,6 @@
 Title: Petition(s) to sign  - Release the arrested bloggers of Bangladesh
 Tags:
   - politics
-  - bangladesh
   - human rights
   - shahbagh movement 2013
   - Mukto-Mona Editor

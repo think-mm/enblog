@@ -5,7 +5,7 @@ Tags:
   - culture
   - philosophy
   - human rights
-  - bangalee freethinker
+  - freethinker
   - poem
   - Nripen Sarker
 Published: 2010-04-15 20:44:10 +06:00

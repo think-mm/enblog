@@ -4,8 +4,7 @@ Tags:
   - religion
   - culture
   - international
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-03-16 18:59:11 +06:00
 Updated: 2014-04-03 21:17:55 +06:00

@@ -3,9 +3,8 @@ Title: TINDERBOX - THE PAST AND FUTURE OF PAKISTAN
 Tags:
   - politics
   - religion
-  - bangladesh
   - india
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Bhaskar

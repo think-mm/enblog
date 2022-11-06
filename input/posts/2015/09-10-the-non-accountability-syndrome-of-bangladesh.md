@@ -2,9 +2,8 @@
 Title: The Non-Accountability Syndrome of Bangladesh
 Tags:
   - philosophy
-  - mukto-mona
   - personality
-  - bangalee freethinker
+  - freethinker
   - society
   - Sukhamaya Bain
 Published: 2015-09-10 04:42:51 +06:00

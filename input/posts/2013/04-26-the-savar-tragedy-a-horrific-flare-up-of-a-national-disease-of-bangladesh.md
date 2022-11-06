@@ -2,8 +2,7 @@
 Title: The Savar Tragedy – a Horrific Flare-up of a National Disease of Bangladesh
 Tags:
   - politics
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Sukhamaya Bain
 Published: 2013-04-26 11:02:17 +06:00

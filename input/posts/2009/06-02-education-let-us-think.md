@@ -2,7 +2,6 @@
 Title: Education - Let Us Think
 Tags:
   - 'education: let us think'
-  - bangladesh
   - society
   - education
   - Mukto-Mona Editor

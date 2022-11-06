@@ -1,7 +1,6 @@
 ---
 Title: Mother Teresa's Life Touched Uncountable People
 Tags:
-  - mukto-mona
   - personality
   - society
   - teki_admin

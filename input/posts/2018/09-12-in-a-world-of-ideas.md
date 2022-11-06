@@ -4,9 +4,8 @@ Tags:
   - free speech
   - shahidul alam
   - politics
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Tonoy Emroz

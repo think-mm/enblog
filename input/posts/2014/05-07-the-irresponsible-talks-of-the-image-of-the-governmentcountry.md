@@ -2,10 +2,8 @@
 Title: The Irresponsible Talks of the 'Image of the Government/Country
 Tags:
   - politics
-  - mukto-mona
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

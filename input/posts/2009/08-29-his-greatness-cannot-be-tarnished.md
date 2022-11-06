@@ -2,7 +2,6 @@
 Title: His greatness cannot be tarnished
 Tags:
   - politics
-  - bangladesh
   - personality
   - Anwarul Kabir
 Published: 2009-08-29 12:55:45 +06:00

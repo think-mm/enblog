@@ -9,8 +9,6 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
-  - bangladesh
   - terrorism
   - society
   - book

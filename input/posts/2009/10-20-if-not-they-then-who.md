@@ -3,7 +3,6 @@ Title: If not they, then who?
 Tags:
   - politics
   - economics
-  - bangladesh
   - Ripan
 Published: 2009-10-20 07:16:53 +06:00
 Updated: 2009-10-20 07:16:53 +06:00

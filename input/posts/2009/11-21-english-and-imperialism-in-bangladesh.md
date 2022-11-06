@@ -1,7 +1,6 @@
 ---
 Title: English and imperialism in Bangladesh
 Tags:
-  - bangladesh
   - human rights
   - violence
   - William Gomes

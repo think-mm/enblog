@@ -1,13 +1,8 @@
 ---
 Title: Reminiscing the bloody day of 25th March after three decades!
 Tags:
-  - 1971
-  - 25th march
-  - liberation war
-  - pakistani genocide
+  - liberation war crime trial
   - genocide of 1971
-  - mukto-mona
-  - bangladesh
   - Abul Kasem
 Published: 2009-03-26 07:29:38 +06:00
 Updated: 2009-05-17 09:38:37 +06:00
@@ -58,5 +53,13 @@ OldURL: 2009/03/26/reminiscing-the-bloody-day-of-25th-march-after-three-decades/
 <p align="justify"><span style="font-size: small; font-family: Verdana;">For the last 29 years I have always wondered why the army had targeted our house and our family. It had always been a mystery to me. Now I have some clue to that question after such a long period of time. Ashrafuzzaman Khan (the then member of the central committee of the Islami Chatra Sangha ) used to live at Nakhalpara. This piece of information I got from the Internet.</span></p>
 <p align="justify"><span style="font-size: small; font-family: Verdana;">As I write this re-count, I learnt that 100 new 'killing fields' have been discovered all around Bangladesh. Was I surprised? No, not at all! However, what surprised me the most was why did it take so long? Why did we have to wait almost 30 years to know that innocent folks were butchered just as cattle? Rest assured that many more killing fields will be found. The killing fields of Cambodia, Kosovo, Bosnia, Afghanistan, etc., will be nothing when compared to the killing fields in Bangladesh. Let us not forget these killing fields. Let us not forget the sacrifice of 3 million people who shed enough blood to change the verdure of monsoon drenched land of Bengal. They certainly gave their lives so that we can enjoy the fruits of freedom. Freedom from the tyranny of Punjabi masters and Pakistani Oligarchy. I would ask every Bangalees not to forget the butchers of those nights and days when we remember the fallen angels of our land. The crime should never go unpunished.</span></p>
 
-<hr />
-<p align="justify"><span style="font-family: Verdana;">Abul Kasem writes from Australia. He can be reached at - abul88@hotmail.com</span></p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

@@ -9,29 +9,15 @@ Updated: 2017-04-21 06:53:31 +06:00
 OldURL: 2017/04/19/malala-in-lalaland/
 ---
 
-<h2>Tarek Fatah's article in Toronto Sun</h2>
-<div id="wrapper">
-<div id="page">
-<div id="main">
-<div id="content" class="clearfix">
-<div class="primary">
-<div class="mainArticle item hentry clearfix">
-<div id="isBehindPaywall" class="secureContent">
-<div id="STORY_C_1297946499300_full" class="full_content"><header class="headerStory col650 ">
-<p class="meta">First posted:  Tuesday, April 18, 2017 05:31 PM EDT  | Updated:  Tuesday, April 18, 2017 05:36 PM EDT </p>
+### Tarek Fatah's article in Toronto Sun
 
-</header>
-<div class="clearfix">
-<div id="storytext" class="content wrapStyle col430">
-<figure class="clearfix legend"><img class="photo" title="" src="https://storage.torontosun.com/v1/dynamic_resize/sws_path/suns-prod-images/1297946499272_ORIGINAL.jpg?quality=80&amp;size=420x" alt="Malala Yousafzai" /><figcaption id="photoCaption">Pakistani Nobel Peace Laureate Malala Yousafzai leaves Parliament hill after receiving an honorary Canadian citizenship in Ottawa, Ontario, April 12, 2017. (LARS HAGBERG/AFP/Getty Images</figcaption></figure>
-<aside class="socialAside col210"><section class="sharingTools"><b></b>
-<div class="clearfix social_stuff_1">
-<div>
-<div class="fb-like fb_iframe_widget"></div>
-</div>
-</div>
-</section></aside>
-<div class="mainContent">Two aspects of Malala Yousafzai's speech delivered to a packed House of Commons April 12 were notable.
+*First posted:  Tuesday, April 18, 2017 05:31 PM EDT  | Updated:  Tuesday, April 18, 2017 05:36 PM EDT*
+
+![Malala Yousafzai](https://storage.torontosun.com/v1/dynamic_resize/sws_path/suns-prod-images/1297946499272_ORIGINAL.jpg?quality=80&amp;size=420x)
+
+Pakistani Nobel Peace Laureate Malala Yousafzai leaves Parliament hill after receiving an honorary Canadian citizenship in Ottawa, Ontario, April 12, 2017. (LARS HAGBERG/AFP/Getty Images)
+
+Two aspects of Malala Yousafzai's speech delivered to a packed House of Commons April 12 were notable.
 
 The first was her failure to mention Stephen Harper, let alone thank the former prime minister who was behind the move to grant her honorary Canadian citizenship.
 
@@ -72,15 +58,3 @@ Qur'an (47:4) "When you meet the Unbelievers (Kufaar, non-Muslims) in fight, smi
 Quran (8:12) "Remember your Lord inspired the angels: 'I am with you: give firmness to the Believers (Muslims): I will instil terror into hearts of the Kufaar. Smite them above their necks, and smite all of their finger tips off them'."
 
 It is time for all of us to be truthful instead of living in Lalaland.
-
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>
-</div>

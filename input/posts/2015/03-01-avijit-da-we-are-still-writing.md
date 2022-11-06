@@ -1,10 +1,9 @@
 ---
 Title: Avijit da, we are still writing
 Tags:
-  - mukto-mona
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - Salman Rahman
 Published: 2015-03-01 14:31:57 +06:00
 Updated: 2015-03-01 14:31:57 +06:00

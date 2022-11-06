@@ -2,7 +2,6 @@
 Title: Stop the Killing in Gaza - An Open Letter to World Leaders
 Tags:
   - politics
-  - mukto-mona
   - international
   - human rights
   - society

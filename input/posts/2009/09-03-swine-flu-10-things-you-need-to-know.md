@@ -1,7 +1,6 @@
 ---
 Title: Swine Flu - 10 things you need to know
 Tags:
-  - bangladesh
   - swine flu
   - h1n1
   - health

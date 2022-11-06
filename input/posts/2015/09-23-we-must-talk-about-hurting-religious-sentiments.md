@@ -4,8 +4,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - A Rahman
 Published: 2015-09-23 01:22:54 +06:00
 Updated: 2015-09-23 01:22:54 +06:00

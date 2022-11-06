@@ -2,9 +2,7 @@
 Title: Joint Statement - Calling on the Canadian government to help secularists in Bangladesh
 Tags:
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - terrorism
   - activism

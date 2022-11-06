@@ -1,7 +1,6 @@
 ---
 Title: Mashal Khan's Murderers Must be Brought to Justice and Anti-Blasphemy Laws Must be Abolished
 Tags:
-  - mukto-mona
   - human rights
   - activism
   - avijit roy

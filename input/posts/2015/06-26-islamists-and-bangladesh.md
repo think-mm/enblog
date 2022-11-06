@@ -3,7 +3,6 @@ Title: Islamists and Bangladesh
 Tags:
   - politics
   - religion
-  - bangladesh
   - terrorism
   - society
   - activism

@@ -2,7 +2,6 @@
 Title: Machettes, fundamentalism and rationalism - what does history tell us? Video of Rafida Ahmed Bonya's presentation at UC Riverside
 Tags:
   - religion
-  - bangladesh
   - science
   - free speech
   - freethinking

@@ -3,7 +3,6 @@ Title: PAKISTAN - A SAD COUNTRY
 Tags:
   - politics
   - religion
-  - mukto-mona
   - society
   - Bhaskar
 Published: 2013-01-16 12:24:36 +06:00

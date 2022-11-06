@@ -4,7 +4,7 @@ Tags:
   - politics
   - religion
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-03-07 12:51:23 +06:00
 Updated: 2013-08-13 15:16:39 +06:00

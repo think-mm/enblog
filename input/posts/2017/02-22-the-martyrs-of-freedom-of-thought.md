@@ -3,12 +3,10 @@ Title: The martyrs of freedom of thought
 Tags:
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - science
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - society
   - avijit roy
   - blogger killings

@@ -5,7 +5,7 @@ Tags:
   - www.williamgomes.org
   - politics
   - religion
-  - bangalee freethinker
+  - freethinker
   - William Gomes
 Published: 2011-02-19 02:13:13 +06:00
 Updated: 2011-02-19 02:13:13 +06:00

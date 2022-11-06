@@ -4,9 +4,7 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - society
   - women

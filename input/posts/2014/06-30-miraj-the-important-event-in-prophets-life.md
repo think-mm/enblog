@@ -2,9 +2,7 @@
 Title: RELEVANCE OF "MIRAJ" IN HISTORICAL PERSPECTIVE
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-06-30 11:44:28 +06:00
 Updated: 2014-07-15 12:40:03 +06:00

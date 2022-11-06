@@ -4,7 +4,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - international
   - A Rahman
 Published: 2017-03-01 21:38:54 +06:00

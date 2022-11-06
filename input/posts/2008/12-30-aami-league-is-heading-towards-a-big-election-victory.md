@@ -1,7 +1,6 @@
 ---
 Title: MohaJot is heading towards a big election victory
 Tags:
-  - bangladesh
   - election
   - politics
   - Ajoy Roy
@@ -14,7 +13,7 @@ OldURL: 2008/12/30/aami-league-is-heading-towards-a-big-election-victory/
 <p style="text-align: center" class="MsoNormal"><font size="5" color="#008000" face="Verdana">Awami League is heading towards a big election victory</font></p>
 <p style="text-align: center" class="MsoNormal"><font face="Verdana"><a href="https://gold.mukto-mona.com/Articles/ajoy/index.html">Ajoy Roy</a></font></p>
 <p style="text-align: center" class="MsoNormal">&nbsp;</p>
-<p style="text-align: center" class="MsoNormal"><img width="500" src="https://muktomona.com/Special_Event_/BangladeshElection2008/live_result_pic.jpg" height="245" /></p>
+<p style="text-align: center" class="MsoNormal"><img width="500" src="https://gold.mukto-mona.com/Special_Event_/BangladeshElection2008/live_result_pic.jpg" height="245" /></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Dear muktomonas,</font><font face="Verdana"> </font></p>
 <p style="text-align: justify" class="MsoNormal"><font size="3" face="Verdana">Here is the latest election update. The Great alliance led by Aami League is heading towards a big election victory. The alliance has already obtained absolute majority in the parliament seats to form a new government. Here is the latest election result: </font></p>
 <p style="text-align: justify" class="MsoNormal"><o></o><font size="3" face="Verdana"> </font><font face="Verdana"> </font></p>

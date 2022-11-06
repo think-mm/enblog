@@ -1,7 +1,7 @@
 ---
 Title: Remembering you, Avijit
 Tags:
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Jiten Roy
 Published: 2016-03-03 13:39:52 +06:00

@@ -3,8 +3,6 @@ Title: Bangladesh Islam Bachao Party
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
   - avijit roy

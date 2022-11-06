@@ -1,13 +1,12 @@
 ---
 Title: Avijit Roy and His Legacy
 Tags:
-  - mukto-mona
   - avijit roy
   - science
   - human rights
   - personality
   - darwin day
-  - bangalee freethinker
+  - freethinker
   - activism
   - Jahed
 Published: 2015-03-13 18:47:41 +06:00

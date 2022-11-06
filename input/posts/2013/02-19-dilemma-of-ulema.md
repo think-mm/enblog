@@ -2,8 +2,7 @@
 Title: DILEMMA OF ULEMA
 Tags:
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2013-02-19 17:46:40 +06:00

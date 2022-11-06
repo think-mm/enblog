@@ -1,7 +1,6 @@
 ---
 Title: Bangladesh's invisible minority
 Tags:
-  - bangladesh
   - human rights
   - homosexuality
   - lgbt

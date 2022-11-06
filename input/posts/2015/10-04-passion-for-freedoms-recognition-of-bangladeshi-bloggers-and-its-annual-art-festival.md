@@ -1,8 +1,7 @@
 ---
 Title: Passion for Freedom's recognition of Bangladeshi Bloggers and its Annual Art Festival
 Tags:
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Guest Writer
 Published: 2015-10-04 21:52:00 +06:00

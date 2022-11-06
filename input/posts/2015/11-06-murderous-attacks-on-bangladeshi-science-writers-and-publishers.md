@@ -3,7 +3,6 @@ Title: Murderous Attacks on Bangladeshi Science Writers and Publishers
 Tags:
   - politics
   - religion
-  - bangladesh
   - science
   - society
   - avijit roy

@@ -2,11 +2,9 @@
 Title: An Appeal from Muktomona to Keep Secular Bangladesh Safe from Religious Fundamentalism
 Tags:
   - politics
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy

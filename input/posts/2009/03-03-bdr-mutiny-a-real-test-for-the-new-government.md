@@ -1,16 +1,14 @@
 ---
 Title: BDR mutiny - A real test for the new government
 Tags:
-  - bdr mutiny
-  - Ripan
+  - Ripan Kumar Biswas
 Published: 2009-03-03 03:10:54 +06:00
 Updated: 2009-07-09 10:09:36 +06:00
 OldURL: 2009/03/03/bdr-mutiny-a-real-test-for-the-new-government/
 ---
 
-<p style="line-height: 200%;" align="center"><strong><span style="color: #008000; font-family: Verdana;">BDR mutiny: A real test for the new government </span></strong></p>
-<p style="line-height: 200%;" align="center"><strong><span style="color: #000080; font-family: Verdana;">Ripan Kumar Biswas</span></strong></p>
-<p style="line-height: 200%;"> </p>
+~ *Ripan Kumar Biswas*
+
 <p style="line-height: 200%;"><span style="font-family: Verdana;">Thirty five hours might have ended with the surrender of arms and ammunitions, but the awful course of the event that disgruntled everyone who witnessed and experienced the bloody mutiny by Bangladesh Rifles (BDR) soldiers at their headquarter in the city of Dhaka, sullied the image of century long defense institute of Bangladesh. </span></p>
 <p style="line-height: 200%;"><span style="font-family: Verdana;">What they said they were repressed, oppressed, and tortured by the Army officers posted in BDR sectors, are no longer excuses to anyone as they amounted to a national security breach and were engaged in gruesome killings. </span></p>
 <p style="line-height: 200%;"><span style="font-family: Verdana;">Nonetheless to say, the way the rebelling soldiers of BDR put their grievances on the table making Dhaka into a war zone, is not the judicious way to demand anything, especially as a disciplined force that are highly and admirably recognized to secure the countryâ€™s border, but primarily as long as we heard and learned about corruption, confrontation between junior and senior officials, intelligence failures by respective authorities, mismanagement, serious breaching of national security, defying chain of command, and long-pending grievances regarding pay and allowances and food rations within the countryâ€™s prestigious defense institute that apparently triggered the revolt, raises so many questions as nothing in the present world beyond criticism and scrutiny. </span></p>
@@ -25,6 +23,13 @@ OldURL: 2009/03/03/bdr-mutiny-a-real-test-for-the-new-government/
 <p style="line-height: 200%;"><span style="font-family: Verdana;">The incident was happened while the law enforcement agencies are in thirst to round up militants of the banned outfit Jamaatul Mujahideen Bangladesh (JMB) who are working relentlessly to gain their lost ground. The recent arrests and seizers throughout the country bear witness to JMB's widespread reach and presence in Bangladesh and also dangerously reflect the resurgence of JMB in rural as well as urban areas, such as in the capital, Dhaka. Meanwhile, the government is considering to start prosecution against war criminals which is one of the major key points of their election manifesto and a long cherished demand of each and every Bangladeshis. </span></p>
 <p style="line-height: 200%;"><span style="font-family: Verdana;">Well, each and every possibility are subjected to be verified, but whatever the reason, as the BDR mutiny was not a mere instant incident, the government should be cautious and well informed in advance as much as possible through its respective channel against such propagators and their conspiracies. </span></p>
 
-<hr />
-<p style="line-height: 200%;"><span style="font-family: Verdana;">Ripan Kumar Biswas is a freelance writer based in New York E Mail : <a href="mailto:ripan.biswas@yahoo.com">ripan.biswas@yahoo.com</a> </span></p>
-<p style="line-height: 200%;"> </p>
+----
+~ Ripan Kumar Biswas
+
+- A freelance writer based in New York
+- EMail: ripan.biswas at yahoo dot com
+
+
+
+Additional Tags:
+- bdr mutiny

@@ -2,9 +2,8 @@
 Title: THE GEETA" AND VIOLENCE
 Tags:
   - religion
-  - mukto-mona
   - india
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-01-28 17:32:07 +06:00

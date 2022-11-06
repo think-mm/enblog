@@ -4,7 +4,6 @@ Tags:
   - michael chakma
   - cht
   - politics
-  - bangladesh
   - human rights
   - society
   - activism

@@ -1,9 +1,8 @@
 ---
 Title: Write on Your Journey to Enlightenment in Celebration of September 12, Avijit Roy's Birthday
 Tags:
-  - mukto-mona
   - celebration
-  - bangalee freethinker
+  - freethinker
   - activism
   - avijit roy
   - Mukto-Mona Editor

@@ -9,7 +9,7 @@ Updated: 2009-01-20 13:58:07 -05:00
 OldURL: 2009/01/21/president-obama-and-american-dreams-2/
 ---
 
-~ *[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+~ [*Jahed Ahmed*](https://gold.mukto-mona.com/Articles/jahed/index.html)
 
 <p align="center" style="text-indent: 0.5in; text-align: center" class="MsoNormal"><img src="https://www.gerrymay.com/wp-content/uploads/2008/08/obamanddrkingblack.jpg" /></p>
 <p align="center" style="text-indent: 0.5in; text-align: center" class="MsoNormal"><span style="font-size: 6pt; font-family: Verdana">Picture source: www.metro.us</span></p>
@@ -42,8 +42,10 @@ Best of luck, America!
 
 ----
 *[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
-- An employee of the NY state government; a secular activist and writer
-- Member of humanist network and "muktwanesha"-a Bangla magazine on science and rationalism published from Dhaka
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
 - Can be contacted at email: *worldcitizen73 at yahoo dot com* 
+
 
 - [this post on internet archive for mm enblog](https://web.archive.org/web/20191029075506/http://enblog.mukto-mona.com/2009/01/21/president-obama-and-american-dreams-2), [2010 capture](https://web.archive.org/web/20100103200333/mukto-mona.com/wordpress/?p=86)

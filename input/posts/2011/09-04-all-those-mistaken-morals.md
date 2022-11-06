@@ -3,8 +3,7 @@ Title: All Those Mistaken Morals
 Tags:
   - politics
   - culture
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - shazzad
 Published: 2011-09-04 22:49:03 +06:00
 Updated: 2011-09-05 06:30:28 +06:00

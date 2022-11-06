@@ -1,8 +1,6 @@
 ---
 Title: Lamenting Avijit's Jeopardous Trip to Bangladesh
 Tags:
-  - mukto-mona
-  - bangladesh
   - human rights
   - society
   - avijit roy

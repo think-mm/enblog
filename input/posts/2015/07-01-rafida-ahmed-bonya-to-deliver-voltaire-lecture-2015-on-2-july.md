@@ -1,7 +1,6 @@
 ---
 Title: Rafida Ahmed Bonya to deliver Voltaire Lecture 2015 on July 2
 Tags:
-  - mukto-mona
   - avijit roy
   - Mukto-Mona Editor
 Published: 2015-07-01 16:26:06 +06:00

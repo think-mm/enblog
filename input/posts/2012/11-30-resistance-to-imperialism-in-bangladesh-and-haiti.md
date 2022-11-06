@@ -3,7 +3,6 @@ Title: Resistance to Imperialism in Bangladesh and Haiti
 Tags:
   - politics
   - international
-  - bangladesh
   - human rights
   - activism
   - Stephanie McMillan

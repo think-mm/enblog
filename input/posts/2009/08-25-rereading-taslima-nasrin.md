@@ -4,7 +4,6 @@ Tags:
   - (re)reading taslima
   - book
   - culture
-  - bangladesh
   - Shabnam Nadiya
 Published: 2009-08-25 20:36:32 +06:00
 Updated: 2009-08-25 20:37:19 +06:00

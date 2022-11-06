@@ -3,8 +3,6 @@ Title: Worldwide Protests Planned in Support of Bangladeshi Freethinking Blogger
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
   - activism
   - shahbagh movement 2013
   - Mukto-Mona Editor

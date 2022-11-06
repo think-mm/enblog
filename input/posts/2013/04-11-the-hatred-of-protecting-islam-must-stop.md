@@ -4,10 +4,9 @@ Tags:
   - politics
   - religion
   - philosophy
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

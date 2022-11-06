@@ -1,13 +1,8 @@
 ---
 Title: Bangladesh Sliding into Darkness
 Tags:
-  - politics
-  - religion
-  - philosophy
-  - bangladesh
   - human rights
   - terrorism
-  - society
   - freethinking
   - Sukhamaya Bain
 Published: 2016-05-01 04:33:17 +06:00

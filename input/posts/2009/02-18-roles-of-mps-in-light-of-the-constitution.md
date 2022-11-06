@@ -2,7 +2,6 @@
 Title: Roles of MPs - In light of the constitution
 Tags:
   - politics
-  - bangladesh
   - 'roles of mps: in light of the constitution'
   - Anwarul Kabir
 Published: 2009-02-18 07:54:55 +06:00

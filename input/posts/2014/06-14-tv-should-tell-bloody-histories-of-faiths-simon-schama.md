@@ -4,7 +4,7 @@ Tags:
   - religion
   - philosophy
   - international
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2014-06-14 22:25:54 +06:00
 Updated: 2014-06-14 22:25:54 +06:00

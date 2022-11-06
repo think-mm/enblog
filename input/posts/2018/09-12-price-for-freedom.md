@@ -3,7 +3,6 @@ Title: Price for freedom
 Tags:
   - avijit roy
   - politics
-  - mukto-mona
   - human rights
   - society
   - Tonoy Emroz

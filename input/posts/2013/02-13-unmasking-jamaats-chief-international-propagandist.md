@@ -4,7 +4,6 @@ Tags:
   - mbi munshi's jamat connection
   - mbi munshi's pakistani connection
   - religion
-  - bangladesh
   - terrorism
   - shahbagh movement 2013
   - A. H. Jaffor Ullah

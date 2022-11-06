@@ -1,7 +1,6 @@
 ---
 Title: Save Dhaka! - Beware of land grabbers!!
 Tags:
-  - bangladesh
   - environment
   - Anwarul Kabir
 Published: 2010-06-17 20:05:16 +06:00

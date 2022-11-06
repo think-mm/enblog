@@ -4,7 +4,7 @@ Tags:
   - culture
   - india
   - human rights
-  - bangalee freethinker
+  - freethinker
   - women
   - A Rahman
 Published: 2014-01-17 20:26:47 +06:00

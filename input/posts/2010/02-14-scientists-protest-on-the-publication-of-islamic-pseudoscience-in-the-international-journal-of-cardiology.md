@@ -4,7 +4,6 @@ Tags:
   - international journal of cardiology publishes islamic apologetic tract
   - islamic pseudoscience in the international journal of cardiology. avijit english
   - philosophy
-  - mukto-mona
   - international
   - education
   - literature
@@ -101,11 +100,13 @@ And the author of <a href="https://www.amazon.com/Unintelligent-Design-Mark-Pera
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">Where is the modern medical condition of the heart in these verses? Mind you, I just cited only three verses from the Qur'an to demonstrate the utter untruthfulness of the author of the essay. The Qur'an is littered with hundreds of such hateful verses. How can we relate these hateful verses to modern medical science? </span></p>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">Many such similar passages are found in the Ahadith as well. For example, in a hadith we note that Muhammad had used "camel's urine" as a medicine. Do you think we should now resort to drinking camels' urine just because Islamic texts recommend it? Will you allow an essay extolling the virtues of drinking camels' urine in your journal? </span></p>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">Your decision to publish such a misleading and completely unscientific essay is utterly imprudent and highly regrettable. It will simply embolden religious bigotry and encourage the Islamist terrorists. </span></p>
-<p align="justify"><strong><span style="font-family: Garamond; font-size: medium;">Abul Kasem </span></strong></p>
 
+<p align="justify"><strong><span style="font-family: Garamond; font-size: medium;">Abul Kasem </span></strong></p>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">Lecturer in Civil Engineering
 Sydney, Australia
-Email: <a href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a>  </span>
+Email: nirribilli at gmail dot com</span>
+
+
 <p align="justify"><img src="https://blog.muktomona.com/wp-content/plugins/tango-smileys-extended/tango/line22.jpg" alt="" /></p>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">Dear Sir, </span></p>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;">I am a Ph.D. in biological science and worked many years in the U.S. with research animals and I am quite familiar with the anatomy, physiology and pathology of humans and most research animals. I have recently came across an amazingly controversial paper: 'The heart and cardiovascular system in the Qur'an and Hadeeth' (Marios Loukas, Yousuf Saad, R. Shane Tubbs and Mohamadali M. Shojawhich) and surprisingly this fraudulently crafted article claimed to be peer reviewed and accepted for publication by the Editorial Board of your well reputed journal. </span></p>

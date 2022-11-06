@@ -1,7 +1,6 @@
 ---
 Title: POWER CRISIS  - THE FIRST CHALLENGE BEFORE THE AWAMI LEAGUE GOVERNMENT
 Tags:
-  - bangladesh
   - power crisis
   - Bijon Sarma
 Published: 2009-04-12 20:10:29 +06:00

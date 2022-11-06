@@ -2,7 +2,7 @@
 Title: Analysis of a terrorist in Gulsan incident -why our kids are vulnerable to radical preachers
 Tags:
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - Biplab Pal
 Published: 2016-07-03 10:47:23 +06:00
 Updated: 2016-07-03 10:47:23 +06:00

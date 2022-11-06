@@ -3,10 +3,9 @@ Title: Saudi duplicity and inhumanity
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - human rights
-  - bangalee freethinker
+  - freethinker
   - activism
   - A Rahman
 Published: 2015-10-04 21:35:08 +06:00

@@ -4,7 +4,7 @@ Tags:
   - india
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - society
   - women
   - activism

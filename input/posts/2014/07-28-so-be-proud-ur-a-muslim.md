@@ -2,8 +2,7 @@
 Title: SO BE PROUD U'R A MUSLIM
 Tags:
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-07-28 12:54:52 +06:00

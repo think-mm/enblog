@@ -2,8 +2,6 @@
 Title: Bangladesh Facing the Music
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
   - society

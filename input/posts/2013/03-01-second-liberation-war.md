@@ -3,9 +3,7 @@ Title: SECOND LIBERATION WAR
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2013-03-01 13:09:05 +06:00

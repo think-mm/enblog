@@ -2,7 +2,6 @@
 Title: The man behind the Islamic Democratic Party
 Tags:
   - politics
-  - bangladesh
   - terrorism
   - William Gomes
 Published: 2009-11-15 09:38:36 +06:00

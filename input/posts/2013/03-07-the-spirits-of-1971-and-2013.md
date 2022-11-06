@@ -1,11 +1,10 @@
 ---
 Title: The Spirits of 1971 and 2013
 Tags:
-  - bangladesh
   - human rights
   - terrorism
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - society
   - 1971 genocide
   - activism

@@ -4,7 +4,7 @@ Tags:
   - politics
   - culture
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - women
   - health

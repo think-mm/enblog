@@ -3,9 +3,8 @@ Title: Muzzling the voice of freethinking bloggers - An alarming development in 
 Tags:
   - freedom of speech in bangladesh
   - 3 atheist bloggers arrested in bangladesh
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - shahbagh movement 2013
   - A. H. Jaffor Ullah
 Published: 2013-04-02 18:28:31 +06:00

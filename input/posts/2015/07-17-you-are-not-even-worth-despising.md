@@ -1,11 +1,9 @@
 ---
 Title: You Are Not Even Worth Despising
 Tags:
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - avijit roy
   - free speech

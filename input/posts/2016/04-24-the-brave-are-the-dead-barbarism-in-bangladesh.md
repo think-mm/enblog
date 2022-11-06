@@ -1,19 +1,11 @@
 ---
 Title: The Brave are the Dead - Barbarism in Bangladesh
 Tags:
-  - religion
-  - bangladesh
-  - human rights
-  - terrorism
-  - women
-  - activism
   - avijit roy
-  - blogger killings
+  - blogger killing
   - free speech
   - war crimes
-  - bangladeshi bloggers
   - freethinking
-  - history
   - Guest Writer
 Published: 2016-04-24 15:34:13 +06:00
 Updated: 2016-04-24 15:34:47 +06:00
@@ -57,6 +49,3 @@ Shooting forward to 2016, As the situation seems to further deteriorate in Bangl
 
 <a href="https://query.nytimes.com/gst/fullpage.html?res=9904E1D9143AF93BA35755C0A962958260">https://query.nytimes.com/gst/fullpage.html?res=9904E1D9143AF93BA35755C0A962958260</a>
 
-&nbsp;
-
-&nbsp;

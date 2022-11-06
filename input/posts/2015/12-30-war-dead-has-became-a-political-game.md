@@ -3,8 +3,7 @@ Title: War dead has became a political game
 Tags:
   - politics
   - international
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - A Rahman
@@ -32,5 +31,3 @@ In Syria, nearly 400,000 people (combatants and civilians) have died over four a
 We need the true figures or credible figures. The Awami Leaguers might feel that higher the fatality figure, the better credit they can claim, as if the ownership of the war is their alone. On the other hand, BNP may feel that discrediting any fatality figure is to their advantage that their Pakistani brothers never killed or mistreated the Bangladeshis and fatality is nothing but a myth! Between these extremely polarised political perspectives lies the real fatality number.
 
 The liberation war is over and done with. It is obscene to perpetually squabble on the fatality figure, as if the nation's future depends on it. It is time to reflect on those traumatised days, build our nation and our history. Our history must tell the truth, not manufactured stories. The history we are seeking is for our own sake and for our posterity.
-
-&nbsp;

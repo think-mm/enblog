@@ -5,7 +5,6 @@ Tags:
   - capital punishment
   - politics
   - philosophy
-  - bangladesh
   - human rights
   - society
   - 1971 genocide

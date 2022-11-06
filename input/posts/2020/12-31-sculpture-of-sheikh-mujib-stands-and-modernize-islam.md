@@ -2,9 +2,8 @@
 Title: Sculpture of Sheikh Mujib Stands and Modernize Islam
 Tags:
   - culture
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - Guest Writer
 Published: 2020-12-31 04:28:46 +06:00
 Updated: 2020-12-31 23:38:49 +06:00

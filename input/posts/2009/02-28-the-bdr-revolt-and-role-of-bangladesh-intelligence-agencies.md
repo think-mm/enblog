@@ -1,7 +1,6 @@
 ---
 Title: The BDR Revolt and Role of Bangladesh Intelligence Agencies
 Tags:
-  - bangladesh
   - bdr revolt
   - intelligence agencies
   - the bdr revolt and role of bangladesh intelligence agencies

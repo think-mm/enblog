@@ -3,10 +3,8 @@ Title: Orgy of killing in Bangladesh
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2015-08-11 23:46:51 +06:00
 Updated: 2015-08-11 23:46:51 +06:00

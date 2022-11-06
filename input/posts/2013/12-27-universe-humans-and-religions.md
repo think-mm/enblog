@@ -3,8 +3,7 @@ Title: UNIVERSE, HUMANS AND RELIGIONS
 Tags:
   - politics
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2013-12-27 15:32:47 +06:00

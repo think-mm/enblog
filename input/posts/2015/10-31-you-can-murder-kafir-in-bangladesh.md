@@ -3,9 +3,8 @@ Title: You can murder kafir in Bangladesh
 Tags:
   - politics
   - religion
-  - bangladesh
   - india
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Muktar Ahmed Mukul
 Published: 2015-10-31 21:07:07 +06:00

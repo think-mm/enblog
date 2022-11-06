@@ -5,7 +5,6 @@ Tags:
   - christiane amanpour interview
   - politics
   - economics
-  - bangladesh
   - human rights
   - Mohsin Siddique
 Published: 2013-05-08 00:14:51 +06:00

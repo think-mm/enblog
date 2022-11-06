@@ -1,7 +1,6 @@
 ---
 Title: Arrest of Atheist Bloggers of Bangladesh- A country sinking further into Islamic fundamentalism
 Tags:
-  - bangladesh
   - Atheist Bloggers
   - Biplab Pal
 Published: 2013-04-07 02:57:58 +06:00

@@ -3,9 +3,7 @@ Title: AN IMAGINARY HIFAZAT-E ISLAM SPEECH SOMEWHERE IN BANGLADESH -
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-04-12 17:42:57 +06:00
 Updated: 2013-08-12 21:15:33 +06:00

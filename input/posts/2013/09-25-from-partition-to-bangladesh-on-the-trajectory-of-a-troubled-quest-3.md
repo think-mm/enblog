@@ -3,7 +3,6 @@ Title: From Partition to Bangladesh - on the Trajectory of a Troubled Quest
 Tags:
   - politics
   - religion
-  - bangladesh
   - india
   - society
   - Mohsin Siddique

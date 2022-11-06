@@ -2,13 +2,11 @@
 Title: Bonya Receives Freedom From Religion Foundation's 'Forward' Award 2016
 Tags:
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - science
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - book
   - activism
   - avijit roy

@@ -1,7 +1,7 @@
 ---
 Title: Murdered blogger's stepdaughter - Dad taught me to be informed, bold, unafraid
 Tags:
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Trisha Ahmed
 Published: 2016-02-27 00:04:57 +06:00

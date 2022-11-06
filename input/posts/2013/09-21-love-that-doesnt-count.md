@@ -2,7 +2,6 @@
 Title: Love that doesn't count
 Tags:
   - culture
-  - bangladesh
   - human rights
   - society
   - education

@@ -3,7 +3,6 @@ Title: The Slow Demise of Democracy?
 Tags:
   - politics
   - culture
-  - bangladesh
   - liberation war
   - society
   - free speech

@@ -4,7 +4,6 @@ Tags:
   - politics
   - culture
   - philosophy
-  - mukto-mona
   - human rights
   - liberation war
   - A Rahman

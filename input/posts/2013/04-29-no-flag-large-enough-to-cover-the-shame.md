@@ -4,9 +4,8 @@ Tags:
   - avijit english
   - politics
   - philosophy
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - shahbagh movement 2013

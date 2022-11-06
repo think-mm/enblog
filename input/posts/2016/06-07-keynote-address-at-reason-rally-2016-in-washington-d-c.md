@@ -3,13 +3,11 @@ Title: keynote address at Reason Rally 2016 in Washington D.C
 Tags:
   - religion
   - philosophy
-  - mukto-mona
   - international
-  - bangladesh
   - science
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - blogger killings

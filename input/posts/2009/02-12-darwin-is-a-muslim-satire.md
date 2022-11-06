@@ -5,7 +5,6 @@ Tags:
   - islam
   - darwin day celebration
   - darwin day
-  - mukto-mona
   - celebration
   - Abul Kasem
 Published: 2009-02-12 15:37:03 +06:00
@@ -22,7 +21,7 @@ OldURL: 2009/02/12/darwin-is-a-muslim-satire/
 <div style="mso-element: dropcap-dropped; mso-element-wrap: around; mso-element-anchor-vertical: paragraph; mso-element-anchor-horizontal: column; mso-height-rule: exactly; mso-element-linespan: 3;"> </div>
 <p class="MsoNormal"><span style="font-family: Verdana;"><span lang="EN-AU">On February 12, the world will celebrate the 200<sup>th</sup> birth anniversary of Charles Darwin, the great scientist, philosopher, and naturalist. Darwin's contribution to the understanding of the development of biological species is crucial to the evolvement of modern genetics, biology, and medicine. Darwin's book: <em>The Origin of Species, </em>is perhaps the most influential book in human history to understand how the natural systems works, and demolishes the concept of a creationist world view.</span></span></p>
 <p class="MsoNormal"> </p>
-<p align="center"><span style="font-family: Verdana;"><img src="https://muktomona.com/Special_Event_/Darwin_day/2009/images/darwin_muslim_AK.jpg" alt="" /></span></p>
+<p align="center"><span style="font-family: Verdana;"><img src="https://gold.mukto-mona.com/Special_Event_/Darwin_day/2009/images/darwin_muslim_AK.jpg" alt="" /></span></p>
 <p class="MsoNormal"><span style="font-family: Verdana;"><span lang="EN-AU"> </span></span></p>
 <p class="MsoNormal"><span style="font-family: Verdana;"><span lang="EN-AU"> </span></span></p>
 <p class="MsoNormal" style="line-height: normal;"><span style="font-family: Verdana;"><span lang="EN-AU">Darwin's theory is summarized in the <em>Origin of Species</em> as follows:</span></span></p>
@@ -153,3 +152,13 @@ The Holy Qur'an: <a style="color: blue; text-decoration: underline; text-underli
 <p class="MsoNormal"><span lang="EN-AU">--------------------------
 Abul Kasem writes from Sydney, Australia. Send your comments to <a style="color: blue; text-decoration: underline; text-underline: single;" href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a></span>
 <p class="MsoNormal"><span lang="EN-AU"> </span></p>
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

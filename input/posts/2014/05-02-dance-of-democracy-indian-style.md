@@ -3,7 +3,7 @@ Title: DANCE OF DEMOCRACY - THE INDIAN STYLE
 Tags:
   - politics
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-05-02 14:10:17 +06:00
 Updated: 2014-05-13 17:35:55 +06:00

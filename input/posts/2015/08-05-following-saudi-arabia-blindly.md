@@ -5,9 +5,8 @@ Tags:
   - religion
   - culture
   - international
-  - bangladesh
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - Muktar Ahmed Mukul
 Published: 2015-08-05 16:25:40 +06:00
 Updated: 2015-08-06 18:05:00 +06:00

@@ -5,7 +5,7 @@ Tags:
   - politics
   - india
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - secularism

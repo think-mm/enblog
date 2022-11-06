@@ -1,7 +1,6 @@
 ---
 Title: Darwin day celebration - the International Recognition of Darwin, Science, and Humanity.
 Tags:
-  - mukto-mona
   - darwin day celebration
   - darwin day
   - philosophy

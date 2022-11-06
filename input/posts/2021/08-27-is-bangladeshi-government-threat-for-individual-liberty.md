@@ -2,7 +2,6 @@
 Title: Is Bangladeshi Government Threat for Individual  Liberty?
 Tags:
   - pori moni
-  - bangladesh
   - human rights
   - Md Maruf Hasan
 Published: 2021-08-27 02:06:35 +06:00

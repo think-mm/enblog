@@ -1,13 +1,10 @@
 ---
 Title: Life under Islamists' Machetes in Bangladesh
 Tags:
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - blogger killings
-  - bangladeshi bloggers
-  - freethinking
   - Mukto-Mona Editor
 Published: 2016-04-13 04:31:26 +06:00
 Updated: 2016-04-13 04:31:27 +06:00

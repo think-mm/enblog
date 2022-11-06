@@ -3,7 +3,7 @@ Title: MY FEUDAL LORD' AND ISLAMIC MORALITY
 Tags:
   - religion
   - culture
-  - bangalee freethinker
+  - freethinker
   - society
   - women
   - Bhaskar

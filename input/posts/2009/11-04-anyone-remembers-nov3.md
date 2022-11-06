@@ -5,7 +5,6 @@ Tags:
   - 3rd november
   - bangladesh politics
   - politics
-  - bangladesh
   - society
   - Mizan Rahman
 Published: 2009-11-04 01:25:22 +06:00

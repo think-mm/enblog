@@ -4,9 +4,8 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - international
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2016-09-11 22:48:47 +06:00
 Updated: 2016-09-11 22:48:47 +06:00

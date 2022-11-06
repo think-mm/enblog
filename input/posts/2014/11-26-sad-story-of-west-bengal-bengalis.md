@@ -2,10 +2,9 @@
 Title: SAD STORY OF WEST BENGAL BENGALIS
 Tags:
   - politics
-  - bangladesh
   - india
   - personality
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-11-26 11:41:54 +06:00

@@ -1,7 +1,7 @@
 ---
 Title: MuktoMona founder Avijit Roy murder prime accused ABT terrorist Sharif killed in Dhaka
 Tags:
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Mukto-Mona Editor
 Published: 2016-06-19 12:18:23 +06:00

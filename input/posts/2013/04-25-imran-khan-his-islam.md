@@ -3,7 +3,6 @@ Title: IMRAN KHAN &amp; HIS ISLAM
 Tags:
   - politics
   - religion
-  - mukto-mona
   - Bhaskar
 Published: 2013-04-25 12:56:38 +06:00
 Updated: 2013-08-14 21:22:16 +06:00

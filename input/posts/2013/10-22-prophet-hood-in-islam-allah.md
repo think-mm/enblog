@@ -2,9 +2,7 @@
 Title: PROPHET-HOOD IN ISLAM &amp; ALLAH
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-10-22 17:09:02 +06:00
 Updated: 2014-03-19 16:50:45 +06:00

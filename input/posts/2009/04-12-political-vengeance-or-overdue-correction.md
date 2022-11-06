@@ -4,7 +4,6 @@ Tags:
   - political vengeance
   - correction
   - politics
-  - bangladesh
   - Mozammel H Khan
 Published: 2009-04-12 19:48:34 +06:00
 Updated: 2009-07-28 00:48:47 +06:00

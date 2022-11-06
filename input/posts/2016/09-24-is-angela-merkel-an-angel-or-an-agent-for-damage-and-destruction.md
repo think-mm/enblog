@@ -3,7 +3,6 @@ Title: Is Angela Merkel an angel or an agent for damage and destruction?
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - activism
   - A Rahman

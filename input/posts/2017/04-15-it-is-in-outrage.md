@@ -5,7 +5,6 @@ Tags:
   - religion
   - culture
   - philosophy
-  - bangladesh
   - science
   - society
   - women

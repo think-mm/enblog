@@ -2,9 +2,7 @@
 Title: A FEW QUESTIONS TO JAMAAT-SHIBIR
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - shahbagh movement 2013
   - Bhaskar
 Published: 2013-09-24 16:47:19 +06:00

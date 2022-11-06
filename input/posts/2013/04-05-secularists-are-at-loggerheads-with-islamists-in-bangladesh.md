@@ -3,7 +3,6 @@ Title: Secularists are at loggerheads with Islamists in Bangladesh
 Tags:
   - politics
   - religion
-  - bangladesh
   - shahbagh movement 2013
   - A. H. Jaffor Ullah
 Published: 2013-04-05 09:07:06 +06:00

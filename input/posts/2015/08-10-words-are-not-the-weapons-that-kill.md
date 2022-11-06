@@ -3,10 +3,8 @@ Title: Words are Not the Weapons That Kill
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - avijit roy

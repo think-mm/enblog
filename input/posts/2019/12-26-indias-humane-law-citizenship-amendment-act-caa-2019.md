@@ -3,7 +3,6 @@ Title: India's Humane Law - Citizenship (Amendment) Act (CAA), 2019
 Tags:
   - politics
   - religion
-  - bangladesh
   - india
   - society
   - activism

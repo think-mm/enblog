@@ -3,7 +3,6 @@ Title: HINDU AMERICANS
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - activism
   - Bhaskar

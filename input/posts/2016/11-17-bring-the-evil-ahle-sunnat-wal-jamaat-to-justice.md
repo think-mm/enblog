@@ -5,7 +5,7 @@ Tags:
   - religion
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - secularism
   - Tonoy Emroz
 Published: 2016-11-17 21:20:07 +06:00

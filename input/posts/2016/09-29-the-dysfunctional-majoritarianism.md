@@ -1,7 +1,6 @@
 ---
 Title: The Dysfunctional Majoritarianism
 Tags:
-  - bangladesh
   - human rights
   - free speech
   - Tonoy Emroz

@@ -15,7 +15,6 @@ Tags:
   - same-sex marriage
   - special marriage act
   - religion
-  - bangladesh
   - human rights
   - society
   - Rainer Ebert

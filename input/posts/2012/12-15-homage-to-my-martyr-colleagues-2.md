@@ -2,7 +2,6 @@
 Title: Homage to my martyr colleagues
 Tags:
   - martyr intellectual day
-  - bangladesh
   - liberation war
   - 1971 genocide
   - Ajoy Roy

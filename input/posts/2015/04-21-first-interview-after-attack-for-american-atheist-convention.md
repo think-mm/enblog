@@ -3,15 +3,13 @@ Title: First interview after attack for American Atheist Convention
 Tags:
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - avijit roy
-  - blogger killings
+  - blogger killing
   - free speech
   - Mukto-Mona Editor
 Published: 2015-04-21 21:41:11 +06:00

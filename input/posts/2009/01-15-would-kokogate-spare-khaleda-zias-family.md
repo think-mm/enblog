@@ -2,7 +2,6 @@
 Title: Would 'Kokogate' spare Khaleda Zia's family?
 Tags:
   - politics
-  - bangladesh
   - A. H. Jaffor Ullah
 Published: 2009-01-15 17:30:39 +06:00
 Updated: 2009-07-09 18:18:21 +06:00

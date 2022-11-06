@@ -3,7 +3,7 @@ Title: The New World Order
 Tags:
   - politics
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - Jiten Roy
 Published: 2015-12-02 01:52:53 +06:00
 Updated: 2015-12-04 12:24:00 +06:00

@@ -3,10 +3,9 @@ Title: Appeasing the Islamists – a Distressing Sign for Bangladesh
 Tags:
   - politics
   - religion
-  - bangladesh
   - terrorism
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - society
   - 1971 genocide
   - shahbagh movement 2013

@@ -4,7 +4,6 @@ Tags:
   - student politics
   - al government
   - politics
-  - bangladesh
   - Bijon Sarma
 Published: 2009-04-24 23:28:07 +06:00
 Updated: 2009-07-16 22:13:10 +06:00

@@ -2,7 +2,6 @@
 Title: Authentic History of Myanmar and Rohingyas - Scapegoats of Modern Nation-State
 Tags:
   - international
-  - bangladesh
   - human rights
   - Shafiul Joy
 Published: 2017-02-22 03:51:53 +06:00

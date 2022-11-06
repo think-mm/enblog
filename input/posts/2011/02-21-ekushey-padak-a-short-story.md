@@ -1,9 +1,8 @@
 ---
 Title: Ekushey Padak   (A Short Story)
 Tags:
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - literature
   - activism
   - Adnan Lermontov

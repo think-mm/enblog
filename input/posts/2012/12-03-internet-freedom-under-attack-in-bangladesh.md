@@ -2,7 +2,6 @@
 Title: Internet freedom under attack in Bangladesh
 Tags:
   - politics
-  - bangladesh
   - islam
   - free speech
   - innocence of muslims

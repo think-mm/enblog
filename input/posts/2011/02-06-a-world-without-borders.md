@@ -9,8 +9,7 @@ Tags:
   - politics
   - culture
   - philosophy
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - society
   - women
   - activism

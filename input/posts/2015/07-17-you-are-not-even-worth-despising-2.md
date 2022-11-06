@@ -4,13 +4,12 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - international
   - science
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - arrested [blasphemous] bloggers' writings

@@ -3,10 +3,9 @@ Title: Non-Muslims in Bangladesh – What Choices Do They Have?
 Tags:
   - politics
   - philosophy
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

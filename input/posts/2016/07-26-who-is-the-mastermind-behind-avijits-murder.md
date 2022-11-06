@@ -1,7 +1,7 @@
 ---
 Title: Who is the mastermind behind Avijit's murder?
 Tags:
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - blogger killings
   - Raihan Abir

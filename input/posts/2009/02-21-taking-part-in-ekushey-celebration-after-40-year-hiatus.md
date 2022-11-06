@@ -4,8 +4,6 @@ Tags:
   - ekushey
   - language day celebration
   - mother language day
-  - mukto-mona
-  - bangladesh
   - liberation war
   - celebration
   - A. H. Jaffor Ullah

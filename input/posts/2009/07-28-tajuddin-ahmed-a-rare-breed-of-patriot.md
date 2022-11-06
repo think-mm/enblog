@@ -1,7 +1,6 @@
 ---
 Title: Tajuddin Ahmed - A Rare Breed of Patriot
 Tags:
-  - bangladesh
   - tajuddin ahmed
   - patriot
   - politics

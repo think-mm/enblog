@@ -2,7 +2,6 @@
 Title: State needs to stand up against the bully
 Tags:
   - religion
-  - bangladesh
   - human rights
   - Guest Writer
 Published: 2017-12-17 11:27:44 +06:00

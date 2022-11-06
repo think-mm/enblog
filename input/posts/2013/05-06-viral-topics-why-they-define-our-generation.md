@@ -3,7 +3,6 @@ Title: Viral Topics - Why They Define Our Generation
 Tags:
   - culture
   - international
-  - bangladesh
   - society
   - activism
   - Trisha Ahmed

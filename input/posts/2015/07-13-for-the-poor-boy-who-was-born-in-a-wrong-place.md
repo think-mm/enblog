@@ -3,10 +3,8 @@ Title: For the Poor Boy Who Was Born in a Wrong Place
 Tags:
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

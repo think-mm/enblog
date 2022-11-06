@@ -5,7 +5,6 @@ Tags:
   - law
   - constitution
   - politics
-  - bangladesh
   - human rights
   - society
   - activism

@@ -3,8 +3,7 @@ Title: RELIGION BASED POLITICS - AN APOLOGY OF DEMOCRACY
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-05-04 21:18:56 +06:00
 Updated: 2014-05-13 17:22:34 +06:00

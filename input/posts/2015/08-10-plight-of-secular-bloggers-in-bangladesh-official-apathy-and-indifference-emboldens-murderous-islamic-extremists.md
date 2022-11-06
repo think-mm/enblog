@@ -3,11 +3,9 @@ Title: Plight of secular bloggers in Bangladesh - Official apathy and indifferen
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - arrested [blasphemous] bloggers' writings

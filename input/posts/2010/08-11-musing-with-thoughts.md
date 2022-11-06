@@ -2,7 +2,7 @@
 Title: Musing with Thoughts
 Tags:
   - religion
-  - bangalee freethinker
+  - freethinker
   - Jiten Roy
 Published: 2010-08-11 08:17:40 +06:00
 Updated: 2010-08-11 08:21:24 +06:00

@@ -6,7 +6,6 @@ Tags:
   - hijab
   - misogyny
   - culture
-  - bangladesh
   - A. H. Jaffor Ullah
 Published: 2010-04-12 07:35:49 +06:00
 Updated: 2010-04-12 07:35:49 +06:00

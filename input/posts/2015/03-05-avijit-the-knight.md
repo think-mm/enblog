@@ -1,7 +1,7 @@
 ---
 Title: Avijit, the Knight
 Tags:
-  - bangalee freethinker
+  - freethinker
   - activism
   - Jiten Roy
 Published: 2015-03-05 06:42:02 +06:00

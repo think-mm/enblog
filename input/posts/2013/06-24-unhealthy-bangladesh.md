@@ -4,7 +4,7 @@ Tags:
   - politics
   - religion
   - culture
-  - bangalee freethinker
+  - freethinker
   - Jiten Roy
 Published: 2013-06-24 07:00:11 +06:00
 Updated: 2013-06-24 07:25:35 +06:00

@@ -3,12 +3,10 @@ Title: OUR AVIJIT, THEIR AVIJIT AND BANGLADESH
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2015-03-09 21:13:32 +06:00

@@ -4,7 +4,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - india
   - human rights
   - society

@@ -3,7 +3,6 @@ Title: FFRF announces memorial award on third anniversary of Avijit Roy's assass
 Tags:
   - politics
   - religion
-  - mukto-mona
   - science
   - personality
   - celebration

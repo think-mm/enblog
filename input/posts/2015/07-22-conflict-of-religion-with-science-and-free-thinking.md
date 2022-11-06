@@ -2,9 +2,7 @@
 Title: Conflict of religion with science and free-thinking
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - activism
   - A Rahman
 Published: 2015-07-22 01:41:50 +06:00

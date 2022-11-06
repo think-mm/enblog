@@ -2,9 +2,7 @@
 Title: BANGLADESH AT CROSS ROAD
 Tags:
   - politics
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-01-11 21:34:27 +06:00

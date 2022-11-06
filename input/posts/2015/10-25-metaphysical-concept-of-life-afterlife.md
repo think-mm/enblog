@@ -4,7 +4,7 @@ Tags:
   - religion
   - philosophy
   - science
-  - bangalee freethinker
+  - freethinker
   - Jiten Roy
 Published: 2015-10-25 00:00:29 +06:00
 Updated: 2015-10-25 00:00:29 +06:00

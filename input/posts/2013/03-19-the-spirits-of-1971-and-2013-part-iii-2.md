@@ -4,9 +4,8 @@ Tags:
   - politics
   - religion
   - philosophy
-  - bangladesh
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - 1971 genocide
   - activism
   - shahbagh movement 2013

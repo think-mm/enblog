@@ -3,10 +3,9 @@ Title: ENIMIES AND FRIENDS FROM WITHIN
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - india
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-12-01 12:47:50 +06:00

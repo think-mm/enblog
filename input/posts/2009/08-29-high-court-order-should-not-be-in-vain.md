@@ -1,7 +1,6 @@
 ---
 Title: High Court order shouldn't be in vain
 Tags:
-  - bangladesh
   - Ripan
 Published: 2009-08-29 10:41:28 +06:00
 Updated: 2009-08-29 21:59:03 +06:00

@@ -2,7 +2,6 @@
 Title: AL JP Alliance - a journey to wilderness
 Tags:
   - politics
-  - bangladesh
   - Mozammel H Khan
 Published: 2008-12-24 01:28:16 +06:00
 Updated: 2009-07-28 00:48:18 +06:00

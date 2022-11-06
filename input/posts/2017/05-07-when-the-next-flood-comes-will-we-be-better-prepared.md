@@ -1,7 +1,6 @@
 ---
 Title: When the next flood comes will we be better prepared?
 Tags:
-  - bangladesh
   - Bonya Ahmed
 Published: 2017-05-07 01:18:20 +06:00
 Updated: 2017-05-07 01:18:33 +06:00

@@ -5,7 +5,7 @@ Tags:
   - religion
   - culture
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2013-11-18 16:36:53 +06:00
 Updated: 2013-11-18 16:36:53 +06:00

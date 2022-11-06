@@ -3,13 +3,11 @@ Title: Bonya Ahmed on BBC Sunday Morning Live
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy

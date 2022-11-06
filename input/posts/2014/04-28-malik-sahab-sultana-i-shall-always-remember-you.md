@@ -1,9 +1,8 @@
 ---
 Title: MALIK SAHAB &amp; SULTANA - I SHALL NEVER FORGET YOU
 Tags:
-  - bangladesh
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-04-28 18:40:32 +06:00

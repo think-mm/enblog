@@ -3,7 +3,6 @@ Title: DON'T MISS THE BUS - Lt. Gen. Ata Hasnain, Indian Army (Retd.)
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
   - A Rahman
 Published: 2014-11-16 17:28:33 +06:00

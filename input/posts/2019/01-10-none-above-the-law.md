@@ -2,7 +2,6 @@
 Title: None above the law
 Tags:
   - politics
-  - bangladesh
   - personality
   - society
   - activism

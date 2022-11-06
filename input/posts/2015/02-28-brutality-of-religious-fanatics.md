@@ -2,10 +2,8 @@
 Title: Brutality of religious fanatics
 Tags:
   - religion
-  - mukto-mona
   - international
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - A Rahman
 Published: 2015-02-28 02:09:15 +06:00

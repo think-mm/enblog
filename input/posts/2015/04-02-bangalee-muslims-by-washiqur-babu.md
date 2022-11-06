@@ -4,11 +4,9 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - education
   - activism

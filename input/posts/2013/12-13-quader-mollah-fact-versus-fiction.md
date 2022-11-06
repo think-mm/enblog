@@ -3,7 +3,6 @@ Title: Quader Mollah - fact versus fiction
 Tags:
   - politics
   - religion
-  - bangladesh
   - 1971 genocide
   - shahbagh movement 2013
   - Mozammel H Khan

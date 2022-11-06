@@ -1,11 +1,7 @@
 ---
-Title: A Guide to the Qur'anic Contradictions (Part-4)
+Title: A Guide to the Quranic Contradictions Part-4
 Tags:
-  - islam
   - koranic contradictions
-  - religion
-  - culture
-  - philosophy
   - Abul Kasem
 Published: 2009-01-25 16:43:57 +06:00
 Updated: 2009-05-17 09:40:27 +06:00
@@ -134,6 +130,13 @@ OldURL: 2009/01/25/a-guide-to-the-qur%e2%80%99anic-contradictions-part-4/
 <p class="MsoNormal"><span style="color: #c00000;">End of Part 4.</span></p>
 <p align="right"><span style="font-size: 12pt; font-family: Times New Roman;">To be continued in <a href="https://enblog.muktomona.com/?p=110">part 5</a></span></p>
 
- 
 
-<hr /><em><a href="https://gold.mukto-mona.com/Articles/kasem/index.html">Abul Kasem</a></em> is a Bengali freethinker and is a teacher by profession. He has contributed in <a href="https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689/ref=pd_bbs_sr_1/104-8919824-5747905?ie=UTF8&amp;s=books&amp;qid=1176351399&amp;sr=1-1" target="_blank"><em>Leaving Islam - Apostates Speak Out</em></a><em> </em>and<em> <a href="https://www.amazon.com/gp/product/1933146192/sr=8-1/qid=1144991009/ref=pd_bbs_1/002-2152279-3237646?_encoding=UTF8" target="_blank">Beyond Jihad - Critical Voices from Inside</a></em>. He has also written extensively on Islam in various websites and is the author of several e-Books including: <em>A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam</em>. Mr. Kasem leaves in Sydney, Australia. His latest contribution is in the book <em><a href="https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102">Why We left Islam</a></em>, edited by Susan Crimp et al.  He can be contacted at <a href="mailto:abul88@hotmail.com">abul88@hotmail.com</a> and <a href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a>
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

@@ -3,7 +3,6 @@ Title: A Note on Peter Custers
 Tags:
   - politics
   - international
-  - bangladesh
   - india
   - personality
   - Mohsin Siddique

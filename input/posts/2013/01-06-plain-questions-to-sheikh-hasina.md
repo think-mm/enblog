@@ -2,7 +2,6 @@
 Title: Plain Questions to Sheikh Hasina
 Tags:
   - politics
-  - bangladesh
   - Guest Writer
 Published: 2013-01-06 04:59:28 +06:00
 Updated: 2013-01-07 09:30:00 +06:00

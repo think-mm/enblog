@@ -1,7 +1,6 @@
 ---
 Title: Trisha Ahmed writes to stepfather Avijit Roy after the verdict.
 Tags:
-  - bangladesh
   - avijit roy
   - blogger killing
   - bangladeshi bloggers

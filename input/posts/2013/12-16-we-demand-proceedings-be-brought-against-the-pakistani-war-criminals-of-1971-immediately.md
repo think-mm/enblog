@@ -1,7 +1,6 @@
 ---
 Title: We demand proceedings be brought against the Pakistani War Criminals of 1971 immediately
 Tags:
-  - bangladesh
   - liberation war
   - 1971 genocide
   - activism

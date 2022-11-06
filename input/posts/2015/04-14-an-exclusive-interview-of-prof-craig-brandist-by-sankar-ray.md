@@ -1,15 +1,17 @@
 ---
 Title: An exclusive interview of Prof. Craig Brandist (by Sankar Ray)
 Tags:
-  - Jahed
+  - Jahed Ahmed
 Published: 2015-04-14 18:43:50 +06:00
 Updated: 2015-04-29 19:36:29 +06:00
 OldURL: 2015/04/14/an-exclusive-interview-of-prof-craig-brandist-by-sankar-ray/
 ---
 
+~ [*Jahed Ahmed*](https://gold.mukto-mona.com/Articles/jahed/index.html)
+
 The following post has been received in an email from Mr. Sankar Ray, a Kolkata-based veteran journalist and analyst. Mr. Ray is a long time well wisher and member of mukto-mona.
- - Jahed Ahmed
-========================
+
+----
 
 Dr Craig Brandist is , Professor of Cultural Theory and Intellectual History , University of  Sheffield and director Bakhtin Centre. Among his major works are The Bakhtin Circle: Philosophy, Culture and Politics ( 2002), and  The Dimensions of Hegemony: Language, Culture and Politics in Revolutionary Russia ( 2015) and Politics and the Theory of Language in the USSR 1917-1998: The Birth of Sociological Linguistics (2010), and jointly with Katya Chown. One of the research projects he has been pursuing is on Gramsci's time in Russia along with Dr. Peter Thomas of Brunel University. In fact, he spoke  to Sankar Ray, veteran Kolkata-based writer, specializing in Left politics and history as also environmental issues on this topic. Much of this was stated by Prof Brandist   in an oration at the Centre for Marxist Studies, Jadavpur University, Kolkata.
  
@@ -17,7 +19,7 @@ His research interest covers in the main the interaction between Marxism, henome
  
 SR: You stated in your Debesh Chakraborty memorial lecture at the Centre for Marxist Studies that in the late 1930s, during the Stalin era in the Stalin period that there was "a shift from Latinisation of language of the people of Russia (obviously meaning the USSR- SR) to the adoption of Cyrillic alphabet". So the claim by the official Marxist parties, meaning those that were 'sections of Comintern' , that Stalin solved the linguistic problems in the USSR, is unsubstantiated. You inferred that it was a sort of linguistic colonialism or the like, Will you drive your point in an explanatory way? Wasn't Latinisation during Lenin period too linguistic repression?  
  
-CB:Latinization for the scripts of the newly standardized languages of the USSR in the
+CB: Latinization for the scripts of the newly standardized languages of the USSR in the
 1920s was perceived by the Bolsheviks a way of steering a path between two dangers:
 1) that national minorities would perceive Cyrillic as a colonial imposition similar to
 Tsarist Russification policies, and 2) yielding the sphere of education to mullahs in
@@ -62,12 +64,12 @@ shift to Cyrillic in the late 1930s was but one aspect of this.
  
  
  
-SR : But you are of the view that language and culture are subject to power
+SR: But you are of the view that language and culture are subject to power
 relations and hierarchy of a society in which a dominant discourse imposes itself
 on the others. If so, don't language and culture have elements of even linguistic
 repression?
  
-CB :I'm not entirely sure of the point you're getting at here. Certainly language and
+CB: I'm not entirely sure of the point you're getting at here. Certainly language and
 culture are fields of force within which the struggle between classes and other centres
 of power takes place. In the context of the USSR in the 1920s workers' power
 appeared as repression (the proletarian dictatorship over the bourgeoisie) and as
@@ -81,9 +83,9 @@ The dichotomy Gramsci developed here is quite useful for modelling power relatio
 in the USSR in the 1920s and 1930s and how this worked in and through language.
  
  
-SR :A school of cultural theorists who endorse Antonio Gramsci's views on culture and linguistics suggests that Mao Zedong's Great Proletarian Cultural Revolution was an endorsement of Aleksandor Bogdanov's thesis on Proletcult. If it is true, wasn't the GPCR a negation of Lenin's perception of culture or cultural revolution as Lenin profoundly differed with Bogdanov on proletcult?
+SR: A school of cultural theorists who endorse Antonio Gramsci's views on culture and linguistics suggests that Mao Zedong's Great Proletarian Cultural Revolution was an endorsement of Aleksandor Bogdanov's thesis on Proletcult. If it is true, wasn't the GPCR a negation of Lenin's perception of culture or cultural revolution as Lenin profoundly differed with Bogdanov on proletcult?
  
-CB:The 'GPCR' was in reality neither primarily cultural nor revolutionary, but Mao
+CB: The 'GPCR' was in reality neither primarily cultural nor revolutionary, but Mao
 struggling to maintain power against opponents in the bureaucracy through the
 mobilization of youth in particular. This attempt to boost populist appeal was crucial
 after the disaster of the 'Great Leap Forward'. There were fundamental differences
@@ -142,7 +144,7 @@ Language, Culture and Politics in revolutionary Russia (Leiden etc: Brill 2015).
 present this is only available in an expensive hardback, but a cheaper paperback
 edition should appear with Haymarket Press in a year or so.
  
-SR : In a paper, Russian Marxism, Hegemony and the Critique of Eurocentrism, you
+SR: In a paper, Russian Marxism, Hegemony and the Critique of Eurocentrism, you
 observed that the post-colonial and subaltern theorists have been selectively
 picked up Gramsci's concepts of hegemony and imposed them into "an eclectic
 theoretical edifice that Edward Said called an 'adversary epistemological
@@ -157,7 +159,7 @@ countryside', in one of the last manuscripts of Capital II written one year afte
 his letter to Mikhailovsky." (Paresh Chattopadhyay : Passage to Socialism: The
 Dialectic of Progress in Marx in Historical Materialism, Nov 2006, p 53 n).
  
-CB :My work is actually directed against the 'postmodern' assumption that Marxism is
+CB: My work is actually directed against the 'postmodern' assumption that Marxism is
 essentially Eurocentric. Edward Said certainly encouraged this distorted view of
 Marxism, though his own relationship to Marxism was complex and shifting.
 Subsequently the more 'hardline' Foucauldians who developed 'postcolonial studies'
@@ -190,8 +192,8 @@ One of the things we also know now is that in the development of Bolshevik polic
 towards the national and colonial question developed in and through exchanges with
 communists in the 'borderland' parties of the Russian Empire and then through
 exchanges with liberation movements outside what became the USSR. One
-interesting contribution to the discussion is Eric Blanc's work on the question, which can be read here: https://johnriddell.wordpress.com/2014/05/20/national-liberation-
-and-bolshevism-reexamined-a-view-from-the-borderlands/ . It is this openness to
+interesting contribution to the discussion is Eric Blanc's work on the question, which can be read here: https://johnriddell.wordpress.com/2014/05/20/national-liberation-and-bolshevism-reexamined-a-view-from-the-borderlands
+It is this openness to
 dialogue and resistance to dogma that is the great strength of the Bolsheviks, and of
 Marxism in general, and the reason why the experience of Stalinism was so disastrous
 to the entire movement. So what happened is that when intellectuals in the various
@@ -201,7 +203,7 @@ Marxism itself. So now we have a widespread caricature of Marxism as a Eurocentr
 dogma, and it requires a proper, open and critical, in a word a historical analysis to
 combat this distorted image.
  
-SR : You referred to the controversial archaeologist and linguistic scholar, Nikolai
+SR: You referred to the controversial archaeologist and linguistic scholar, Nikolai
 Marr and his 'ideology-critique' of Euro-centrism, in view of destruction of
 linguistic progression during the Stalin era. Will you say a few words on this
 scholar and its relevance to linguistic plurality or whatever you call it in the
@@ -254,10 +256,10 @@ allows us to uncover the achievements and weaknesses of the past, to learn from 
 and so to move forward.
  
  
-SR:  Were there similarities between the linguistic theories of Gramsci and Mikhail
+SR: Were there similarities between the linguistic theories of Gramsci and Mikhail
 Bakhtin?
  
-CB :Yes indeed. I wrote about this at length in the late 1990s. Gramsci and Bakhtin shared a Humbolditan conception of language according to which a language embodies a worldview. Gramsci derived many ideas from his former tutor Matteo Bartoli, who
+CB: Yes indeed. I wrote about this at length in the late 1990s. Gramsci and Bakhtin shared a Humbolditan conception of language according to which a language embodies a worldview. Gramsci derived many ideas from his former tutor Matteo Bartoli, who
 sought to trace the conditions under which innovations flow from one speech
 community to another according to relations of prestige. Gramsci shifted this account
 from relations between nations to relations between classes in society. Bakhtin
@@ -288,4 +290,12 @@ continue working with the open, critical and non-dogmatic social theory that the
 Revolution had given rise to, but that was in the process of being deformed almost
 beyond recognition.
 
-SR : Thanks, Prof Craig Brandist
+SR: Thanks, Prof Craig Brandist
+
+
+----
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
+- Can be contacted at email: *worldcitizen73 at yahoo dot com*

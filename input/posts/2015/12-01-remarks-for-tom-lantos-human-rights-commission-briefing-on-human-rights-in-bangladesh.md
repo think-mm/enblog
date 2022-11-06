@@ -2,13 +2,11 @@
 Title: Remarks for Tom Lantos Human Rights Commission Briefing on Human Rights in Bangladesh
 Tags:
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy

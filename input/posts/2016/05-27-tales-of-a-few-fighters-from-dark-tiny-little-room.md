@@ -2,7 +2,6 @@
 Title: Tales of a few fighters from dark tiny little room
 Tags:
   - blogg
-  - bangladesh
   - activism
   - arrested [blasphemous] bloggers' writings
   - blogger killings

@@ -2,8 +2,7 @@
 Title: RELIGION &amp; MORALITY" - TEACHING IN SCHOOLS OF BANGLADESH
 Tags:
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-01-26 18:22:06 +06:00
 Updated: 2014-03-24 17:25:30 +06:00

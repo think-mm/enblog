@@ -2,7 +2,6 @@
 Title: The Most Intractable Problem of the USA
 Tags:
   - politics
-  - mukto-mona
   - international
   - freethinking
   - Sukhamaya Bain

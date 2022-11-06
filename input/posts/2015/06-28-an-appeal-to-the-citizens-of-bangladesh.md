@@ -2,11 +2,9 @@
 Title: An appeal to the citizens of Bangladesh
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - science
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - Guest Writer
 Published: 2015-06-28 08:50:03 +06:00

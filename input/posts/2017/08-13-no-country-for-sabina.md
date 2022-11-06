@@ -2,7 +2,6 @@
 Title: No country for Sabina
 Tags:
   - politics
-  - bangladesh
   - human rights
   - society
   - women

@@ -2,7 +2,7 @@
 Title: A breath of fresh air
 Tags:
   - culture
-  - bangalee freethinker
+  - freethinker
   - society
   - A Rahman
 Published: 2014-03-28 03:03:17 +06:00

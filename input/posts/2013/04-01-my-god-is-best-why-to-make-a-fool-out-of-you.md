@@ -1,7 +1,7 @@
 ---
 Title: MY GOD IS BEST - WHY TO MAKE A FOOL OUT OF YOU?
 Tags:
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-04-01 12:58:12 +06:00
 Updated: 2013-08-12 21:17:06 +06:00

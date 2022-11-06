@@ -1,11 +1,8 @@
 ---
 Title: Documentary - Freethinking Apocalypse
 Tags:
-  - bangladesh
-  - bangalee freethinker
-  - activism
-  - blogger killings
-  - bangladeshi bloggers
+  - freethinker
+  - blogger killing
   - Foring Camelia
 Published: 2016-04-18 20:33:38 +06:00
 Updated: 2016-04-18 20:33:38 +06:00

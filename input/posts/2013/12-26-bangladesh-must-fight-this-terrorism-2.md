@@ -2,7 +2,6 @@
 Title: Bangladesh Must Fight this Terrorism
 Tags:
   - politics
-  - bangladesh
   - terrorism
   - society
   - Sukhamaya Bain

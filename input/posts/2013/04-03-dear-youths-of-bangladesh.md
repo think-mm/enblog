@@ -2,8 +2,7 @@
 Title: DEAR YOUTHS OF BANGLADESH
 Tags:
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2013-04-03 16:15:45 +06:00

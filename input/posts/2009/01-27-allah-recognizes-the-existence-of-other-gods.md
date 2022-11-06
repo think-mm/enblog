@@ -10,9 +10,7 @@ OldURL: 2009/01/27/allah-recognizes-the-existence-of-other-gods/
 
 ~ *Mohammad Asghar*
 
-
 <div class="ArticleText">
-
 <span style="color: #000000; font-family: Verdana;"><font id="role_document" face="Verdana" color="#000000">
 <div class="ArticleText">
 <p align="justify">The religion of Islam revolves around what are known to be its <span id="lw_1233059793_1" class="yshortcuts">five pillars</span>. These pillars are: (1). Believing in the Oneness of <span id="lw_1233059793_2" class="yshortcuts">Allah</span> and that the Prophet Muhammad is (not was!) His Prophet; (2). Offering daily five prayers to Allah; (3) Fasting in the month of Ramadhan; (4). Giving Zakat [alms] to the indigent Muslims and (5) Performing <span id="lw_1233059793_3" class="yshortcuts">Hajj</span> in Mecca at least once in one's lifetime, if one is physically able to undertake it.</p>
@@ -133,5 +131,7 @@ Yusuf Ali: [We did indeed offer the Trust to the Heavens and the Earth and the M
 
 </span></div>
 </div>
-<hr />
-<p class="SmallText">Mohammad Asghar  is a Bangladeshi freethinker writes from USA. He can be reached at : <a href="mailto:MSA40@aol.com">MSA40@aol.com</a></p>
+
+----
+*Mohammad Asghar* 
+- ABangladeshi freethinker writes from USA. He can be reached at MSA40 at aol dot com

@@ -4,7 +4,6 @@ Tags:
   - politics
   - religion
   - culture
-  - bangladesh
   - human rights
   - society
   - women

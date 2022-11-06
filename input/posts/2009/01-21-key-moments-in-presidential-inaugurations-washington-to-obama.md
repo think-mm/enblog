@@ -60,3 +60,10 @@ OldURL: 2009/01/21/key-moments-in-presidential-inaugurations-washington-to-obama
 <span style="font-size: 11pt; font-family: 'Arial Narrow'"> </span><o:p></o:p><span style="font-size: 11pt; font-family: 'Arial Narrow'">Today Barack Obama is being sworn in as the America's 44<sup>th</sup> president on Lincoln's bible of 1865 and then would take part in a luncheon that has a menu featuring some of Lincoln's favorite dishes. </span><o:p></o:p><span style="font-size: 11pt; font-family: 'Arial Narrow'">01.20.2009</span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span style="font-size: 11pt; font-family: 'Arial Narrow'">New York </span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span style="font-size: 11pt; font-family: 'Arial Narrow'">Source: <a href="https://abcnews.go.com/">https://abcnews.go.com/</a></span><o:p></o:p><font face="Times New Roman"> <o:p></o:p></font><span><o:p><font face="Times New Roman"> </font></o:p></span>
 
 _Farid, on behalf of Jahed Ahmed_
+
+----
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
+- Can be contacted at email: *worldcitizen73 at yahoo dot com* 

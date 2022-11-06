@@ -1,8 +1,6 @@
 ---
 Title: Commemorating Niloy Neel - Perished by Al-Qaeda's Sword, Immortal with the Pen.
 Tags:
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
   - blogger killings

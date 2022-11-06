@@ -2,7 +2,6 @@
 Title: Muktomona condemns the killings in Sri Lanka
 Tags:
   - religion
-  - mukto-mona
   - terrorism
   - Mukto-Mona Editor
 Published: 2019-04-22 10:10:37 +06:00

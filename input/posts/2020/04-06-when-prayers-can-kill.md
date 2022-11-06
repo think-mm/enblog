@@ -1,13 +1,8 @@
 ---
 Title: When prayers can kill
 Tags:
-  - covid 19
-  - coronavirus
-  - politics
-  - religion
-  - bangladesh
+  - covid19
   - human rights
-  - society
   - Tonoy Emroz
 Published: 2020-04-06 20:35:44 +06:00
 Updated: 2020-04-06 20:35:44 +06:00

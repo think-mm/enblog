@@ -1,11 +1,9 @@
 ---
 Title: Judgments We Make
 Tags:
-  - bangladesh
   - gay
   - lesbian
   - stereotyping
-  - mukto-mona
   - buttertoes
 Published: 2014-10-05 14:48:03 +06:00
 Updated: 2014-10-05 14:48:03 +06:00

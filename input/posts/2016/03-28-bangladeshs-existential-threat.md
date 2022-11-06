@@ -2,10 +2,8 @@
 Title: Bangladesh's existential threat
 Tags:
   - politics
-  - mukto-mona
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2016-03-28 23:33:53 +06:00
 Updated: 2016-03-28 23:33:53 +06:00

@@ -1,7 +1,6 @@
 ---
 Title: Beauty a curse in Bangladesh
 Tags:
-  - bangladesh
   - human rights
   - violence
   - William Gomes

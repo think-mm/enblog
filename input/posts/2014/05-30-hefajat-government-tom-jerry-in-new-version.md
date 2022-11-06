@@ -3,7 +3,6 @@ Title: Hefajat &amp; Government - Tom &amp; Jerry in New Version
 Tags:
   - politics
   - religion
-  - bangladesh
   - human rights
   - terrorism
   - shahbagh movement 2013

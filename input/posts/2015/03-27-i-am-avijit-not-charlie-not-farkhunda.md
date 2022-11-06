@@ -3,7 +3,6 @@ Title: I am Avijit; Not Charlie, Not Farkhunda
 Tags:
   - religion
   - philosophy
-  - mukto-mona
   - human rights
   - terrorism
   - society

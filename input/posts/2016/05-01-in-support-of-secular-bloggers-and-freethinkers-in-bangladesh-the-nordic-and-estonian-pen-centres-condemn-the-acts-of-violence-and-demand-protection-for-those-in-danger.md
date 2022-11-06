@@ -3,11 +3,9 @@ Title: In support of secular bloggers and freethinkers in Bangladesh – The Nor
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - avijit roy
   - blogger killings

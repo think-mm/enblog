@@ -3,13 +3,11 @@ Title: CHHI CHHI
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Bhaskar

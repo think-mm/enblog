@@ -3,9 +3,8 @@ Title: SUCCESS OF MODI AND CONCERN OF BANGLADESHI
 Tags:
   - politics
   - religion
-  - bangladesh
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-05-23 10:08:32 +06:00
 Updated: 2014-05-23 10:11:31 +06:00

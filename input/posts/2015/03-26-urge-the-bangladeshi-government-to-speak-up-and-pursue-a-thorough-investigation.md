@@ -1,11 +1,9 @@
 ---
 Title: Urge the Bangladeshi government to speak up and pursue a thorough investigation.
 Tags:
-  - mukto-mona
-  - bangladesh
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - society
   - Bonya Ahmed
 Published: 2015-03-26 03:20:47 +06:00

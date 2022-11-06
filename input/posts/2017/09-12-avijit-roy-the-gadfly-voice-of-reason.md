@@ -3,11 +3,10 @@ Title: Avijit Roy - The Gadfly voice of reason
 Tags:
   - religion
   - philosophy
-  - mukto-mona
   - science
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - book
   - activism
   - avijit roy

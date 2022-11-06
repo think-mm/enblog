@@ -1,7 +1,6 @@
 ---
 Title: The Legacy of a Martyred Freethinker
 Tags:
-  - bangladesh
   - avijit roy
   - blogger killings
   - freethinking

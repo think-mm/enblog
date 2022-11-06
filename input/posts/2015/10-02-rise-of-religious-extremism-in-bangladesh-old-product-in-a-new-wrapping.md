@@ -1,7 +1,6 @@
 ---
 Title: Rise of religious extremism in Bangladesh - Old product in a new wrapping
 Tags:
-  - bangladesh
   - terrorism
   - richard dawkins
   - avijit roy

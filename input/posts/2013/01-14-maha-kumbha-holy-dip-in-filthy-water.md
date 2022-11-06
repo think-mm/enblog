@@ -2,9 +2,8 @@
 Title: MAHA KUMBHA &amp; HOLY DIP IN FILTHY WATER
 Tags:
   - religion
-  - mukto-mona
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-01-14 15:59:26 +06:00
 Updated: 2013-08-13 15:17:32 +06:00

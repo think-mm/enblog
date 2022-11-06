@@ -3,7 +3,7 @@ Title: ARDENT ISLAMIST
 Tags:
   - religion
   - international
-  - bangalee freethinker
+  - freethinker
   - activism
   - Bhaskar
 Published: 2014-07-16 11:23:26 +06:00

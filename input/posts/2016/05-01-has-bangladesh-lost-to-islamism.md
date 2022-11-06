@@ -2,17 +2,13 @@
 Title: Has Bangladesh lost to Islamism?
 Tags:
   - politics
-  - religion
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - islam
+  - freethinker
   - A Rahman
 Published: 2016-05-01 15:49:39 +06:00
 Updated: 2016-05-01 15:49:39 +06:00
 OldURL: 2016/05/01/has-bangladesh-lost-to-islamism/
 ---
-
-&nbsp;
 
 Bangladesh may not be a big country, either geographically, economically or politically, but it is strategically a significant country as far as religiosity is concerned. It is significant because it sits more or less in the moderate section of the Islamic religiosity, maintaining its own culture, language and tradition, away from the Arab Bedouin culture and tradition. If it verges into the ultra-religious section of Islamism, then the hope of salvaging the country having a vast, mostly illiterate population from the depth of Wahhabism would be very difficult indeed. As things stand at the moment, Bangladesh is showing all the signs of gradually and irretrievably sliding into Islamic fundamentalism.
 
@@ -26,11 +22,11 @@ This is the country that Bangladesh has become now. The IGP is advising people t
 
 The root of the present problem, particularly with regard to Islamism, comes from brazen political corruption and moral depravity of the political hierarchy of the country. Let me deal with these issues separately in a sequential way.
 
-<strong>Political Corruption</strong>
+**Political Corruption**
 
 A few years ago, in fact in 2007, when the CareTaker Government (CTG), took over the rein of the country after the unprecedented turmoil and breakdown of law and order in the country due to most uncivilised spat between the two ladies, Sheikh Hasina and Khaleda Zia, leading the two political parties, the CTG encouraged the formation of a third party, away from the most vicious and obnoxious leaderships of these two parties. When the green shoot of the third party came into being with moderate, highly literate and politically savvy people, these two ladies ganged up to denounce and smear the potential leaders of this third party. These ladies may be semi-literate and illiterate respectively, but they are shrewd enough to realise that they can yo-yo into power at the moment, but the existence of a third party would blunt their chances forever. The third party in the hostile and dirty atmosphere of these two vicious ladies did not come into fruition. Since then, these ladies had been resorting to unfathomable political cataclysm to gain power and remain in power.
 
-<strong>Moral Depravity</strong>
+**Moral Depravity**
 
 Moral depravity comes from the fact that power and money are the two most desirable commodities for these ladies and anything else - like human lives, national interests, country's Constitution and even egregious claim of religiosity - is dispensable. The country's Constitution had been used by these two ladies and their mentors as a mere ping-pong ball – introducing and eliminating 'Islam as the State religion' and 'secularism' as it suits them! At the moment Islam and secularism are huddled up in the Constitution, like these two imbecile ladies huddled up in the country.
 

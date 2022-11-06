@@ -52,7 +52,7 @@ OldURL: 2009/02/12/remembering-stanley-miller%e2%80%99s-50-year-old-abiogenesis-
 <p class="MsoNormal" style="line-height: 14.4pt;"> </p>
 <p class="MsoNormal" style="line-height: 14.4pt;"><span style="color: #333333;">Dr. A.H. Jaffor Ullah, a researcher and columnist, writes from New Orleans , USA</span></p>
 <p class="MsoNormal"> </p>
-<p class="MsoNormal" style="text-align: center;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/">Darwin Day Celebration 2009</a></p>
+<p class="MsoNormal" style="text-align: center;"><a href="https://gold.mukto-mona.com/Special_Event_/Darwin_day/2009/">Darwin Day Celebration 2009</a></p>
 
 
 Additional tags:

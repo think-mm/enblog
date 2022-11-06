@@ -3,7 +3,7 @@ Title: Time to take stand in defense of free speech
 Tags:
   - politics
   - human rights
-  - bangalee freethinker
+  - freethinker
   - blogger killings
   - free speech
   - freethinking

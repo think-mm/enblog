@@ -5,7 +5,6 @@ Tags:
   - rafid
   - religion
   - philosophy
-  - mukto-mona
   - human rights
   - terrorism
   - society

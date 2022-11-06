@@ -5,7 +5,7 @@ Tags:
   - religion
   - science
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - Jawshan Ara Shatil
 Published: 2015-04-09 00:50:31 +06:00
 Updated: 2015-04-09 15:26:57 +06:00

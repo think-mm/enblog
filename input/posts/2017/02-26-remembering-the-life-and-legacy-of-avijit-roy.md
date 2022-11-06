@@ -5,14 +5,12 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
-  - bangladesh
   - science
   - human rights
   - personality
   - terrorism
   - celebration
-  - bangalee freethinker
+  - freethinker
   - society
   - book
   - avijit roy

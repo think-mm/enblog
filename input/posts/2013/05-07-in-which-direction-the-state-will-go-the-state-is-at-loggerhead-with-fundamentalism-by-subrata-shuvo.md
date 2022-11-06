@@ -2,7 +2,6 @@
 Title: In Which Direction Will the State Go? The state is at loggerhead with Fundamentalism  [by Subrata Shuvo]
 Tags:
   - translation of subrata shuva's writeup
-  - bangladesh
   - shahbagh movement 2013
   - arrested [blasphemous] bloggers' writings
   - shuborna senjuti

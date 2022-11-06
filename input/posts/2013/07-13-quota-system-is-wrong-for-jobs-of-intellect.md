@@ -2,9 +2,7 @@
 Title: Quota System Is Wrong for Jobs of Intellect
 Tags:
   - philosophy
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Sukhamaya Bain
 Published: 2013-07-13 06:26:42 +06:00

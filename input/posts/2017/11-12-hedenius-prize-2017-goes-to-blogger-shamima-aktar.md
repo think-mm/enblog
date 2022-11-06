@@ -2,12 +2,10 @@
 Title: Hedenius Prize 2017 goes to blogger Shamima Aktar
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - science
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - women
   - blogger killings
   - free speech

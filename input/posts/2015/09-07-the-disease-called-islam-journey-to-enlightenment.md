@@ -2,8 +2,6 @@
 Title: Religious indoctrination and my journey to enlightenment
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - activism
   - avijit roy
   - Muktar Ahmed Mukul

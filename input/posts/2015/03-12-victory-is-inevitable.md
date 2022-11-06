@@ -1,10 +1,8 @@
 ---
 Title: Victory is Inevitable
 Tags:
-  - mukto-mona
-  - bangladesh
   - personality
-  - bangalee freethinker
+  - freethinker
   - Mukto-Mona Editor
 Published: 2015-03-12 13:06:20 +06:00
 Updated: 2015-03-21 09:23:53 +06:00

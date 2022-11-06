@@ -3,7 +3,6 @@ Title: Honor them before death
 Tags:
   - honor a freedom fighter
   - mozzafor hossain
-  - bangladesh
   - human rights
   - society
   - Ripan

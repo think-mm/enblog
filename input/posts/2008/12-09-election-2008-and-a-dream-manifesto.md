@@ -2,7 +2,6 @@
 Title: Election 2008 and a dream manifesto
 Tags:
   - politics
-  - bangladesh
   - Anwarul Kabir
 Published: 2008-12-09 07:46:50 +06:00
 Updated: 2009-07-21 20:29:47 +06:00

@@ -4,10 +4,9 @@ Tags:
   - politics
   - culture
   - philosophy
-  - bangladesh
   - human rights
   - personality
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - free speech

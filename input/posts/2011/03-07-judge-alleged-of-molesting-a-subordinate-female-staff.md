@@ -5,7 +5,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - mukto-mona
   - society
   - women
   - activism

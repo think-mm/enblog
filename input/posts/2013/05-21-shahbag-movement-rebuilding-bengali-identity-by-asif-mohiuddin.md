@@ -2,7 +2,6 @@
 Title: Shahbag movement - Rebuilding Bengali Identity (by Asif Mohiuddin)
 Tags:
   - writeup of asif mohiuddin
-  - bangladesh
   - arrested [blasphemous] bloggers' writings
   - shuborna senjuti
 Published: 2013-05-21 10:40:01 +06:00

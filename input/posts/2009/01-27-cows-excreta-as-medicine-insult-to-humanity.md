@@ -10,7 +10,7 @@ Updated: 2009-08-27 23:08:09 +06:00
 OldURL: 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
 ---
 
-~ *Srinivas Kakkilaya*
+~ *Dr. B. Srinivas Kakkilaya*
 
 <p style="text-align: justify;"><span style="font-family: Verdana;">The cow is, at the least, an animal domesticated by man for help in agricultural activities.[1]  Although the mighty machines now used in farming have made these animals irrelevant in agriculture, valiant attempts are being made, at least in India, to preserve the exalted position of the so called 'second mother' [2] or even 'mother of the world' [3,4].</span></p>
 
@@ -94,6 +94,11 @@ OldURL: 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
 	<li>Rearing cattle produces more greenhouse gases than driving cars, UN report warns <a title="https://www.un.org/apps/news/story.asp?NewsID=20772&amp;Cr=global&amp;Cr1=warming" onclick="pageTracker._trackPageview('/outbound/article/www.un.org');" href="https://www.un.org/apps/news/story.asp?NewsID=20772&amp;Cr=global&amp;Cr1=warming">https://www.un.org/apps/news/story.asp?NewsID=20772&amp;Cr=global&amp;Cr1=warming</a></li>
 	<li style="text-align: justify;">Livestock's Long Shadow–Environmental Issues and Options <a title="https://www.virtualcentre.org/en/library/key_pub/longshad/A0701E00.pdf" onclick="pageTracker._trackPageview('/outbound/article/www.virtualcentre.org');" href="https://www.virtualcentre.org/en/library/key_pub/longshad/A0701E00.pdf">https://www.virtualcentre.org/en/library/key_pub/longshad/A0701E00.pdf</a></li>
 </ol>
-<hr />Dr. B. Srinivas Kakkilaya is a rationalist writes from Mangaluru, India. He can be reached at <a href="mailto:skakkilaya@gmail.com">skakkilaya@gmail.com</a>
+
+----
+*Dr. B. Srinivas Kakkilaya* 
+- A rationalist writes from Mangaluru, India
+- Can be reached at skakkilaya at gmail dot com
+
 
 <strong>Picture Source</strong>: <a href="https://nirmukta.com/">https://nirmukta.com/</a>

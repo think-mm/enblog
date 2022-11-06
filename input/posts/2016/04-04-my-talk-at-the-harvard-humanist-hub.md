@@ -1,13 +1,9 @@
 ---
 Title: My talk at the Harvard Humanist Hub
 Tags:
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
-  - activism
+  - freethinker
   - avijit roy
-  - blogger killings
-  - bangladeshi bloggers
+  - blogger killing
   - Bonya Ahmed
 Published: 2016-04-04 22:08:40 +06:00
 Updated: 2016-04-04 22:40:42 +06:00

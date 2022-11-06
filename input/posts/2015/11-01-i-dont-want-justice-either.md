@@ -2,12 +2,10 @@
 Title: I don't want justice either
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy

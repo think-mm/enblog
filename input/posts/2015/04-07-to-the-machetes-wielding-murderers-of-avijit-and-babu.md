@@ -3,12 +3,10 @@ Title: TO THE MACHETES WIELDING MURDERERS OF AVIJIT AND BABU
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Bhaskar

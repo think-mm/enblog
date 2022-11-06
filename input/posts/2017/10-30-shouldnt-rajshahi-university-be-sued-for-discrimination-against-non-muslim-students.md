@@ -2,8 +2,6 @@
 Title: Shouldn't Rajshahi University be sued for discrimination against non-Muslim students?
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - society
   - Sukhamaya Bain
 Published: 2017-10-30 07:51:20 +06:00

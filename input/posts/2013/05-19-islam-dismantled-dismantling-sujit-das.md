@@ -2,8 +2,7 @@
 Title: ISLAM DISMANTLED &amp; DISMANTLING SUJIT DAS
 Tags:
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-05-19 13:15:18 +06:00
 Updated: 2013-08-12 21:12:27 +06:00

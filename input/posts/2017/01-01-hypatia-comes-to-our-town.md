@@ -5,11 +5,10 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
   - human rights
   - terrorism
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - society
   - 1971 genocide
   - education

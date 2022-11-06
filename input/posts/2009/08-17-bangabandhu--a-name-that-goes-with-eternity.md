@@ -4,7 +4,6 @@ Tags:
   - sheikh mujib
   - bangabandhu
   - politics
-  - bangladesh
   - society
   - shazzad
 Published: 2009-08-17 04:42:29 +06:00

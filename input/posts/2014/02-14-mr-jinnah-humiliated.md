@@ -3,9 +3,8 @@ Title: MR. JINNAH  HUMILIATED
 Tags:
   - politics
   - religion
-  - bangladesh
   - personality
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2014-02-14 10:33:30 +06:00
 Updated: 2014-05-15 17:27:12 +06:00

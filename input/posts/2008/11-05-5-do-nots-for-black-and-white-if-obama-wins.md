@@ -43,3 +43,10 @@ Contrary to popular belief, having voted for Obama does not make you even "[semi
 - Chris Wilson is Slate's editorial assistant in Washington, D.C.  
 
 ~ Compiled by Jahed Ahmed, SOURCE: [the root](https://www.theroot.com)
+
+----
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
+- Can be contacted at email: *worldcitizen73 at yahoo dot com* 

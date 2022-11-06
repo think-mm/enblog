@@ -1,9 +1,8 @@
 ---
 Title: Is Shahbag the Solution?
 Tags:
-  - bangladesh
   - liberation war
-  - bangalee freethinker
+  - freethinker
   - 1971 genocide
   - activism
   - shahbagh movement 2013

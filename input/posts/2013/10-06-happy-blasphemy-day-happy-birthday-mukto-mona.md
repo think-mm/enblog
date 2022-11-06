@@ -5,8 +5,6 @@ Tags:
   - avijit english
   - religion
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
   - celebration
   - activism

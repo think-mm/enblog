@@ -3,9 +3,8 @@ Title: SORRY, MR RUSHDIE
 Tags:
   - politics
   - religion
-  - mukto-mona
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-02-02 16:11:10 +06:00
 Updated: 2013-08-12 21:21:37 +06:00

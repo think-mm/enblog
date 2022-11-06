@@ -5,8 +5,7 @@ Tags:
   - culture
   - philosophy
   - international
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2014-10-10 16:22:44 +06:00
 Updated: 2014-10-10 16:22:44 +06:00

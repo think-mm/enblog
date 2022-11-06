@@ -3,7 +3,7 @@ Title: WHY ISLAM IS VIOLENT?
 Tags:
   - religion
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Bhaskar

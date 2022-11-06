@@ -2,7 +2,7 @@
 Title: PORIBORTON IN WEST BENGAL
 Tags:
   - india
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-06-19 20:17:54 +06:00
 Updated: 2013-08-12 21:20:26 +06:00

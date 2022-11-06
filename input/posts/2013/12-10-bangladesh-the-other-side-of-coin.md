@@ -2,8 +2,7 @@
 Title: BANGLADESH - THE OTHER SIDE OF COIN
 Tags:
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2013-12-10 17:18:02 +06:00

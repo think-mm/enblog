@@ -4,7 +4,6 @@ Tags:
   - hijra
   - transgender
   - sexual identity
-  - bangladesh
   - human rights
   - society
   - activism

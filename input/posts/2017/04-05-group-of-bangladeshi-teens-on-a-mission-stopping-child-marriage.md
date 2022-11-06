@@ -3,7 +3,6 @@ Title: Group of Bangladeshi Teens on a Mission - Stopping Child Marriage
 Tags:
   - politics
   - culture
-  - bangladesh
   - human rights
   - society
   - women

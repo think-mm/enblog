@@ -3,7 +3,6 @@ Title: "\t\tThe 15th Amendment - A Mockery of Secularism"
 Tags:
   - politics
   - religion
-  - bangladesh
   - Anwarul Kabir
 Published: 2011-07-09 08:44:09 +06:00
 Updated: 2011-07-09 08:44:09 +06:00

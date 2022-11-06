@@ -1,7 +1,6 @@
 ---
 Title: Truth or Dare
 Tags:
-  - bangladesh
   - lgbt
   - gay rights
   - lesbian

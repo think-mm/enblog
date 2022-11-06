@@ -1,7 +1,6 @@
 ---
 Title: Getting to Know Avijit Roy
 Tags:
-  - mukto-mona
   - avijit roy
   - blogger killings
   - Shaibal Chakraborty

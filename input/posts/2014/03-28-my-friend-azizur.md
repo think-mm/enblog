@@ -2,8 +2,7 @@
 Title: MY FRIEND AZIZUR
 Tags:
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-03-28 20:43:41 +06:00

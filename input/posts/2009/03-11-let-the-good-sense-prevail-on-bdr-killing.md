@@ -5,7 +5,6 @@ Tags:
   - bdr mutiny
   - let the good sense prevail
   - politics
-  - bangladesh
   - Mukto-Mona Editor
 Published: 2009-03-11 00:35:16 +06:00
 Updated: 2009-03-11 00:35:16 +06:00

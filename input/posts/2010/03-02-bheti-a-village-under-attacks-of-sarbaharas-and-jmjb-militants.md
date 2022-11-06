@@ -2,7 +2,6 @@
 Title: Bheti - A village under attacks of Sarbaharas and JMJB militants
 Tags:
   - politics
-  - bangladesh
   - human rights
   - teki_admin
 Published: 2010-03-02 20:15:52 +06:00

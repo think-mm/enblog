@@ -4,9 +4,7 @@ Tags:
   - politics
   - religion
   - culture
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-05-16 10:59:46 +06:00

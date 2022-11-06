@@ -2,9 +2,8 @@
 Title: A different kind of Halloween In Bangladesh - Brutal killings of free-thinkers
 Tags:
   - international
-  - bangladesh
   - human rights
-  - bangalee freethinker
+  - freethinker
   - arrested [blasphemous] bloggers' writings
   - avijit roy
   - blogger killings

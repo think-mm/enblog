@@ -6,7 +6,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - bangladesh
   - society
   - Tonoy Emroz
 Published: 2019-02-03 03:23:27 +06:00

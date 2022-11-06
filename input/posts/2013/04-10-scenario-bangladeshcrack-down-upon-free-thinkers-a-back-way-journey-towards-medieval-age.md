@@ -1,7 +1,6 @@
 ---
 Title: Scenario Bangladesh -Crack down upon free-thinkers; A back way Journey towards medieval Age
 Tags:
-  - bangladesh
   - human rights
   - society
   - shahbagh movement 2013

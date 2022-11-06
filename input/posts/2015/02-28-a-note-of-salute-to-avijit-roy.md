@@ -5,12 +5,10 @@ Tags:
   - religion
   - culture
   - philosophy
-  - mukto-mona
-  - bangladesh
   - human rights
   - personality
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - Sukhamaya Bain

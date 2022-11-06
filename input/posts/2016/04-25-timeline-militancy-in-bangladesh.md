@@ -1,9 +1,6 @@
 ---
 Title: Timeline - Militancy in Bangladesh
 Tags:
-  - politics
-  - religion
-  - bangladesh
   - terrorism
   - Subrata Shuvo
 Published: 2016-04-25 23:35:21 +06:00

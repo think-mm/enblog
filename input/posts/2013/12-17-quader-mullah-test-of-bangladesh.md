@@ -1,8 +1,7 @@
 ---
 Title: QUADER MOLLAH TEST' OF BANGLADESH
 Tags:
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - 1971 genocide
   - Bhaskar
 Published: 2013-12-17 16:03:08 +06:00

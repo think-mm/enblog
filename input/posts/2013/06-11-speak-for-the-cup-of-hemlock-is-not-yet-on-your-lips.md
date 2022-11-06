@@ -1,7 +1,6 @@
 ---
 Title: Speak, for the Cup of Hemlock is not yet on Your Lips (by- Asif Mohiuddin)
 Tags:
-  - bangladesh
   - arrested [blasphemous] bloggers' writings
   - allachalaina
 Published: 2013-06-11 15:14:54 +06:00

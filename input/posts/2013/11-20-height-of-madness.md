@@ -3,7 +3,7 @@ Title: HEIGHT OF MADNESS
 Tags:
   - international
   - india
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2013-11-20 13:47:30 +06:00

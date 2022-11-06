@@ -4,7 +4,6 @@ Tags:
   - politics
   - religion
   - philosophy
-  - bangladesh
   - shahbagh movement 2013
   - Mohsin Siddique
 Published: 2013-04-11 05:08:38 +06:00

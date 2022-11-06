@@ -4,7 +4,7 @@ Tags:
   - politics
   - religion
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - education
   - activism

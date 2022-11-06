@@ -1,7 +1,6 @@
 ---
 Title: BDR Mutiny – Teaching a Lesson to Army?
 Tags:
-  - bangladesh
   - Jahed
 Published: 2009-03-01 22:04:16 +06:00
 Updated: 2009-03-01 22:04:16 +06:00

@@ -2,7 +2,6 @@
 Title: Bengali Quran
 Tags:
   - koran
-  - bangladesh
   - Bhaskar
 Published: 2013-09-30 16:29:05 +06:00
 Updated: 2013-09-30 16:34:55 +06:00

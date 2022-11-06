@@ -3,7 +3,6 @@ Title: The Massacre at a School in a Failed State
 Tags:
   - politics
   - religion
-  - mukto-mona
   - terrorism
   - society
   - activism

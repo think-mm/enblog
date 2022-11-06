@@ -10,8 +10,7 @@ Updated: 2009-07-27 21:44:25 +06:00
 OldURL: 2009/02/10/tragedy-becomes-a-comedy/
 ---
 
-<p align="center"><span style="font-size: large; color: #008000;">Tragedy Becomes a Comedy </span></p>
-<p align="center"><span style="font-size: medium; color: #000080;">Sentu Tikadar </span></p>
+~ *Sentu Tikadar* 
 
 <span style="font-family: Verdana;">Some couple of days ago some US experts commented that India will be vulnerable to more terrorists attacks along the lines of Mumbai attack. "India will continue to face a serious jihadi terrorists threat from Pakistan -based terrorists groups. However India lacks military options that have strategic-level effects without a significant risk of a military response by Pakistan. Neither Indian nor US policy is likely to be able to reduce that threat significantly in the short to medium term", they said. One of them said, " Lashkar e Toiba represents a threat to regional and global security second only to al- Qaida. Although LeT is linked with mainly to the terrorism in Jammu &amp; Kashmir, the operation and ideology of this group transcend the violence directed at India." </span>
 
@@ -27,4 +26,7 @@ OldURL: 2009/02/10/tragedy-becomes-a-comedy/
 
 <span style="font-family: Verdana;">All Indian know that HuJI is no way related with the Mumbai Attack. HuJI, LeT, ISI, al-Quada and other terror groups has interlink with each other but the evidence and proof revealed in the Mumbai massacre HuJI is no way involved in this massacre this time. Bangladeshi and Bharatiya people understand the motive of this blame. Pakistan just wants to divert the attention of the world and the investigating agencies towards Bangladesh. In this way Pakistan wants to protect LeT and help live the Kashmir insurgency. Pakistan hopes India and Bangladesh will start quarrel and the relation between the two democracy becomes bitter. But no one of these two neighbours are fool at all. Certainly the two neighbours will try to uproot the HuJI and other ill doers for the benefit of the two counties.There is a tremendous potency of economic development existing in Bangladesh and in Bharat if the two become real friends to each other. Bharat needs Bangladesh more than that of Bangladesh needs Bharat. If New Delhi understands this then certainly all the bilateral issues and agreement shall be in such a way that will truly help the people of Bangladesh and Bharat. Bharat should not miss the opportunity to make a very good bilateral relationship with Bangladesh. </span>
 
-<hr />Sentu Tikadar is a Mechanical Engineer writes from Jakarta. He can be reached at <a href="mailto:sentu92003@yahoo.com">sentu92003@yahoo.com</a>
+-----
+*Sentu Tikadar*
+- A Mechanical Engineer writes from Jakarta
+- Can be reached at *sentu92003 at yahoo dot com* 

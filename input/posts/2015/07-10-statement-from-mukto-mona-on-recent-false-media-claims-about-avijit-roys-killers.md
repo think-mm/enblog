@@ -1,7 +1,7 @@
 ---
 Title: Statement from Mukto-Mona on recent false media claims about Avijit Roy's killers
 Tags:
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - Mukto-Mona Editor
 Published: 2015-07-10 01:40:34 +06:00

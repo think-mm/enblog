@@ -1,7 +1,6 @@
 ---
 Title: Election - Brief Update
 Tags:
-  - bangladesh
   - election
   - politics
   - Ajoy Roy

@@ -2,10 +2,8 @@
 Title: Fourth anniversary of the assassination of Avijit Roy
 Tags:
   - religion
-  - mukto-mona
-  - bangladesh
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - avijit roy
   - blogger killings
   - free speech

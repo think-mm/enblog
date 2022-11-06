@@ -1,7 +1,6 @@
 ---
 Title: Thank You for Discriminating
 Tags:
-  - bangladesh
   - human rights
   - homosexuality
   - gay rights

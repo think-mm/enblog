@@ -2,8 +2,7 @@
 Title: BLASPHEMY LAW IN BANGLADESH
 Tags:
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-05-06 14:13:04 +06:00
 Updated: 2013-08-12 21:13:27 +06:00

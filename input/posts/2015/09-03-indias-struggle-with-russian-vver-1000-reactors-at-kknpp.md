@@ -2,9 +2,7 @@
 Title: India's struggle with Russian VVER-1000 reactors at KKNPP
 Tags:
   - politics
-  - mukto-mona
   - international
-  - bangladesh
   - society
   - activism
   - A Rahman

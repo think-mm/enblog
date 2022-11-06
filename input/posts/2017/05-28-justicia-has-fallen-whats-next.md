@@ -4,9 +4,8 @@ Tags:
   - politics
   - religion
   - culture
-  - bangladesh
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - free speech

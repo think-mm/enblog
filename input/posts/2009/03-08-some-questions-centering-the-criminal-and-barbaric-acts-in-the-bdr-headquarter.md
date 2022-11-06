@@ -5,7 +5,6 @@ Tags:
   - bdr mutiny
   - criminal and barbaric acts in the bdr headquarter
   - politics
-  - bangladesh
   - Mukto-Mona Editor
 Published: 2009-03-08 01:51:32 +06:00
 Updated: 2009-03-08 01:51:32 +06:00

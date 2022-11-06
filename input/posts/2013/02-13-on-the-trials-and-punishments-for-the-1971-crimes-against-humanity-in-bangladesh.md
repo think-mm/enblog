@@ -1,7 +1,6 @@
 ---
 Title: On the Trials and Punishments for the 1971 Crimes against Humanity in Bangladesh
 Tags:
-  - bangladesh
   - shahbagh movement 2013
   - Sukhamaya Bain
 Published: 2013-02-13 05:46:06 +06:00

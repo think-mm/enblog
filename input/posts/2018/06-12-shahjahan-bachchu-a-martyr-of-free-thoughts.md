@@ -3,9 +3,7 @@ Title: Shahjahan Bachchu - A martyr of free thoughts
 Tags:
   - bangladesh bloggers
   - shahjahan bachchu
-  - mukto-mona
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - society
   - Tonoy Emroz
 Published: 2018-06-12 18:37:50 +06:00

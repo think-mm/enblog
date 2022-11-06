@@ -3,7 +3,6 @@ Title: Don't Poke Your Nose...
 Tags:
   - politics
   - international
-  - bangladesh
   - Anwarul Kabir
 Published: 2011-06-17 12:14:38 +06:00
 Updated: 2011-06-17 12:21:39 +06:00

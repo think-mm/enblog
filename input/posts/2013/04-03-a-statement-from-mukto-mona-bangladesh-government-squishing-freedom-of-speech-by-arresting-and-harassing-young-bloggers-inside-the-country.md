@@ -3,7 +3,6 @@ Title: A Statement from Mukto-Mona - Bangladesh government squishing freedom of 
 Tags:
   - politics
   - religion
-  - bangladesh
   - human rights
   - shahbagh movement 2013
   - Mukto-Mona Editor

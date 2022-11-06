@@ -1,9 +1,7 @@
 ---
 Title: Rape is inevitable if not punished
 Tags:
-  - bangladesh
   - politics
-  - mukto-mona
   - human rights
   - society
   - women

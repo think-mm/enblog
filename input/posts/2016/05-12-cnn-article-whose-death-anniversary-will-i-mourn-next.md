@@ -3,13 +3,11 @@ Title: CNN Article - Whose death anniversary will I mourn next?
 Tags:
   - politics
   - religion
-  - mukto-mona
   - international
-  - bangladesh
   - science
   - human rights
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - activism
   - avijit roy

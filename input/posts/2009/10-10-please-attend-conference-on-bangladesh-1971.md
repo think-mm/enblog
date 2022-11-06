@@ -3,7 +3,6 @@ Title: Please Attend conference on Bangladesh 1971
 Tags:
   - conference on bangladesh genocide
   - international
-  - bangladesh
   - human rights
   - liberation war
   - 1971 genocide

@@ -2,8 +2,7 @@
 Title: Mutawas' of Bangladesh
 Tags:
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - 1971 genocide
   - activism
   - shahbagh movement 2013

@@ -4,7 +4,7 @@ Tags:
   - religion
   - international
   - terrorism
-  - bangalee freethinker
+  - freethinker
   - society
   - Bhaskar
 Published: 2014-12-21 20:04:41 +06:00

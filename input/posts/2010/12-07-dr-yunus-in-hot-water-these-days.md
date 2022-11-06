@@ -4,7 +4,6 @@ Tags:
   - grameen bank
   - dr. yunus
   - micro credit
-  - bangladesh
   - A. H. Jaffor Ullah
 Published: 2010-12-07 12:22:02 +06:00
 Updated: 2010-12-07 12:22:02 +06:00

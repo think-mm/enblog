@@ -1,7 +1,6 @@
 ---
 Title: Claiming Our Ground
 Tags:
-  - bangladesh
   - women
   - shabnam nadiya
   - culture

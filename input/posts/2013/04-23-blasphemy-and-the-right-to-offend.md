@@ -1,7 +1,6 @@
 ---
 Title: Blasphemy and the right to offend
 Tags:
-  - bangladesh
   - islam
   - religion
   - koran
@@ -12,7 +11,7 @@ Tags:
   - politics
   - philosophy
   - human rights
-  - bangalee freethinker
+  - freethinker
   - society
   - shahbagh movement 2013
   - Rainer Ebert

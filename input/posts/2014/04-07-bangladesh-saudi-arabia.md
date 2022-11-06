@@ -3,8 +3,7 @@ Title: BANGLADESH &amp; SAUDI ARABIA
 Tags:
   - politics
   - religion
-  - bangladesh
-  - bangalee freethinker
+  - freethinker
   - arrested [blasphemous] bloggers' writings
   - Bhaskar
 Published: 2014-04-07 10:33:12 +06:00

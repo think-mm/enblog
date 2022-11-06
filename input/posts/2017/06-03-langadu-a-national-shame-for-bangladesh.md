@@ -5,7 +5,6 @@ Tags:
   - religion
   - culture
   - international
-  - bangladesh
   - human rights
   - terrorism
   - society

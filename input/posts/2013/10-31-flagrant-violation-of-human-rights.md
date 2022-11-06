@@ -4,14 +4,13 @@ Tags:
   - religion
   - international
   - human rights
-  - bangalee freethinker
+  - freethinker
   - A Rahman
 Published: 2013-10-31 21:54:20 +06:00
 Updated: 2013-11-02 01:37:33 +06:00
 OldURL: 2013/10/31/flagrant-violation-of-human-rights/
 ---
 
-<strong>Flagrant Violation of Human Rights</strong>
 
 										A  Rahman
 
@@ -34,4 +33,3 @@ A recent report in The Guardian newspaper in Britain alleged that a large number
 This sort of exploitation and abuse is not limited to Qatar only. In Saudi Arabia, Bahrain, UAE and, in fact, in the whole of Middle East these things had been going on for decades. The workers who go there to do manual work are called 'miskins', meaning beggars. These Middle Eastern people come to poorer countries with an aura of honesty and religiosity to recruit people and then use them as slaves. The world should wake up and expose their criminality and flagrant violation of human rights which all of their countries have signed up to.
 
 The poorer countries have also to share the due burden of the crime. The corrupt government officials overlook such abusive practices because any remedial action may disrupt the flow of workers to those countries and thereby reduce their individual and collective benefits. The pain and suffering of workers are of no relevance to these officials!  At the same time these government officials help spread Islamic messages within the country, set up madrassas, mosques, Islamic centres etc. The illiterate, innocent people are given a high dose of religious teaching and Arabic customs– women must wear hijab and abaya, confine women within the house, no education for women, no western education on science and technology for men etc. - by these block-headed religious zombies and the whole country tilts towards extreme religiosity. The criminality of these officials knows no bound! These officials and mullahs along with the Middle Eastern perpetrators of brutalities must be brought to justice for flagrant violation of human rights. 
-

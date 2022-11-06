@@ -2,7 +2,7 @@
 Title: The Religion of Politics in Indian Subcontinent
 Tags:
   - human rights
-  - bangalee freethinker
+  - freethinker
   - Tanveer Ibn Haresh
 Published: 2013-04-05 06:00:33 +06:00
 Updated: 2013-04-05 12:23:51 +06:00

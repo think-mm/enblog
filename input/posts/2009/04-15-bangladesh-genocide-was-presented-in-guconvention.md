@@ -1,7 +1,6 @@
 ---
 Title: Bangladesh Genocide was presented in GU Convention
 Tags:
-  - bangladesh
   - liberation war
   - 1971 genocide
   - Jahed

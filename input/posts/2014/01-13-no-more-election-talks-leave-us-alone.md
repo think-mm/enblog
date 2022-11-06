@@ -2,7 +2,7 @@
 Title: No More Election Talks; Leave Us Alone
 Tags:
   - politics
-  - bangalee freethinker
+  - freethinker
   - activism
   - Jiten Roy
 Published: 2014-01-13 01:30:44 +06:00

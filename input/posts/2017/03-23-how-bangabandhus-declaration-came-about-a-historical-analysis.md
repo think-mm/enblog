@@ -1,7 +1,6 @@
 ---
 Title: How Bangabandhu's Declaration Came About - A Historical Analysis
 Tags:
-  - bangladesh
   - human rights
   - personality
   - liberation war

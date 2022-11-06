@@ -3,8 +3,7 @@ Title: BANGLADESH AND TWO NATION THEORY
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-07-24 17:44:29 +06:00
 Updated: 2014-01-29 10:01:19 +06:00

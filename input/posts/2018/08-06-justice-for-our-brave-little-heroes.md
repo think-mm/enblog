@@ -4,7 +4,6 @@ Tags:
   - school students
   - road safety
   - politics
-  - bangladesh
   - human rights
   - society
   - activism

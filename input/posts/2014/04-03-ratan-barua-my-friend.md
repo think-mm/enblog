@@ -2,7 +2,6 @@
 Title: Ratan Barua, My Friend
 Tags:
   - religion
-  - bangladesh
   - personality
   - activism
   - Jiten Roy

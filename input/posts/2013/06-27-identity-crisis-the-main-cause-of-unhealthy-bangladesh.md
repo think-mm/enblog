@@ -3,8 +3,7 @@ Title: IDENTITY CRISIS - THE MAIN CAUSE OF "UNHEALTHY BANGLADESH
 Tags:
   - politics
   - religion
-  - mukto-mona
-  - bangalee freethinker
+  - freethinker
   - Bhaskar
 Published: 2013-06-27 12:22:58 +06:00
 Updated: 2013-08-12 21:10:24 +06:00

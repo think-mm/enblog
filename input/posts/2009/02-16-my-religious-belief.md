@@ -4,7 +4,6 @@ Tags:
   - darwin's religious belief
   - agnostic
   - abolished his faith
-  - mukto-mona
   - celebration
   - darwin day
   - Mukto-Mona Editor
@@ -84,4 +83,4 @@ This letter appeared in <em>Emma Darwin</em> by Henrietta Litchfield in the priv
 
  </li>
 </ol>
-<p align="center"><span style="font-size: medium;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/index.htm">Darwin Day 2009</a></span></p>
+<p align="center"><span style="font-size: medium;"><a href="https://gold.mukto-mona.com/Special_Event_/Darwin_day/2009/index.htm">Darwin Day 2009</a></span></p>

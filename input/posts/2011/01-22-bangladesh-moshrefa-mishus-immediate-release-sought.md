@@ -2,7 +2,6 @@
 Title: Bangladesh - Moshrefa Mishus immediate release sought
 Tags:
   - human rights
-  - bangladesh
   - William Gomes
 Published: 2011-01-22 10:05:14 +06:00
 Updated: 2011-01-22 10:17:38 +06:00

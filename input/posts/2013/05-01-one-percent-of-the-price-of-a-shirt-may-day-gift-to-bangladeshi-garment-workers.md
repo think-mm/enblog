@@ -1,7 +1,6 @@
 ---
 Title: One Percent of the Price of a Shirt - May Day gift to Bangladeshi Garment Workers!
 Tags:
-  - bangladesh
   - politics
   - human rights
   - society

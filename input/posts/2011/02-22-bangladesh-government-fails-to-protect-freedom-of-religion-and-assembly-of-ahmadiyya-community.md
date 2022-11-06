@@ -1,7 +1,6 @@
 ---
 Title: Bangladesh - Government fails to protect freedom of religion and assembly of Ahmadiyya community
 Tags:
-  - bangladesh
   - secularism
   - minorities
   - William Gomes

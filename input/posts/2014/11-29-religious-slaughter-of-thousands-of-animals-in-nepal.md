@@ -2,7 +2,6 @@
 Title: Religious Slaughter of thousands of animals in Nepal
 Tags:
   - religion
-  - mukto-mona
   - international
   - A Rahman
 Published: 2014-11-29 17:15:41 +06:00

@@ -1,7 +1,6 @@
 ---
 Title: Evolutionary Science vs. Creation Theory, and Intellectual Hypocrisy!
 Tags:
-  - mukto-mona
   - evolution
   - islam
   - darwin day celebration

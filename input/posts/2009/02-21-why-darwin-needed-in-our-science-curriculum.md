@@ -1,9 +1,7 @@
 ---
 Title: Why Darwin is needed in our science curriculum
 Tags:
-  - darwin day celebration
-  - politics
-  - bangladesh
+  - darwin day
   - evolution
   - richard dawkins
   - Jahed Ahmed
@@ -12,8 +10,8 @@ Updated: 2009-03-04 01:23:54 +06:00
 OldURL: 2009/02/21/why-darwin-needed-in-our-science-curriculum/
 ---
 
-<span style="font-size: 10pt;">-Jahed Ahmed</span>
-<p class="MsoNormal" style="text-align: justify;"></p>
+~ [*Jahed Ahmed*](https://gold.mukto-mona.com/Articles/jahed/index.html)
+
 <p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">This came as a little surprise. Just days before Charles Darwin's 200<sup>th</sup> birth anniversary and the 150<sup>th</sup> publication anniversary of his famous book, the Origin of Species, the Church of England has issued a statement of apology for once vehemently rejecting Darwin's theory on evolution. The statement says, "<em>Charles Darwin: 200 years from your birth, the Church of England owes you an apology for misunderstanding you and, by getting our first reaction wrong, encouraging others to misunderstand you still. We try to practise the old virtues of 'faith seeking understanding' and hope that makes some amends."</em><span> </span></span></p>
 <p class="MsoNormal" style="text-align: justify;"></p>
 <p class="MsoNormal" style="text-align: justify; text-indent: 0.5in;"><span style="font-size: 10pt;">It may be recalled that soon after its first publication back in 1859, Darwin's book, originally titled <em><span style="color: black;">On the Origin of Species by Means of Natural Selection,</span></em></span><em><span style="font-size: 10pt; font-family: Verdana; color: #333333;"> </span></em><span style="font-size: 10pt;">had created a massive uproar in the Christian England. Some found its content, as the then Church of England termed it, 'heretical', 'dangerous' to the belief in God, where as others saw Darwin's theory as a remarkable feat in the field of science. In a similar attempt to amend past mistakes, in 1996, John Paul II, the chief of the Vatican, said that there was no essential conflict between Darwin's theory and Catholicism. </span></p>
@@ -31,7 +29,15 @@ OldURL: 2009/02/21/why-darwin-needed-in-our-science-curriculum/
 <p class="MsoNormal" style="text-align: justify;"></p>
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: 10pt;">02.20.2009</span></p>
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: 10pt;">New York</span></p>
+
 <p class="MsoNormal" style="text-align: justify;"></p>
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: 8pt;">About the writer: Jahed Ahmed is employed in the New York State Dept. of Agriculture and Markets. He is involved <span style="color: black;">with <a href="https://muktomona.com/"><span style="color: black;">www.muktomona.com</span></a>, a South Asian network of humanists and freethinkers, and the Muktanwesha, a science and reason based magazine published from Dhaka. E-mail: <a href="mailto:worldcitizen73@yahoo.com"><span style="color: black;">worldcitizen73@yahoo.com</span></a></span></span></p>
 <p align="center"><span style="font-size: 8pt;"><span style="color: black;"><span style="color: black;"></span></span></span></p>
-<p align="center"><span style="color: black;"><a href="https://muktomona.com/Special_Event_/Darwin_day/2009/index.htm"><span style="font-size: medium;">Mukto</span><span style="font-size: medium;">-Mona Celebrates Darwin Day 2009</span></a></span></p>
+<p align="center"><span style="color: black;"><a href="https://gold.mukto-mona.com/Special_Event_/Darwin_day/2009/index.htm"><span style="font-size: medium;">Mukto</span><span style="font-size: medium;">-Mona Celebrates Darwin Day 2009</span></a></span></p>
+
+----
+*[Jahed Ahmed](https://gold.mukto-mona.com/Articles/jahed/index.html)*
+- A secular activist and writer
+- Dept. of Agriculture and Markets, NY state government
+- Member of humanist network and "muktwanesha", a Bangla magazine on science and rationalism published from Dhaka
+- Can be contacted at email: *worldcitizen73 at yahoo dot com* 

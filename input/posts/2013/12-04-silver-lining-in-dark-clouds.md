@@ -3,7 +3,7 @@ Title: Silver Lining in dark clouds
 Tags:
   - politics
   - human rights
-  - bangalee freethinker
+  - freethinker
   - education
   - A Rahman
 Published: 2013-12-04 02:55:52 +06:00

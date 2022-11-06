@@ -1,8 +1,6 @@
 ---
 Title: Release the bloggers - A Demonstration in front of the Press Club is called on May 2nd.
 Tags:
-  - mukto-mona
-  - bangladesh
   - human rights
   - activism
   - shahbagh movement 2013
