@@ -98,7 +98,7 @@ OldURL: 2009/01/27/cow%e2%80%99s-excreta-as-medicine-insult-to-humanity/
 ----
 *Dr. B. Srinivas Kakkilaya* 
 - A rationalist writes from Mangaluru, India
-- Can be reached at skakkilaya at gmail dot com
+- Can be reached at *skakkilaya at gmail dot com*
 
 
-<strong>Picture Source</strong>: <a href="https://nirmukta.com/">https://nirmukta.com/</a>
+<strong>Picture Source</strong>: <a href="https://nirmukta.com">nirmukta.com</a>

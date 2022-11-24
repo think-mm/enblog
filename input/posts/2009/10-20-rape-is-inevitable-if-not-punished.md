@@ -2,10 +2,9 @@
 Title: Rape is inevitable if not punished
 Tags:
   - politics
-  - human rights
   - society
-  - women
-  - Ripan
+  - women rights
+  - Ripan Kumar Biswas
 Published: 2009-10-20 07:14:49 +06:00
 Updated: 2009-10-20 07:14:49 +06:00
 OldURL: 2009/10/20/rape-is-inevitable-if-not-punished/

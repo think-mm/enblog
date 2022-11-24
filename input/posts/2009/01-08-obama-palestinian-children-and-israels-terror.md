@@ -3,7 +3,7 @@ Title: Obama, Palestinian Children And Israel's Terror
 Tags:
   - conflict palestinian-israel
   - human rights
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-08 22:54:42 +06:00
 Updated: 2009-01-08 23:03:00 +06:00
 OldURL: 2009/01/08/obama-palestinian-children-and-israel%e2%80%99s-terror/

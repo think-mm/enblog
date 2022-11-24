@@ -5,7 +5,7 @@ Tags:
   - culture
   - human rights
   - society
-  - women
+  - women rights
   - education
   - environment
   - activism

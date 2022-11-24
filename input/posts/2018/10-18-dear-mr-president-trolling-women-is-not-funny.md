@@ -1,7 +1,7 @@
 ---
 Title: Dear Mr. President, trolling women is not funny
 Tags:
-  - women's rights
+  - women rights
   - politics
   - human rights
   - society

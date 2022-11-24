@@ -2,8 +2,8 @@
 Title: History is being made in the USA
 Tags:
   - politics
-  - international
-  - Mukto-Mona Editor
+  - usa
+  - MuktoMona Editor
 Published: 2008-11-05 10:31:35 +06:00
 Updated: 2008-11-05 10:34:48 +06:00
 OldURL: 2008/11/05/history-is-being-made-in-the-usa/

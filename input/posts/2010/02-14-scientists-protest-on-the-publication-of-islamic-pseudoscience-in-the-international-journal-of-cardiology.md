@@ -1,13 +1,7 @@
 ---
 Title: Scientists' Protest on the Publication of Islamic Pseudoscience in the International Journal of Cardiology
 Tags:
-  - international journal of cardiology publishes islamic apologetic tract
-  - islamic pseudoscience in the international journal of cardiology. avijit english
-  - philosophy
-  - international
-  - education
-  - literature
-  - activism
+  - pseudoscience
   - Avijit Roy
 Published: 2010-02-14 23:09:43 +06:00
 Updated: 2016-12-27 22:34:56 +06:00
@@ -183,3 +177,11 @@ Very respectfully, </span>
 <a href="mailto:charbak_bd@yahoo.com">charbak_bd@yahoo.com</a> </span>
 <p align="justify"><span style="font-family: Garamond; font-size: medium;"><strong>P.S</strong>. <strong>Please inform me if you have sent your protest!</strong></span></p>
 <p align="justify"> </p>
+
+
+Additional Tags:
+  - international journal of cardiology publishes islamic apologetic tract
+  - islamic pseudoscience in the international journal of cardiology. avijit english
+  - philosophy
+  - international
+  - literature

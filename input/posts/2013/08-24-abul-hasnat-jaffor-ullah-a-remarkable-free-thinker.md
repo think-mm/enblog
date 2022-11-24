@@ -28,7 +28,7 @@ Some  collections of his essays, promoting secular humanity, can be found at th
 
 <strong>Mukto-Mona Blog</strong>:  <a href="https://enblog.muktomona.com/?author=7">Dr. Jaffor Ullah's recent blog posts</a>
 
-<strong>Mukto-Mona Old site</strong>: <a href="https://mukto-mona.net/Articles/jaffor/">Dr. Jaffor Ullah's past writeups in Mukto-mona archive</a>
+<strong>Mukto-Mona Old site</strong>: <a href="https://gold.mukto-mona.com//Articles/jaffor/">Dr. Jaffor Ullah's past writeups in Mukto-mona archive</a>
 
 <strong>Jaffor Ullah's Bangla writeups</strong>: <a href="https://blog.muktomona.com/?author=120">ড. এ.এইচ. জাফর উল্লাহর বাংলা লেখা</a>
 

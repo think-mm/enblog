@@ -2,7 +2,7 @@
 Title: Happy Birthday Dr. Avijit Roy, the "Future man"- The Science Guy
 Tags:
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-09-12 08:34:57 +06:00
 Updated: 2015-09-12 08:34:57 +06:00
 OldURL: 2015/09/12/happy-birthday-dr-avijit-roy-the-future-man-the-science-guy/

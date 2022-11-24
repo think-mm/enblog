@@ -6,14 +6,14 @@ Tags:
   - human rights
   - personality
   - freethinker
-  - women
+  - women rights
   - blogger killings
   - free speech
   - bangladeshi bloggers
   - freethinking
   - secularism
   - freedom of expression
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2017-11-12 16:44:07 +06:00
 Updated: 2017-11-12 16:57:03 +06:00
 OldURL: 2017/11/12/hedenius-prize-2017-goes-to-blogger-shamima-aktar/

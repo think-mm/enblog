@@ -2,7 +2,7 @@
 Title: Muktomona Statement on the Avijit Roy Murder Verdict February 16, 2021
 Tags:
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2021-02-16 01:37:01 +06:00
 Updated: 2021-03-02 10:10:15 +06:00
 OldURL: 2021/02/16/avijit-roy/

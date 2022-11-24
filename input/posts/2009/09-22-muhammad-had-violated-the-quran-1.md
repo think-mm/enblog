@@ -114,6 +114,15 @@ YUSUFALI: If any of you die and leave widows behind, they shall wait concerning 
 <p align="justify"><span style="font-size: medium; font-family: Garamond;">Narrated Anas bin Malik:
 The Prophet said to Abu Talha, "Choose one of your boy servants to serve me in my expedition to Khaibar." So, Abu Talha took me letting me ride behind him while I was a boy nearing the age of puberty. I used to serve Allah's Apostle when he stopped to rest. I heard him saying repeatedly, "O Allah! I seek refuge with You from distress and sorrow, from helplessness and laziness, from miserliness and cowardice, from being heavily in debt and from being overcome by men." Then we reached Khaibar; and when Allah enabled him to conquer the Fort (of Khaibar), the beauty of Safiya bint Huyai bin Akhtab was described to him. Her husband had been killed while she was a bride. So Allah's Apostle selected her for himself and took her along with him till we reached a place called Sad-AsSahba,' where her menses were over and he took her for his wife. Haris (a kind of dish) was served on a small leather sheet. Then Allah's Apostle told me to call those who were around me. So, that was the marriage banquet of Allah's Apostle and Safiya. Then we left for Medina. I saw Allah's Apostle folding a cloak round the hump of the camel so as to make a wide space for Safiya (to sit on behind him) He sat beside his camel letting his knees for Safiya to put her feet on so as to mount the camel. Then, we proceeded till we approached Medina; he looked at Uhud (mountain) and said, "This is a mountain which loves us and is loved by us." Then he looked at Medina and said, "O Allah! I make the area between its (i.e. Medina's) two mountains a sanctuary as Abraham made Mecca a sanctuary. O Allah! Bless them (i.e. the people of Medina) in their Mudd and Sa (i.e. measures)."</span></blockquote>
 <p align="right"><span style="font-size: medium; font-family: Garamond;">END OF PART 1 </span></p>
-<p align="left"><span style="font-size: medium; font-family: Garamond;">-----------------</span></p>
-<p align="left"><span style="font-size: medium; font-family: Garamond;">Abul Kasem writes from Sydney. His e-mail address is nirribilli@gmail.com</span></p>
-<p align="left"> </p>
+
+
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

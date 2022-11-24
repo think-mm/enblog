@@ -1,8 +1,8 @@
 ---
-Title: Khaleda  Zia says election not acceptable
+Title: Khaleda Zia says election not acceptable
 Tags:
   - politics
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2008-12-31 07:44:03 +06:00
 Updated: 2008-12-31 07:44:03 +06:00
 OldURL: 2008/12/31/khaleda-zia-says-election-not-acceptable/

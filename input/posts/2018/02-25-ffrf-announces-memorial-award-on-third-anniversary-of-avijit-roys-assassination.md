@@ -13,7 +13,7 @@ Tags:
   - freethinking
   - secularism
   - freedom of expression
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2018-02-25 03:57:06 +06:00
 Updated: 2018-02-26 11:55:46 +06:00
 OldURL: 2018/02/25/ffrf-announces-memorial-award-on-third-anniversary-of-avijit-roys-assassination/

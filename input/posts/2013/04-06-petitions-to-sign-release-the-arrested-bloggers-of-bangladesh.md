@@ -4,7 +4,7 @@ Tags:
   - politics
   - human rights
   - shahbagh movement 2013
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2013-04-06 13:35:06 +06:00
 Updated: 2013-04-20 23:56:07 +06:00
 OldURL: 2013/04/06/petitions-to-sign-release-the-arrested-bloggers-of-bangladesh/

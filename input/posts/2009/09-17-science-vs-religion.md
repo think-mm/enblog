@@ -1,15 +1,16 @@
 ---
 Title: Science vs. Religion
 Tags:
-  - difference between science and religion
   - religion
-  - philosophy
   - science
   - farhad
 Published: 2009-09-17 10:50:34 +06:00
 Updated: 2009-09-23 20:06:46 +06:00
 OldURL: 2009/09/17/science-vs-religion/
 ---
+
+~ *Farhad* 
+
 
 The basic incompatibility between religion and science was best summed up by the evolutionary biologist J.B.S. Haldane:
 
@@ -32,4 +33,3 @@ Many mainstream churches have endorsed the theory of evolution. But we mustn't f
 I think the theory of evolution was so diametrically opposed to the creation story of the bible and Quran that one can't find any religious "context" for it and that's why it was (and is still being) fought against.
 
 In a recent issue of Discover magazine there was a postulated argument that the universe exists for life, because without life to perceive the universe, there would be nothing there.  In a recent issue of the same magazine there was an article on Steven Hawking, the renowned physicist and cosmologist. In wrestling with the idea of what came before the Big Bang, it is proposed that this beginning of time as we know it event was a singularity, not too dissimilar to the creation of a black hole. One wonders if black holes as singularities are, on the other side, new Big Bangs creating new universes in which life arises to perceive their universe in the same way or differently from the way we perceive ours. These arguments, some testable (the new collider in Europe will be used I am sure to try to address some of this science) raises the most interesting speculations. What and where a god or gods fit in with what we are learning about the cosmos defies explanation. Behind what green curtain are they hiding? Or maybe they are on the other side of a black hole? Finally, if the universe is made for life and exists because we perceive it, as is being postulated in some of these arguments, whose perception is defining the universe? The perception of an ant, a bee,  a gorilla, and a hawk, are all different from our perception. Ours is limited to our senses and the extension of our senses through the application of our science and technology. Does that mean we live in a multiverse right here with every viewer's perception defining each universe in its own way? I hope this livens up the discussion.
-

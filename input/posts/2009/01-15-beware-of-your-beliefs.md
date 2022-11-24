@@ -3,7 +3,7 @@ Title: Beware of Your Beliefs
 Tags:
   - conflict palestinian-israel
   - human rights
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-15 22:28:43 +06:00
 Updated: 2009-01-16 06:48:03 +06:00
 OldURL: 2009/01/15/beware-of-your-beliefs/

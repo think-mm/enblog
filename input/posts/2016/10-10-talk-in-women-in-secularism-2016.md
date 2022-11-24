@@ -1,7 +1,7 @@
 ---
 Title: Talk in Women in Secularism 2016
 Tags:
-  - women
+  - women rights
   - secularism
   - Bonya Ahmed
 Published: 2016-10-10 22:12:41 +06:00

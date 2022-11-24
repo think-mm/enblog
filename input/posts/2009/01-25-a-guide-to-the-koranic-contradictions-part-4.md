@@ -1,5 +1,5 @@
 ---
-Title: A Guide to the Quranic Contradictions Part-4
+Title: A Guide to the Quranic Contradictions part 4
 Tags:
   - koranic contradictions
   - Abul Kasem

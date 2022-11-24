@@ -5,7 +5,7 @@ Tags:
   - islam
   - terrorism
   - india
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2008-11-27 04:55:35 +06:00
 Updated: 2008-11-27 11:59:16 +06:00
 OldURL: 2008/11/27/gunmen-kill-at-least-78-in-attacks-across-mumbai/

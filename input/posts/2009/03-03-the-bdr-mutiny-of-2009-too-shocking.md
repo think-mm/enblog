@@ -3,7 +3,7 @@ Title: The BDR Mutiny of 2009 - Too Shocking
 Tags:
   - bdr revolt
   - bdr mutiny
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-03-03 02:37:12 +06:00
 Updated: 2009-03-03 02:37:12 +06:00
 OldURL: 2009/03/03/the-bdr-mutiny-of-2009-too-shocking/

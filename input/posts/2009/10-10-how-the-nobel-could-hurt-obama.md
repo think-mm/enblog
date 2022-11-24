@@ -4,7 +4,7 @@ Tags:
   - obama
   - nobel peace prize
   - international
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-10-10 05:32:16 +06:00
 Updated: 2009-10-10 05:34:04 +06:00
 OldURL: 2009/10/10/how-the-nobel-could-hurt-obama/

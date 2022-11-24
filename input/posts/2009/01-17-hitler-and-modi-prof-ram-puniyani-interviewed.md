@@ -2,7 +2,7 @@
 Title: Hitler and Modi - Prof Ram Puniyani Interviewed
 Tags:
   - india
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-17 23:30:54 +06:00
 Updated: 2009-01-18 10:55:13 +06:00
 OldURL: 2009/01/17/hitler-and-modi-prof-ram-puniyani-interviewed/

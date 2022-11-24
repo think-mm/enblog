@@ -1,7 +1,7 @@
 ---
 Title: Times of India Interview - Might is right is the only language we have reverted to as a society - Rafida Bonya Ahmed
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2018-03-15 12:58:38 +06:00
 Updated: 2018-03-15 12:59:23 +06:00
 OldURL: 2018/03/15/times-of-india-interview-might-is-right-is-the-only-language-we-have-reverted-to-as-a-society-rafida-bonya-ahmed/

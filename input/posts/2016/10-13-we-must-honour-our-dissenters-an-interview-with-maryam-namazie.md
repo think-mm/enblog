@@ -7,7 +7,7 @@ Tags:
   - human rights
   - personality
   - terrorism
-  - women
+  - women rights
   - blogger killings
   - free speech
   - bangladeshi bloggers

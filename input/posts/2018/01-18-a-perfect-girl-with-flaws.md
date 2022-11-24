@@ -1,7 +1,7 @@
 ---
 Title: A perfect girl with flaws
 Tags:
-  - women
+  - women rights
   - freedom of expression
   - Guest Writer
 Published: 2018-01-18 11:46:48 +06:00

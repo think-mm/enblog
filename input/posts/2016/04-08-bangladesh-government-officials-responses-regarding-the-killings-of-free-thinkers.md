@@ -1,7 +1,7 @@
 ---
 Title: Who is the Bangladesh Government really siding with?
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-04-08 04:10:45 +06:00
 Updated: 2016-04-30 00:39:29 +06:00
 OldURL: 2016/04/08/bangladesh-government-officials-responses-regarding-the-killings-of-free-thinkers/

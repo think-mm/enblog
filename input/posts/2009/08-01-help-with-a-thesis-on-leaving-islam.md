@@ -84,10 +84,21 @@ My leaving Islam was not a simple decision. It had taken me many years of consta
 I must tell the truth that having left Islam I feel so relieved. I feel a huge chunk of boulder has been removed from my chest. Although I have to live a double-life, I feel so free and happy: that I have no hindrance to my thoughts and actions. It is like being freed from a prison after a long sentence, or being relieved after a death sentence has been quashed on appeal.
 
 Leaving Islam is like being re-born as a human being—truly free, happy and loving to every creature on earth.
-------------------------------------
-Hello,
-and thank you so much for your quick reply and your thorough answers. I'd be more than happy to send you the synopsis of my thesis once it's done and I wouldn't mind at all if you post your answers on your website.
-Thank you again,
-The Thesis Writer
--------------
-Abul Kasem writes from Sydney, Australia. Comments may be sent to nirribilli@gmail.com
+
+> Hello,
+> and thank you so much for your quick reply and your thorough answers. I'd be more than happy to send you the synopsis of my thesis once it's done and I wouldn't mind at all if you post your answers on your website.
+> Thank you again,
+> 
+> The Thesis Writer 
+  
+  
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

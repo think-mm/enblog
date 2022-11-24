@@ -36,6 +36,6 @@ In our conservative society, which lacks education in sexual awareness, homosexu
 
 
 ----
-~ Guest Writer: **Md Abdul Bachith Razel**  
+~ Guest Writer: **Md Abdul Bachith Razel** 
 *Volunteer
 (Aiming to prevent the isolation and suicide of young LGBT+ people, aged 14 to 25, victims of homophobia or transphobia and in a situation of family breakdown)*

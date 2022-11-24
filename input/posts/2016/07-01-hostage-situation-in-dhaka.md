@@ -1,7 +1,7 @@
 ---
 Title: Islamists take hostage in Dhaka  - ISIS claims credit
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-07-01 23:59:00 +06:00
 Updated: 2016-07-02 01:52:34 +06:00
 OldURL: 2016/07/01/hostage-situation-in-dhaka/

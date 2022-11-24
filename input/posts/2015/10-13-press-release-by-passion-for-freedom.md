@@ -5,7 +5,7 @@ Tags:
   - freethinker
   - activism
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-10-13 22:23:51 +06:00
 Updated: 2015-10-13 22:23:51 +06:00
 OldURL: 2015/10/13/press-release-by-passion-for-freedom/

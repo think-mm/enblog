@@ -1,7 +1,7 @@
 ---
 Title: Why Jamaat is still alive...
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2013-02-24 21:44:37 +06:00
 Updated: 2013-02-24 21:44:37 +06:00
 OldURL: 2013/02/24/why-jamaat-is-still-alive/

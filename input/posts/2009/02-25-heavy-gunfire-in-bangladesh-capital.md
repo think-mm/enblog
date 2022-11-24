@@ -2,7 +2,7 @@
 Title: Heavy gunfire in Bangladesh capital
 Tags:
   - heavy gunfire in bangladesh capital
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-25 13:43:52 +06:00
 Updated: 2009-02-25 13:43:52 +06:00
 OldURL: 2009/02/25/heavy-gunfire-in-bangladesh-capital/

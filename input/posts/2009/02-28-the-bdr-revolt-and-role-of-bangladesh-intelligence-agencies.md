@@ -1,11 +1,8 @@
 ---
 Title: The BDR Revolt and Role of Bangladesh Intelligence Agencies
 Tags:
-  - bdr revolt
-  - intelligence agencies
-  - the bdr revolt and role of bangladesh intelligence agencies
   - politics
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-28 01:45:13 +06:00
 Updated: 2009-02-28 02:14:33 +06:00
 OldURL: 2009/02/28/the-bdr-revolt-and-role-of-bangladesh-intelligence-agencies/
@@ -35,3 +32,8 @@ OldURL: 2009/02/28/the-bdr-revolt-and-role-of-bangladesh-intelligence-agencies/
 
 </div>
 <p class="MsoListParagraph" style="text-align: justify;"><span style="color: #000000;"><span style="font-family: Symbol;">·<span style="font: 7pt 'Times New Roman';">         </span></span><span style="font-family: Cambria;">Abdul Momen is a professor of economics and business in Boston, USA</span></span></p>
+
+Additional Tags:
+  - bdr revolt
+  - intelligence agencies
+  - the bdr revolt and role of bangladesh intelligence agencies

@@ -2,16 +2,15 @@
 Title: When The Saints Go Marching In
 Tags:
   - india election 2009
-  - bjp
   - Meera Nanda
 Published: 2009-07-06 23:53:59 +06:00
 Updated: 2009-09-07 08:22:35 +06:00
 OldURL: 2009/07/06/when-the-saints-go-marching-in/
 ---
 
- 
-<p style="text-align: center;"><span style="font-size: large; color: #008000;">When The Saints Go Marching In…</span></p>
+ <p style="text-align: center;"><span style="font-size: large; color: #008000;">When The Saints Go Marching In…</span></p>
 <p style="text-align: center;"><span style="font-size: medium; color: #000080;">Meera Nanda</span></p>
+
 <p style="text-align: justify;"><span style="font-family: Verdana;">BJP has worked hard to create the impression that it is not pursuing an aggressive Hindutva agenda in the 2009 Lok Sabha election. It has made good governance, development and security its election plank, and has promised to give us a majboot neta, nirnayak sarkar. Old Hindutva favorites like the Ram temple, Ram Sethu and the much- beloved "cow and its progeny" do make an appearance in the party's manifesto, but they are clubbed together under the unobjectionable idea of "preserving our cultural heritage" and tacked at the very end.</span></p>
 <p style="text-align: justify;"><span style="font-family: Verdana;">But like a leopard can't change its spots, the party of saffron can't turn saffron, green and white without losing its very reason for being.</span></p>
 <p style="text-align: justify;"><span style="font-family: Verdana;">The truth is that in this election, the BJP has pursued a Hindu agenda which, in the long run, may prove to be far more radical than the hot-button issues that we are all familiar with. The new agenda can best be described as Hindukaran of voters, that is, making voters vote as Hindus First.</span></p>

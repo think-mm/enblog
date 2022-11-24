@@ -3,7 +3,7 @@ Title: Thoughts on Avijit Roy- Maxim Sergienko
 Tags:
   - avijit roy
   - richard dawkins
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-09-12 08:34:45 +06:00
 Updated: 2015-09-12 08:34:45 +06:00
 OldURL: 2015/09/12/thoughts-on-avijit-roy-maxim-sergienko/

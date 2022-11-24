@@ -3,7 +3,7 @@ Title: Reason Rally Mini-Con's Keynote Speaker is Bonya Ahmed
 Tags:
   - activism
   - freethinking
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-06-06 04:38:31 +06:00
 Updated: 2016-06-06 04:43:12 +06:00
 OldURL: 2016/06/06/reason-rally-mini-cons-keynote-speaker-is-bonya-ahmed/

@@ -6,7 +6,7 @@ Tags:
   - avijit roy
   - blogger killings
   - freedom of expression
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2017-04-18 08:45:07 +06:00
 Updated: 2017-04-18 11:39:49 +06:00
 OldURL: 2017/04/18/mashal-khans-murderers-must-be-brought-to-justice-blasphemy-or-laws-alike-must-be-abolished/

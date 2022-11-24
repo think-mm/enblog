@@ -2,7 +2,7 @@
 Title: A miscarriage of justice
 Tags:
   - human rights
-  - women
+  - women rights
   - activism
   - free speech
   - secularism

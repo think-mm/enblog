@@ -6,7 +6,7 @@ Tags:
   - culture
   - human rights
   - society
-  - women
+  - women rights
   - activism
   - secularism
   - Tonoy Emroz

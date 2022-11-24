@@ -1,12 +1,7 @@
 ---
 Title: Evolutionary Science vs. Creation Theory, and Intellectual Hypocrisy!
 Tags:
-  - evolution
-  - islam
-  - darwin day celebration
   - darwin day
-  - creation vs evolution
-  - celebration
   - Syed Kamran Mirza
 Published: 2009-02-12 15:26:38 +06:00
 Updated: 2009-07-15 07:18:09 +06:00

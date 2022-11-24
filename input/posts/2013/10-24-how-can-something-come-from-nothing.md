@@ -1,17 +1,15 @@
 ---
 Title: How Can Something Come From Nothing?
 Tags:
-  - how can something come from nothing?
-  - universe from nothing
-  - philosophy
   - science
-  - education
-  - literature
-  - Victor Stenger
+  - cosmos
+  - Guest Writer
 Published: 2013-10-24 19:23:13 +06:00
 Updated: 2013-10-24 20:24:03 +06:00
 OldURL: 2013/10/24/how-can-something-come-from-nothing/
 ---
+
+~ *Victor Stenger*
 
 I write and lecture a lot about science and religion. A common question I get from religious believers is "How can something come from nothing?" They seem to think it's the <span style="text-decoration: underline;">final clincher</span> proving the existence of God—or at least some form of supernatural creation. Of course, they don't say how God came from nothing. Or, if they do, they claim God always existed and so did not have to come from anything. But then, why couldn't the universe have always existed? In fact, modern cosmology suggests that it did—that the universe is eternal.
 
@@ -108,3 +106,12 @@ So, how can the multiverse have come From Nothing? Since the multiverse always e
 ========
 
 Victor J. Stenger is an Emeritus Professor of Physics and Astronomy at the University of Hawaii and adjunct professor of philosophy at the University of Colorado. He is the author of twelve books including the 2007 <em>New York Times</em> bestseller <em>God: The Failed Hypothesis. How Science Shows That God Does Not Exist</em>. His latest book is <em>God and the Atom: From Democritus to the Higgs Boson</em>. He is also the President of Colorado Citizens for Science (CCFS), Research Fellow of Center for Inquiry (CFI) and Fellow of the Committee for the Scientific Investigation of Claims of the Paranormal (CSICOP).  He is an honorary member of Mukto-Mona.
+
+
+*Moved to guest writer tag due to single post by the Author*
+
+Additional Tags:
+  - how can something come from nothing?
+  - universe from nothing
+  - philosophy
+  - literature

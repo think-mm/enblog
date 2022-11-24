@@ -1,17 +1,17 @@
 ---
 Title: The Failure of US Strategy for Regime Change in Afghanistan - Leaving a dangerous and futile game behind for a better future ?
 Tags:
-  - politics
+  - afganistan
   - international
   - human rights
-  - terrorism
-  - Haider A. Khan
+  - Guest Writer
 Published: 2021-08-21 02:06:13 +06:00
 Updated: 2021-08-21 02:13:44 +06:00
 OldURL: 2021/08/21/the-failure-of-us-strategy-for-regime-change-in-afghanistan-leaving-a-dangerous-and-futile-game-behind-for-a-better-future/
 ---
 
-<p class="p1"><b>By Guest Writer, Haider A. Khan</b></p>
+~ *Haider A. Khan*
+
 <p class="p2">The western world witnessed in disbelief the <span class="Apple-converted-space">  </span>fall of the U.S.-backed government in Afghanistan with what can only be called stunning speed to a rag tag army of Taliban extremists without any air support or even high caliber advanced<span class="Apple-converted-space">  </span>heavy weaponry. Showing remarkable honesty conspicuous by its absence in the previous US regimes President Joe Biden has<span class="Apple-converted-space">  </span>defended his decision to withdraw U.S. forces. His main<span class="Apple-converted-space">  </span>argument in front of the American public has been that Americans should no longer continue to fight and die for an Afghan government that can not draw support from its own military, much less the majority of the<span class="Apple-converted-space">  </span>Afghans. Whether there has been an intelligence failure about the military prospects or not can be debated but Biden was still correct to follow through with Donald Trump's agreement to withdraw U.S. forces. Most polls show that this decision has the support of nearly three-quarters of the American public.</p>
 <p class="p2">We must not ignore the U.S.government's and its allies' as well as private companies and even some NGOs' longtime role in the creation of the humanitarian and political crisis in Afghanistan. The current chaos and violence have been more than 20 years in the making. The invasion of Afghanistan for a regime change led only to a cesspool of corruption and seemingly endless suffering for the ordinary Afghans.</p>
 <p class="p3">Indeed, there may be a sober reality-based way of looking at the true picture and draw out the plausible geopolitical scenarios. Recently, I<span class="Apple-converted-space">  </span>used the best available data from the World Bank, the IMF and other national and international sources about the Afghan economy to do precisely this exercise. My results pertain both to the overall effects for the<span class="Apple-converted-space">  </span>Afghan economy, and specific sectors. More importantly, they also give us some rough insights into why the failure has to do with the corruption by the US and NATO forces and their cronies.This corruption was indeed promoted both in the civilian and the military sectors with the active connivance and participation of the Westerners. Once we grasp this simple truth, the mystery about the governments quick collapse disappears quickly.</p>

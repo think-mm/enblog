@@ -2,7 +2,7 @@
 Title: Julian Assange - The Truth Will Always Win
 Tags:
   - julian assange
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2010-12-08 21:23:13 +06:00
 Updated: 2010-12-08 21:23:13 +06:00
 OldURL: 2010/12/08/julian-assange-the-truth-will-always-win/

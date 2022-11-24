@@ -5,7 +5,7 @@ Tags:
   - bdr mutiny
   - let the good sense prevail
   - politics
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-03-11 00:35:16 +06:00
 Updated: 2009-03-11 00:35:16 +06:00
 OldURL: 2009/03/11/let-the-good-sense-prevail-on-bdr-killing/

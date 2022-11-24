@@ -1,11 +1,7 @@
 ---
 Title: What they love so well
 Tags:
-  - short story
-  - what they love so well
-  - society
-  - women
-  - literature
+  - women rights
   - Shabnam Nadiya
 Published: 2009-09-16 21:52:30 +06:00
 Updated: 2009-09-16 21:54:02 +06:00
@@ -118,3 +114,10 @@ OldURL: 2009/09/16/what-they-love-so-well/
 <span style="font-size: medium; font-family: Garamond;">   The four of them gazed at each other across the abyss-like opening between the two buildings. 'Look, look!' Shahanaz gasped, and Firoze couldn't tell what it was that caught her breath so: fear or exultation. 'It's us,' she said. 'Of course, we know them, how could we not! They're us!' Her whisper wafted across his cheek like the cold hand of coming winter, like the leap of a gecko from a blind wall to distant stars. The blinking of the fairy lights made them look raggedy, unfleshed at times, bathed them in colour one second and let them be the next, as they stood there looking, their recusant hearts envisioning the joyousness of others. </span>
 
 <span style="font-size: medium; font-family: Garamond;"><strong>The story has been published in New Age Eid Special, 2009. Picture Courtesy: New age.</strong></span>
+
+
+Additional Tags:
+  - Fiction or Non-Fiction
+  - short story
+  - society
+  - literature

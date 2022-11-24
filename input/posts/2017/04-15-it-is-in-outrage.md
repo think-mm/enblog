@@ -7,7 +7,7 @@ Tags:
   - philosophy
   - science
   - society
-  - women
+  - women rights
   - avijit roy
   - history
   - secularism

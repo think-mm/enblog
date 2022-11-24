@@ -5,7 +5,7 @@ Tags:
   - education
   - medical physics
   - seminar
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-07-30 19:47:42 +06:00
 Updated: 2009-07-30 19:50:44 +06:00
 OldURL: 2009/07/30/first-call-for-a-seminar-on-medical-physics-and-associated-disciplines/

@@ -2,7 +2,7 @@
 Title: Attack on Professor Muhammad Zafar Iqbal
 Tags:
   - freethinker
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2018-03-04 06:03:22 +06:00
 Updated: 2018-03-05 00:23:58 +06:00
 OldURL: 2018/03/04/attack-on-professor-muhammad-zafar-iqbal/

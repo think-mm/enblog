@@ -1,9 +1,8 @@
 ---
 Title: IHEU condemns the Arrests of Atheist Bloggers in Bangladesh
 Tags:
-  - Atheist Bloggers
-  - shahbagh movement 2013
-  - Mukto-Mona Editor
+  - blogger killing
+  - MuktoMona Editor
 Published: 2013-04-05 03:48:18 +06:00
 Updated: 2013-04-06 13:59:52 +06:00
 OldURL: 2013/04/05/iheu-condemns-the-arrests-of-atheist-bloggers-in-bangladesh/
@@ -52,3 +51,8 @@ Sonja Eggerickx, president of the <a title="IHEU builds and represents the globa
 <strong>Take action: </strong>Our member organisation the American Humanist Association has <a href="https://www.americanhumanist.org/news/details/2013-04-take-action-support-imprisoned-atheist-bloggers-in-b">encouraged its supporters to lobby the US Amabassador to Bangladesh</a> to lodge a formal complaint. <a title="IHEU builds and represents the global humanist movement that defends human rights and promotes humanist values world-wide. Founded in 1952, IHEU is the sole world umbrella organisation for humanist, atheist, rationalist, secularist, skeptic, laique, ethical cultural, freethought and similar organisations world-wide." href="https://iheu.org/glossary#IHEU">IHEU</a> Members and individuals elsewhere may want to take similar action in their own countries.
 
 <strong>Source</strong> : <a href="https://iheu.org/story/arrests-atheist-bloggers-shows-bangladesh-authorities-are-walking-trap-set-fundamentalists">IHEU site</a>
+
+
+Additional Tags:
+  - Atheist Bloggers
+  - shahbagh movement 2013

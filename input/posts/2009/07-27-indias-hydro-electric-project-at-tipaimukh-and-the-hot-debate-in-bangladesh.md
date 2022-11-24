@@ -1,8 +1,6 @@
 ---
 Title: India's Hydro-Electric Project at Tipaimukh and the Hot Debate in Bangladesh
 Tags:
-  - tipaimukh dam
-  - bangladesh -india relationship
   - politics
   - india
   - Bijon Sarma
@@ -55,3 +53,8 @@ As mentioned earlier, Prime minister Sheikh Hasina disclosed that she was propos
 
 Bijon B. Sarma, Professor (on LPR), Khulna University, Khulna. Bangladesh.
 
+
+
+Additional Tags:
+  - tipaimukh dam
+  - bangladesh -india relationship

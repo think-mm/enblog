@@ -10,7 +10,7 @@ Tags:
   - freethinking
   - history
   - secularism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2019-02-26 02:44:38 +06:00
 Updated: 2019-02-26 02:51:16 +06:00
 OldURL: 2019/02/26/fourth-anniversary-of-the-assassination-of-avijit-roy/

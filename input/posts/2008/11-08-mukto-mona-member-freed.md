@@ -3,7 +3,7 @@ Title: Mukto-Mona member Raja Petra Kamaruddin freed!
 Tags:
   - international
   - human rights
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2008-11-08 02:37:30 +06:00
 Updated: 2008-11-08 02:52:01 +06:00
 OldURL: 2008/11/08/mukto-mona-member-freed/

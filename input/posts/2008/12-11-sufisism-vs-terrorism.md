@@ -8,6 +8,8 @@ Updated: 2009-07-27 21:44:36 +06:00
 OldURL: 2008/12/11/sufisism-vs-terrorism/
 ---
 
+~ *Sentu Tikadar* 
+
 In Saudi Arabia  while I was travelling in a taxi and chatting with the driver. The driver told he was from Azad Kashmir. I asked what was 'azad'. He replied 'free' Kashmir. I asked agian what he meant by 'free'. He kept silent for a while. I again asked him what was the currency of his country. He told Pakistani currency. I told him -then you were not actually free. The driver kept mum.
 
 The Kashmir controlled by India wants to become free and want to be a part of Pakistan.

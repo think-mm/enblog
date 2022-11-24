@@ -5,7 +5,7 @@ Tags:
   - human rights
   - terrorism
   - society
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-06-13 04:05:15 +06:00
 Updated: 2016-06-13 04:23:13 +06:00
 OldURL: 2016/06/13/virus-of-faith-strikes-again-massacre-of-innocents-in-florida/

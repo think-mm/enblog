@@ -2,7 +2,7 @@
 Title: Commemorating Avijit Roy's life and work on his 44th birthday
 Tags:
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-09-12 10:37:47 +06:00
 Updated: 2015-10-02 09:14:03 +06:00
 OldURL: 2015/09/12/commemorating-avijit-roys-life-and-work-on-his-44th-birthday/

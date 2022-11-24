@@ -3,7 +3,7 @@ Title: Remembering Avijit Roy
 Tags:
   - avijit roy
   - blogger killings
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-02-26 16:52:58 +06:00
 Updated: 2016-02-26 17:02:56 +06:00
 OldURL: 2016/02/26/remembering-avijit-roy/

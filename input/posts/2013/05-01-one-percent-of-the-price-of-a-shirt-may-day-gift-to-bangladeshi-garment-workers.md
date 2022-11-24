@@ -1,10 +1,8 @@
 ---
 Title: One Percent of the Price of a Shirt - May Day gift to Bangladeshi Garment Workers!
 Tags:
-  - politics
   - human rights
-  - society
-  - women
+  - women rights
   - Irtishad Ahmad
 Published: 2013-05-01 09:43:37 +06:00
 Updated: 2013-05-12 01:59:07 +06:00
@@ -70,4 +68,3 @@ The poverty rate at $1.25 a day is the proportion of the population living on le
 
 [4].https://www.academia.edu/853076/Wealth_and_Deprivation_Ready-made_Garments_Industry_in_Bangladesh
 Anu Muhammad, Economic and Political Weekly, August 20, 2011. Vol xlvl, no 34.
-

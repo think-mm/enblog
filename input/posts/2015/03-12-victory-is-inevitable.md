@@ -3,7 +3,7 @@ Title: Victory is Inevitable
 Tags:
   - personality
   - freethinker
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-03-12 13:06:20 +06:00
 Updated: 2015-03-21 09:23:53 +06:00
 OldURL: 2015/03/12/victory-is-inevitable/

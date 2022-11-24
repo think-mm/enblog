@@ -3,7 +3,7 @@ Title: Humanists urge Dutch Government to take action regarding Bangladesh
 Tags:
   - activism
   - blogger killings
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-04 12:56:01 +06:00
 Updated: 2015-11-04 12:56:01 +06:00
 OldURL: 2015/11/04/humanists-urge-dutch-government-to-take-action-regarding-bangladesh/

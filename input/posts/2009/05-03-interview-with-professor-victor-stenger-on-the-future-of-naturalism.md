@@ -1,12 +1,10 @@
 ---
 Title: Interview with Professor Victor Stenger on The Future of Naturalism
+Lead: Victor Stenger's interview
 Tags:
-  - victor stenger's interview
-  - religion
-  - philosophy
   - science
-  - society
-  - Mukto-Mona Editor
+  - cosmos
+  - MuktoMona Editor
 Published: 2009-05-03 19:20:41 +06:00
 Updated: 2009-05-03 19:20:41 +06:00
 OldURL: 2009/05/03/interview-with-professor-victor-stenger-on-the-future-of-naturalism/
@@ -21,3 +19,7 @@ OldURL: 2009/05/03/interview-with-professor-victor-stenger-on-the-future-of-natu
 <P align=left>&nbsp;</P>
 <P align=left><FONT color=#000080 size=4>This interview has been Recorded at the Future of Naturalism conference at the Center for Inquiry. <A class="" href="https://gold.mukto-mona.com/Articles/vstenger/index.html" mce_href="https://gold.mukto-mona.com/Articles/vstenger/index.html">Victor Stenger's article page </A>can be read from Mukto-Mona. </FONT></P>
 <P align=left><FONT color=#000080 size=4>Mukto-Mona Moderators</FONT></P>
+
+
+Additional Tags:
+  - victor stenger's interview

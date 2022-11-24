@@ -3,7 +3,7 @@ Title: MuktoMona founder Avijit Roy murder prime accused ABT terrorist Sharif ki
 Tags:
   - freethinker
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-06-19 12:18:23 +06:00
 Updated: 2016-06-19 13:13:50 +06:00
 OldURL: 2016/06/19/muktomona-founder-avijit-roy-murder-prime-accused-abt-terrorist-sharif-killed-in-dhaka/

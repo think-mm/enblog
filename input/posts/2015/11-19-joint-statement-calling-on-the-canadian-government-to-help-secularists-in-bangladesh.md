@@ -8,7 +8,7 @@ Tags:
   - activism
   - blogger killings
   - free speech
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-19 05:10:02 +06:00
 Updated: 2015-11-19 05:10:02 +06:00
 OldURL: 2015/11/19/joint-statement-calling-on-the-canadian-government-to-help-secularists-in-bangladesh/

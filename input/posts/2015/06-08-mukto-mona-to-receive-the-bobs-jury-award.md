@@ -1,7 +1,7 @@
 ---
 Title: Mukto-Mona to receive 'The Bobs jury award
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-06-08 01:12:32 +06:00
 Updated: 2015-06-08 01:14:43 +06:00
 OldURL: 2015/06/08/mukto-mona-to-receive-the-bobs-jury-award/

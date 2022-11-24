@@ -12,7 +12,7 @@ Tags:
   - free speech
   - bangladeshi bloggers
   - freethinking
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-05-01 22:48:25 +06:00
 Updated: 2016-05-01 22:51:21 +06:00
 OldURL: 2016/05/01/in-support-of-secular-bloggers-and-freethinkers-in-bangladesh-the-nordic-and-estonian-pen-centres-condemn-the-acts-of-violence-and-demand-protection-for-those-in-danger/

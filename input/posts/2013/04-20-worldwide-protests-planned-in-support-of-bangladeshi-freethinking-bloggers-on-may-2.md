@@ -5,7 +5,7 @@ Tags:
   - religion
   - activism
   - shahbagh movement 2013
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2013-04-20 23:54:14 +06:00
 Updated: 2013-04-25 10:06:26 +06:00
 OldURL: 2013/04/20/worldwide-protests-planned-in-support-of-bangladeshi-freethinking-bloggers-on-may-2/

@@ -3,7 +3,7 @@ Title: Republican Guru Karl Rove predicts a landslide victory for Obama
 Tags:
   - politics
   - international
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2008-11-05 01:44:56 +06:00
 Updated: 2008-11-06 02:58:57 +06:00
 OldURL: 2008/11/05/republican-guru-karl-rove-predicts-a-landslide-victory-for-obama/

@@ -5,7 +5,7 @@ Tags:
   - religion
   - human rights
   - shahbagh movement 2013
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2013-04-03 20:40:08 +06:00
 Updated: 2013-04-05 03:56:07 +06:00
 OldURL: 2013/04/03/a-statement-from-mukto-mona-bangladesh-government-squishing-freedom-of-speech-by-arresting-and-harassing-young-bloggers-inside-the-country/

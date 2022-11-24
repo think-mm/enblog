@@ -3,7 +3,7 @@ Title: American Atheists Condemn the Decision to Include God in the 2012 Democra
 Tags:
   - politics
   - international
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2012-09-07 23:59:13 +06:00
 Updated: 2012-09-07 23:59:13 +06:00
 OldURL: 2012/09/07/american-atheists-condemn-the-decision-to-include-god-in-the-2012-democratic-national-platform/

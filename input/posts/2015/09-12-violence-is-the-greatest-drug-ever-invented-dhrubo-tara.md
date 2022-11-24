@@ -2,7 +2,7 @@
 Title: Violence is the Greatest Drug Ever Invented- Dhrubo Tara
 Tags:
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-09-12 08:35:06 +06:00
 Updated: 2015-09-12 08:35:06 +06:00
 OldURL: 2015/09/12/violence-is-the-greatest-drug-ever-invented-dhrubo-tara/

@@ -1,15 +1,9 @@
 ---
 Title: Happy Ada Lovelace Day!
 Tags:
-  - avijit english
-  - culture
-  - philosophy
   - science
-  - celebration
-  - society
-  - women
+  - women rights
   - education
-  - literature
   - Avijit Roy
 Published: 2014-10-15 06:12:07 +06:00
 Updated: 2016-12-27 22:38:14 +06:00
@@ -22,7 +16,7 @@ Today (September 14) is Ada Lovelace Day. Did we know that?
 
 This day is tied with Ada Byron who has been recognized as the 'first computer programmer' (though it is still subject to debate).
 
-Well…this post is not only about Ada. We know the names of Hypatia, Madame Curie, Rosalind Franklin, Lise Meitner, Rachel Carson, Barbara McClintock, Elizabeth Blackwell, Jane Goodall, Maria Mitchell, Vera Rubin, Jocelyn Bell, Eva Silverstein, Lisa Randall and many others who have contributed, and some are still contributing in the field of science and technology. A woman's place is no longer in the kitchen; women are now in business, they are in education, they are in engineering and math. Women are in army, navy or in even dangerous mining fields. Also keep in mind, one of the toughest physically challenging job is probably that of an astronaut's. Besides so many American women astronauts, we also had Kalpana Chawla, Indian born astronaut who lost her life prematurely in the tragic Columbia disaster.
+Well… this post is not only about Ada. We know the names of Hypatia, Madame Curie, Rosalind Franklin, Lise Meitner, Rachel Carson, Barbara McClintock, Elizabeth Blackwell, Jane Goodall, Maria Mitchell, Vera Rubin, Jocelyn Bell, Eva Silverstein, Lisa Randall and many others who have contributed, and some are still contributing in the field of science and technology. A woman's place is no longer in the kitchen; women are now in business, they are in education, they are in engineering and math. Women are in army, navy or in even dangerous mining fields. Also keep in mind, one of the toughest physically challenging job is probably that of an astronaut's. Besides so many American women astronauts, we also had Kalpana Chawla, Indian born astronaut who lost her life prematurely in the tragic Columbia disaster.
 
 Needless to say, in today's world corporate women have ascended to great heights in techi fields : Ginni Rometty is CEO and Chairperson of IBM, Meg Whitman is the CEO of Hewlett-Packard, Marissa Mayer is of Yahoo! Safra Catz is joint CEO of Oracle, Padmasree Warrior is chief technology and strategy officer of Cisco, Sheryl Sandberg is Facebook chief operating officer. These women have succeeded in climbing up the corporate ladder by sheer dint of their competence even in 'not too women friendly' environments.
 
@@ -36,3 +30,12 @@ Women in science are really cool, isn't it?
 
 Cheers!
 Avijit
+
+
+Additional Tags:
+  - culture
+  - philosophy
+  - science
+  - celebration
+  - society
+  - literature

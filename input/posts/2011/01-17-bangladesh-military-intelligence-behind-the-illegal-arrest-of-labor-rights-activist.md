@@ -1,13 +1,6 @@
 ---
 Title: Bangladesh - Military Intelligence behind the illegal arrest of labor rights activist
 Tags:
-  - arbitrary arrest and detention
-  - impunity
-  - rule of law
-  - asian human rights commission
-  - moshrefa mishu
-  - ganatantrik biplobi (democratic revolutionary) party
-  - politics
   - human rights
   - William Gomes
 Published: 2011-01-17 21:53:26 +06:00
@@ -23,7 +16,7 @@ Dhaka (Sri Lanka Guardian)
 
 Directorate General of Forces Intelligence (DGFI), the Bangladesh's Military Intelligence is behind the arrest of labor rights activist Moshrefa Mishu, a leftist political activist and President of the Garment Workers Unity Forum (GWUF), a labor rights organization of the readymade garment factories of the country.The Director General (DG) of DGFI directly reports to the Prime Minister of Bangladesh. Confined in Dhaka Medical Hospital (DHMC) by highly armed police officials Moshrefa Mishu exposed the horrific torture description the in several undercover interviews to Srilanka guardian. 
 Mishu said to Srilanka guardian that on 13 December 2010, at around 5pm in the afternoon two persons called Mishu on her cell phone. Both persons claimed that they were journalists. In two separate calls the callers said, "We need to interview you; please stay at home! We will come soon! 
-Mishu's sister Zabunnesa Zebu said to Srilanka guardian that she   suspects that the callers were from the DGFI, who wanted to be sure that Mishu stayed at home for a probable arrest. 
+Mishu's sister Zabunnesa Zebu said to Srilanka guardian that she suspects that the callers were from the DGFI, who wanted to be sure that Mishu stayed at home for a probable arrest. 
 Zebu said to Srilanka guardian that earlier, on 30 July 2010 from 12 midnight to 12:35am Mishu received four calls in her cell phone. The callers suppressed their telephone numbers that had been used to call Mishu.
  For example, the first call appeared on Mishu's cell phone screen as "private number"; the second caller's call appeared as +01748888888, which is abnormal in Bangladesh as the numbers appear with its country code at the begging such as +8801XXXXXXXXX. The third and fourth call also appeared without any number on the cell phone screen said zebu 
 
@@ -33,8 +26,6 @@ The second caller introduced him as an officer of the SB (Special Branch of poli
 
 The third and fourth callers called after short intervals and used similar language and threats to her life. 
 Zebu said Mishu was allegedly threatened by the Directorate General of Forces Intelligence (DGFI), an intelligence agency operated by the armed forces of Bangladesh mostly dominated the country's army, over her cell phone. She was instructed not to raise voice on the issue of the wages of the workers of the Ready Made Garment (RMG) factories. The intelligence agency officials warned Mishu that if the workers further demand for the increase of their wages, she will face dire consequences. The caller used slang words on the cell phone.
-
-
 
 
 Msihu said to Srilanka guardian  on 14 December, early in the morning at around 1:15am a group of twelve plain-clothed armed people came to the house at 51/2 Kolabagan North Road under the jurisdiction of the Kalabagan police station in the city of Dhaka. 
@@ -93,4 +84,10 @@ The family fears that the police are trying their best to take Mishu, who has ch
 Asian Human Rights Commission has already written separate letters to the UN Working Group on Arbitrary Detention and Special Rapporteurs on Independent of Judges and Lawyers and Violence Against Women requesting their prompt interventions in this case.
 
 
-
+Additional Tags:
+  - arbitrary arrest and detention
+  - impunity
+  - rule of law
+  - asian human rights commission
+  - moshrefa mishu
+  - ganatantrik biplobi (democratic revolutionary) party

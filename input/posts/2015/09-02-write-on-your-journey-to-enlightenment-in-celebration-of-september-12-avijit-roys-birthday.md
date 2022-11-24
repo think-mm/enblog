@@ -5,7 +5,7 @@ Tags:
   - freethinker
   - activism
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-09-02 12:15:49 +06:00
 Updated: 2015-09-02 12:15:49 +06:00
 OldURL: 2015/09/02/write-on-your-journey-to-enlightenment-in-celebration-of-september-12-avijit-roys-birthday/

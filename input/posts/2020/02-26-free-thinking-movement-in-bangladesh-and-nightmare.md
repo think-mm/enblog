@@ -1,7 +1,7 @@
 ---
 Title: Free thinking movement in Bangladesh  and nightmare
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2020-02-26 09:30:41 +06:00
 Updated: 2020-02-26 09:30:41 +06:00
 OldURL: 2020/02/26/free-thinking-movement-in-bangladesh-and-nightmare/

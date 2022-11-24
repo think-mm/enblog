@@ -2,7 +2,7 @@
 Title: Editorial - Amnesty's Baffling Stand on War Crime
 Tags:
   - 1971 genocide
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-10-30 04:46:54 +06:00
 Updated: 2015-10-30 04:46:54 +06:00
 OldURL: 2015/10/30/editorial-amnestys-baffling-stand-on-war-crime/

@@ -3,11 +3,9 @@ Title: ARUNDHATI ROY - THE GODDESS OF SMALL MINDS
 Tags:
   - india
   - human rights
-  - personality
   - freethinker
   - society
-  - women
-  - activism
+  - women rights
   - Bhaskar
 Published: 2014-05-27 16:38:26 +06:00
 Updated: 2014-08-18 16:37:23 +06:00

@@ -1,13 +1,8 @@
 ---
 Title: Judge Alleged of molesting a subordinate female staff
 Tags:
-  - judge alleged of molesting a subordinate female staff
-  - politics
   - religion
-  - philosophy
-  - society
-  - women
-  - activism
+  - sexual misconduct
   - William Gomes
 Published: 2011-03-07 20:13:28 +06:00
 Updated: 2011-03-07 20:13:28 +06:00
@@ -44,7 +39,3 @@ She said as a human rights activist and lawyer I urged to authorities for impart
 She said the government should create a platform of justice in this case other wise people will loose their faith in judiciary. 
 Advocate Shamim Ara Shume said I am concern about the victim and the victim need right counseling and mental support as she is going through mental trauma. 
 AHRC wrote a separate letter to the UN Special Rapporteurs on violence against women and Independence of Judges and Lawyers calling for their intervention into this matter.
-
-
-
-

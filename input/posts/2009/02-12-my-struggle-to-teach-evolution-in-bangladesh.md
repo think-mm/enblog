@@ -6,7 +6,7 @@ Tags:
   - richard dawkins
   - philosophy
   - evolution
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-12 10:08:25 +06:00
 Updated: 2009-02-12 10:15:32 +06:00
 OldURL: 2009/02/12/my-struggle-to-teach-evolution-in-bangladesh/

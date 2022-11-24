@@ -2,7 +2,7 @@
 Title: Islamic embryology - overblown balderdash
 Tags:
   - religion
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2011-11-27 10:53:30 +06:00
 Updated: 2011-11-27 10:55:12 +06:00
 OldURL: 2011/11/27/islamic-embryology-overblown-balderdash/

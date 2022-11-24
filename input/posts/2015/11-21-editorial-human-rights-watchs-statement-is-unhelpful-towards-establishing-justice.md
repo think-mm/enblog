@@ -4,7 +4,7 @@ Tags:
   - human rights
   - 1971 genocide
   - war crimes
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-21 02:38:45 +06:00
 Updated: 2015-11-21 06:28:40 +06:00
 OldURL: 2015/11/21/editorial-human-rights-watchs-statement-is-unhelpful-towards-establishing-justice/

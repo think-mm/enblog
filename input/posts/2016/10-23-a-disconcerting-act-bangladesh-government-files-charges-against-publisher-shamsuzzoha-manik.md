@@ -4,7 +4,7 @@ Tags:
   - human rights
   - free speech
   - freedom of expression
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-10-23 12:52:06 +06:00
 Updated: 2016-10-23 12:58:20 +06:00
 OldURL: 2016/10/23/a-disconcerting-act-bangladesh-government-files-charges-against-publisher-shamsuzzoha-manik/

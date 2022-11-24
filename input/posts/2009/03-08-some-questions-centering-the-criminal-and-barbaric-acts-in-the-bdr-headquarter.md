@@ -5,7 +5,7 @@ Tags:
   - bdr mutiny
   - criminal and barbaric acts in the bdr headquarter
   - politics
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-03-08 01:51:32 +06:00
 Updated: 2009-03-08 01:51:32 +06:00
 OldURL: 2009/03/08/some-questions-centering-the-criminal-and-barbaric-acts-in-the-bdr-headquarter/

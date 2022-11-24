@@ -1,7 +1,8 @@
 ---
 Title: High Court order shouldn't be in vain
 Tags:
-  - Ripan
+  - women rights
+  - Ripan Kumar Biswas
 Published: 2009-08-29 10:41:28 +06:00
 Updated: 2009-08-29 21:59:03 +06:00
 OldURL: 2009/08/29/high-court-order-shouldn%e2%80%99t-be-in-vain/

@@ -2,7 +2,7 @@
 Title: The Infinite
 Tags:
   - mathematics
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-05 22:06:48 +06:00
 Updated: 2009-02-05 22:06:48 +06:00
 OldURL: 2009/02/05/the-infinite/
@@ -125,8 +125,12 @@ OldURL: 2009/02/05/the-infinite/
 <p class="MsoNormal" style="text-indent: 13.5pt; text-align: justify;">16) Engels, F. <em>Anti-Dühring</em>, N.Y. International Publishers, 1939, pp. 43-44.</p>
 <p class="MsoNormal" style="text-align: justify;"> </p>
 
-<hr />
-<p class="MsoNormal" style="text-align: justify;">Abdul Malek, 980 Rue Robert Brossard, Quebec J4X 1C9, Canada; E-mail: <a href="mailto:abdulmalek@qc.aibn.com">abdulmalek@qc.aibn.com</a> </p>
+----
+*Abdul Malek*
+- 980 Rue Robert Brossard, Quebec J4X 1C9, Canada
+- Can be contacted at email: *abdulmalek at qc.aibn dot com*
+
+
 
 Additional tags:
   - infinite

@@ -6,7 +6,7 @@ Tags:
   - human rights
   - freethinker
   - society
-  - women
+  - women rights
   - health
   - activism
   - free speech

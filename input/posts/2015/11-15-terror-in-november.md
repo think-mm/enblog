@@ -2,7 +2,7 @@
 Title: Terror in November
 Tags:
   - terrorism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-15 15:13:06 +06:00
 Updated: 2015-11-16 01:31:29 +06:00
 OldURL: 2015/11/15/terror-in-november/

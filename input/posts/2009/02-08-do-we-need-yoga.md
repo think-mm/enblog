@@ -13,7 +13,6 @@ OldURL: 2009/02/08/do-we-need-yoga/
 
 ~ *Srinivas Kakkilaya*
 
- 
 
 If you are a yoga enthusiast, it may be worthwhile asking the following questions
 
@@ -195,4 +194,10 @@ https://timesofindia.indiatimes.com/articleshow/1042573.cms</a></li>
 	<li>Sharma VP. Yoga Therapy in Practice: <em>Pranayama </em>Can Be Practiced Safely <em>International Journal of Yoga Therapy</em> 2007;17:75-79</li>
 	<li>David Shapiro. Is the Yoga World Ready? An Academic Perspective. <em>International Journal of Yoga Therapy</em> 2006;16:7-8</li>
 </ol>
-<hr />Dr. B. Srinivas Kakkilaya is a rationalist writes from Mangaluru, India. He can be reached at <a href="mailto:skakkilaya@gmail.com">skakkilaya@gmail.com</a> . His previous article in Mukto-Mona was : <a href="https://enblog.muktomona.com/?p=96">Cow's Excreta as Medicine: Insult to Humanity</a>
+
+Previous Article: *[Cow's Excreta as Medicine: Insult to Humanity](../2009/01-27-cows-excreta-as-medicine-insult-to-humanity)*
+
+----
+*Dr. B. Srinivas Kakkilaya* 
+- A rationalist writes from Mangaluru, India
+- Can be reached at *skakkilaya at gmail dot com*

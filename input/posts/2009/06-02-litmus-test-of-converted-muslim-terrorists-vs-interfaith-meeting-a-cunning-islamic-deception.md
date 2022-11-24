@@ -1,11 +1,9 @@
 ---
 Title: Litmus test of Converted Muslim terrorists vs. Interfaith Meeting - A cunning Islamic deception!
 Tags:
-  - converted muslim terrorists vs. interfaith meeting
-  - religion
   - terrorism
   - Syed Kamran Mirza
-Published: 2009-06-02 11:13:48 +06:00
+Published: 2009-06-01 21:13:48 -08:00
 Updated: 2009-07-15 07:16:41 +06:00
 OldURL: 2009/06/02/litmus-test-of-converted-muslim-terrorists-vs-interfaith-meeting-a-cunning-islamic-deception/
 ---
@@ -14,8 +12,7 @@ OldURL: 2009/06/02/litmus-test-of-converted-muslim-terrorists-vs-interfaith-meet
 
 <p align="center"><span style="font-family: Verdana;"> 
 <span style="color: #008000;"><strong>By Syed Kamran Mirza</strong></span>
-Mirza.syed@gmail.com
-June 1, 2009 </span>
+Mirza.syed@gmail.com </span>
 
 <span style="font-family: Verdana;">
  
@@ -86,3 +83,7 @@ Interfaith leaders denounce religious hatred in wake of terror-plot arrests
  
 3. Suspects in NY synagogue plot to be in Jail:
 <a href="https://www.reuters.com/article/domesticNews/idUSTRE54K0K620090522">https://www.reuters.com/article/domesticNews/idUSTRE54K0K620090522</a> </span>
+
+
+Additional Tags:
+  - converted muslim terrorists vs. interfaith meeting

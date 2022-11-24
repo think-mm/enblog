@@ -1,7 +1,7 @@
 ---
 Title: Justice Served - Death Sentence Upheld for Two War Criminals
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-22 03:56:16 +06:00
 Updated: 2015-11-22 08:00:52 +06:00
 OldURL: 2015/11/22/justice-served-death-sentence-upheld-for-two-war-criminals/

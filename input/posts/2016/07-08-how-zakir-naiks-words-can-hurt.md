@@ -4,7 +4,7 @@ Tags:
   - politics
   - religion
   - terrorism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-07-08 18:10:22 +06:00
 Updated: 2016-07-08 18:14:59 +06:00
 OldURL: 2016/07/08/how-zakir-naiks-words-can-hurt/

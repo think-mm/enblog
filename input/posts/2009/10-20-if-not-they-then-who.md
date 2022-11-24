@@ -3,7 +3,7 @@ Title: If not they, then who?
 Tags:
   - politics
   - economics
-  - Ripan
+  - Ripan Kumar Biswas
 Published: 2009-10-20 07:16:53 +06:00
 Updated: 2009-10-20 07:16:53 +06:00
 OldURL: 2009/10/20/if-not-they-then-who/

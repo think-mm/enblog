@@ -1,10 +1,7 @@
 ---
 Title: Claiming Our Ground
 Tags:
-  - women
-  - shabnam nadiya
-  - culture
-  - society
+  - women rights
   - Shabnam Nadiya
 Published: 2009-04-10 15:03:16 +06:00
 Updated: 2009-08-25 20:05:06 +06:00

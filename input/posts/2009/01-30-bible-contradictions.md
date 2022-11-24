@@ -3,7 +3,7 @@ Title: Bible Contradictions
 Tags:
   - christianity
   - bible contradictions
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-30 03:41:34 +06:00
 Updated: 2009-01-30 10:14:43 +06:00
 OldURL: 2009/01/30/bible-contradictions/

@@ -5,7 +5,7 @@ Tags:
   - science
   - free speech
   - freethinking
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-03-03 23:40:52 +06:00
 Updated: 2016-03-04 00:15:08 +06:00
 OldURL: 2016/03/03/machettes-fundamentalism-and-rationalism-what-does-history-tell-us-rafida-ahmed-bonyas-presentation-at-uc-riverside/

@@ -1,28 +1,24 @@
 ---
 Title: My Religious Belief
 Tags:
-  - darwin's religious belief
-  - agnostic
-  - abolished his faith
-  - celebration
   - darwin day
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-16 09:22:37 +06:00
 Updated: 2009-02-16 09:35:57 +06:00
 OldURL: 2009/02/16/my-religious-belief/
 ---
 
- 
-<h2 style="line-height: 200%;"><span style="color: #008000;">My Religious Belief</span></h2>
-<h3 style="line-height: 200%;"> <span style="color: #000080;">Charles Darwin</span></h3>
-<hr /><span style="color: #000080; font-family: Verdana;">[<strong>Moderator's note:</strong> Charles Darwin's personal view on religion caries much interest in common people. We, therefore decided to publish an important excerpt from his autobiography where he revealed his position on this sensitive topic. At Cambridge University he was proud to occupy the same rooms as had been lived in by William Palely, whose book <em>Theology</em> was the foundation text of the argument from design. But later, having voyaged to South America and Galapagos Islands on board the good ship Beagle, however, he found himself confronting the evidence of evolution by natural selection. After his <em>Origin of Species</em>, and <em>The Descent of Man</em>, Darwin felt able to be little more explicit, but the religiosity of his wife, Emma, was a continued inhabitation, and it was only in his autobiography, from which the excerpt comes, and in a few letters to trusted friends, that he admitted that his work and his life had slowly abolished his faith.</span>
+~ **Charles Darwin** 
+
+
+<hr /><span style="color: #000080; font-family: Verdana;">[<strong>Moderator's note:</strong> Charles Darwin's personal view on religion caries much interest in common people. We, therefore decided to publish an important excerpt from his autobiography where he revealed his position on this sensitive topic. At Cambridge University he was proud to occupy the same rooms as had been lived in by William Palely, whose book *Theology* was the foundation text of the argument from design. But later, having voyaged to South America and Galapagos Islands on board the good ship Beagle, however, he found himself confronting the evidence of evolution by natural selection. After his *Origin of Species*, and *The Descent of Man*, Darwin felt able to be little more explicit, but the religiosity of his wife, Emma, was a continued inhabitation, and it was only in his autobiography, from which the excerpt comes, and in a few letters to trusted friends, that he admitted that his work and his life had slowly abolished his faith.</span>
 
 <hr />
 <p align="center">This is an extract from:</p>
 
 <h3><a href="https://www.amazon.com/exec/obidos/ASIN/0393310698/thepageofreason">The Autobiography of Charles Darwin</a></h3>
 <h4>1809-1882</h4>
-<hr /><span style="font-family: Verdana;"><span style="font-size: small;">D</span>uring these two years[<a href="https://enblog.muktomona.com/wp-admin/#1">1</a>] I was led to think much about religion. Whilst on board the <em>Beagle</em> I was quite orthodox, and I remember being heartily laughed at by several of the officers (though themselves orthodox) for quoting the Bible as an unanswerable authority on some point of morality. I suppose it was the noveltry of the argument that amused them. But I had gradually come, by this time, to see that the Old Testament from its manifestly false history of the world, with the Tower of Babel, the rainbow at sign, etc., etc., and from its attributing to God the feelings of a revengeful tyrant, was no more to be trusted than the sacred books of the Hindoos, or the beliefs of any barbarian. The question then continually rose before my mind and would not be banished, -- is it credible that if God were now to make a revelation to the Hindoos, would he permit it to be connected with the belief in Vishnu, Siva, &amp;c, as Christianity is connected with the Old Testament. This appeared to me utterly incredible. </span>
+<hr /><span style="font-family: Verdana;"><span style="font-size: small;">D</span>uring these two years\[1\] I was led to think much about religion. Whilst on board the *Beagle* I was quite orthodox, and I remember being heartily laughed at by several of the officers (though themselves orthodox) for quoting the Bible as an unanswerable authority on some point of morality. I suppose it was the noveltry of the argument that amused them. But I had gradually come, by this time, to see that the Old Testament from its manifestly false history of the world, with the Tower of Babel, the rainbow at sign, etc., etc., and from its attributing to God the feelings of a revengeful tyrant, was no more to be trusted than the sacred books of the Hindoos, or the beliefs of any barbarian. The question then continually rose before my mind and would not be banished, -- is it credible that if God were now to make a revelation to the Hindoos, would he permit it to be connected with the belief in Vishnu, Siva, &amp;c, as Christianity is connected with the Old Testament. This appeared to me utterly incredible. </span>
 
 <span style="font-family: Verdana;">By further reflecting that the clearest evidence would be requisite to make any sane man believe in the miracles by which Christianity is supported, -- that the more we know of the fixed laws of nature the more incredible do miracles become, -- that the men at that time were ignorant and credulous to a degree almost incomprehensible by us, -- that the Gospels cannot be proved to have been written simultaneous with the events, -- that they differ in many important details, far too important as it seemed to me to be admitted as the usual inaccuracies of eyewitnesses; -- by such reflections as these, which I give not as having the least novelty or value, but as they influenced me, I gradually came to disbelieve in Christianity as a divine revelation. The fact that many false religions have spread over large portions of the earth like wild-fire had some weight on me. Beautiful as is the morality of the New Testament, it can hardly be denied that its perfection depends in part on the interpretation which we now put on metaphors and allegories. </span>
 
@@ -30,7 +26,7 @@ OldURL: 2009/02/16/my-religious-belief/
 
 <span style="font-family: Verdana;">And this is a damnable doctrine[<a href="https://enblog.muktomona.com/wp-admin/#2">2</a>] </span>
 
-<span style="font-family: Verdana;">Although I did not think much about the existence of a personal God until a considerably later period of my life, I will here give the vague conclusions to which I have been driven. The old argument of design in nature, as given by Paley, which formerly seemed to me so conclusive, fails, now that the law of natural selection has been discovered. We can no longer argue that, for instance, the beautiful hinge of a bivalve shell must have been made by an intelligent being, like the hinge of a door by man. There seems to be no more design in the variability of organic beings and in the action of natural selection, than in the course the wind blows. Everything in nature is the result of fixed laws. But I have discussed this subject at the end of my book on the <em>Variation of Domestic Animals and Plants</em>[<a href="https://enblog.muktomona.com/wp-admin/#3">3</a>], and the argument there given has never, as far as I can see, been answered. </span>
+<span style="font-family: Verdana;">Although I did not think much about the existence of a personal God until a considerably later period of my life, I will here give the vague conclusions to which I have been driven. The old argument of design in nature, as given by Paley, which formerly seemed to me so conclusive, fails, now that the law of natural selection has been discovered. We can no longer argue that, for instance, the beautiful hinge of a bivalve shell must have been made by an intelligent being, like the hinge of a door by man. There seems to be no more design in the variability of organic beings and in the action of natural selection, than in the course the wind blows. Everything in nature is the result of fixed laws. But I have discussed this subject at the end of my book on the *Variation of Domestic Animals and Plants*[<a href="https://enblog.muktomona.com/wp-admin/#3">3</a>], and the argument there given has never, as far as I can see, been answered. </span>
 
 <span style="font-family: Verdana;">But passing over the endless beautiful adaptions which we everywhere meet with, it may be asked how can the generally beneficient arrangement of the world be accounted for? Some writers indeed are so much impressed with the amount of suffering in the world that they doubt if we look to all sentinent beings, whether there is more of misery or of happiness; -- whether the world as a whole is a good or a bad one. According to my judgement happiness decidedly prevails, though this would be very difficult to prove. If the truth of this conclusion be granted, it harmonises well with the effects which we might expect from natural selection. If all the individuals of any species were habitually to suffer to an extreme degree they would neglect to propagate their kind; but we have no reason to believe that this have ever or at least often occured. Some other considerations, moreover, lead to the belief that all sentinent beings have been formed so as to enjoy, as a general rule, happiness. </span>
 
@@ -46,15 +42,9 @@ OldURL: 2009/02/16/my-religious-belief/
 
 <span style="font-family: Verdana;">Another source of conviction in the existance of God connected with the reason and not the feelings, impresses me as having much more weight. This follows from the extreme difficulty or rather impossibility of conceiving this immense and wonderful universe, including man with his capability of looking far backwards and far into futurity, as the result of blind chance or necessity. When thus reflecting I feel compelled to look at a first cause having an intelliegent mind in some degree analogous to that of man; and I deserve to be called a theist. </span>
 
-<span style="font-family: Verdana;">This conclusion[<a href="https://enblog.muktomona.com/wp-admin/#6">6</a>] was strong in my mind about the time, as far I can remember, when I wrote the <em>Origin of species</em>; and it is since that time that it has very gradually with many fluctuations become weaker. But then arises the doubt -- can the mind of man, which has, as I fully believe, been developed from a mind as low as the possessed by the lowest animal, be trusted when it draws such a grand conclusions? May not these be the result of the connection between cause and effect which strikes us as a necessary one, but probably depends merely on inherited experience? Nor must we overlook the probability of the constant inculcation in a belief in God on the minds of children producing so strong and perhaps an inherited effect on their brains not yet fully developed, that it would be as difficult for them to throw off their belief in God, as for a monkey to throw off its instinctive fear and hatred of a snake.[<a href="https://enblog.muktomona.com/wp-admin/#7">7</a>] </span>
+<span style="font-family: Verdana;">This conclusion[<a href="https://enblog.muktomona.com/wp-admin/#6">6</a>] was strong in my mind about the time, as far I can remember, when I wrote the *Origin of species*; and it is since that time that it has very gradually with many fluctuations become weaker. But then arises the doubt -- can the mind of man, which has, as I fully believe, been developed from a mind as low as the possessed by the lowest animal, be trusted when it draws such a grand conclusions? May not these be the result of the connection between cause and effect which strikes us as a necessary one, but probably depends merely on inherited experience? Nor must we overlook the probability of the constant inculcation in a belief in God on the minds of children producing so strong and perhaps an inherited effect on their brains not yet fully developed, that it would be as difficult for them to throw off their belief in God, as for a monkey to throw off its instinctive fear and hatred of a snake.[<a href="https://enblog.muktomona.com/wp-admin/#7">7</a>] </span>
 
-<span style="font-family: Verdana;">I cannot pretend to throw the least light on such abstruse problems. The mystery of the beginning of all things is insoluble to us; and I for one must be content to remain an Agnostic. </span>
-
- 
-
- 
-
- 
+<span style="font-family: Verdana;">I cannot pretend to throw the least light on such abstruse problems. The mystery of the beginning of all things is insoluble to us; and I for one must be content to remain an Agnostic. </span> 
 
  
 <h2>Notes</h2>
@@ -64,23 +54,29 @@ Notes marked F.D., were written for the original edition by Charles Darwin's son
 <ol>
 	<li>October 1836 to January 1839. -- F.D. </li>
 	<li>Mrs Darwin annotated this passage (from "and have never since doubted"... to "damnable doctrine") in her own handwriting. She writes: -- "I should dislike the passage in brackets to be published. It seems to me raw. Nothing can be said too severe upon the doctrine of everlasting punishment for disbelief -- but very few now wd. call that 'Christianity,' (tho' the words are there.) There is the question of verbal inspiration comes in too. E.D." Oct 1882. This was written six months after her husband's death, in a second copy of the Autobiography in Francis's handwriting. The passage was not published. -- N.B. </li>
-	<li>My father asks whether we are to believe that the forms are preordained of the broken fragments of rock which are fitted together by man to build his houses. If not, why should we believe that the variations of domestic animals or plants are preordained for the sake of the breeder? "But if we give up the principle in one case, ... no shadow of reason can be assigned for the belief that variations alike in nature and the result of the same general laws, which have been the groundwork through natural selection of the formation of the most perfectly adapted animals in the world, man included, were intentionally and specially guided." -- <em>Variations of Animals and Plants</em>, 1st Edit. vol. ii. p. 431 -- F.D. </li>
+	<li>My father asks whether we are to believe that the forms are preordained of the broken fragments of rock which are fitted together by man to build his houses. If not, why should we believe that the variations of domestic animals or plants are preordained for the sake of the breeder? "But if we give up the principle in one case, ... no shadow of reason can be assigned for the belief that variations alike in nature and the result of the same general laws, which have been the groundwork through natural selection of the formation of the most perfectly adapted animals in the world, man included, were intentionally and specially guided." -- *Variations of Animals and Plants*, 1st Edit. vol. ii. p. 431 -- F.D. </li>
 	<li>"together with use or habit" added later. The many corrections and alterations in this sentence show his increasing preoccupation with the possibility of other forces at work besides Natural Selection. -- N.B. </li>
 	<li>Addendum added later to end of paragraph -- N.B. </li>
 	<li>Addendum of four lines added later. In Charles MS. copy the interleaved addition is in his eldest son's hand. In Francis's copy it is in Charles own hand . </li>
 	<li>Added later. Emma Darwin wrote and asked Frank to omit this sentence when he was editing the Autobiography in 1885. The letter is as follows: -- 
 <blockquote><dd>"Emma Darwin to her son Francis 1885.My dear Frank,
 
-There is one sentence in the Autobiography which I very much wish to omit, no doubt partly because your father's opinion that <em>all</em> morality has grown up by evolution is painful to me; but also because where this sentence comes in, it gives one a sort of chock -- and would give an opening to say, however unjustly, that he considered all spiritual beliefs no higher than hereditary aversions or likings, such as the fear of monkeys towards snakes.
+There is one sentence in the Autobiography which I very much wish to omit, no doubt partly because your father's opinion that *all* morality has grown up by evolution is painful to me; but also because where this sentence comes in, it gives one a sort of chock -- and would give an opening to say, however unjustly, that he considered all spiritual beliefs no higher than hereditary aversions or likings, such as the fear of monkeys towards snakes.
 
 I think the disrespectful aspect would disappear if the first part of the conjecture was left without the illustration of the instance of monkeys and snakes. I don't think you need to consult William about this omission, as it would not change the whole gist of the Autobiograohy. I should wish if possible to avoid giving pain to your father's religious friends who are deeply attached to him, and I picture to myself the way that sentence would strike them, even those so liberal as Ellen Tollett and Laura, much more Admiral Sullivan, Aunt Caroline, &amp;c., and even the old servants.
 
- 
-
 </dd><dd>Yours, dear Frank,
  E.D."</dd></blockquote>
-This letter appeared in <em>Emma Darwin</em> by Henrietta Litchfield in the privately printed edition from the Cambridge University Press in 1904. In John Murray's public edition of 1915 it was omitted. -- N.B.
+This letter appeared in *Emma Darwin* by Henrietta Litchfield in the privately printed edition from the Cambridge University Press in 1904. In John Murray's public edition of 1915 it was omitted. -- N.B.
 
  </li>
 </ol>
 <p align="center"><span style="font-size: medium;"><a href="https://gold.mukto-mona.com/Special_Event_/Darwin_day/2009/index.htm">Darwin Day 2009</a></span></p>
+
+
+*TODO: Add references, ref links are broken*
+
+Additional Tags:
+  - darwin's religious belief
+  - agnostic
+  - abolished his faith

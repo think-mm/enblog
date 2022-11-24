@@ -3,7 +3,7 @@ Title: Statement on the murder of "Niloy Neel
 Tags:
   - niloy neel
   - activism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-08-07 23:20:44 +06:00
 Updated: 2015-08-19 01:12:44 +06:00
 OldURL: 2015/08/07/statement-on-the-murder-of-niloy-neel/

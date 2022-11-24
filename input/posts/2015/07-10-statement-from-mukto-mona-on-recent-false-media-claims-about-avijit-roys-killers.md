@@ -3,7 +3,7 @@ Title: Statement from Mukto-Mona on recent false media claims about Avijit Roy's
 Tags:
   - freethinker
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-07-10 01:40:34 +06:00
 Updated: 2015-07-10 01:40:34 +06:00
 OldURL: 2015/07/10/statement-from-mukto-mona-on-recent-false-media-claims-about-avijit-roys-killers/

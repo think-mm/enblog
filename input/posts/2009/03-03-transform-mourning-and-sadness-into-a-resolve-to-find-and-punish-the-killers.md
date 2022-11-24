@@ -3,7 +3,7 @@ Title: Transform mourning and sadness into a resolve to find and punish the kill
 Tags:
   - bdr revolt
   - bdr mutiny
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-03-03 02:19:17 +06:00
 Updated: 2009-03-03 02:19:17 +06:00
 OldURL: 2009/03/03/transform-mourning-and-sadness-into-a-resolve-to-find-and-punish-the-killers/

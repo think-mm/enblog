@@ -1,13 +1,7 @@
 ---
 Title: F/OSS - Towards a post-capitalist society
 Tags:
-  - politics
-  - science
-  - phylosophy
   - software
-  - economics
-  - open source software
-  - intellectual property
   - farhad
 Published: 2012-06-21 15:43:42 +06:00
 Updated: 2012-06-21 15:56:52 +06:00
@@ -47,3 +41,11 @@ It is true that traditionally the governing powers have always sought to preserv
 In the past transitions from one society to another, humans had more or less the possibility to see in practice the forms of the new society. Feudal economic relations developed within ancient slavery, capitalist relations within the feudal society. F/OSS could represent in some years also a kind of "model", even if partial, of a post-capitalist society, where the concepts of equality and freedom are reinforced. F/OSS proves, in practical terms, that humans can produce the most modern and advanced products without merchant relations and without a State. For the moment, only a very small minority of the world population knows what is F/OSS, even in the most developed countries. It can hardly play the role yet. But remember, Marx reflected on capitalist industrialism while living within the confines of English agrarian society. Who would have thought that the country's hundred or so factories would precipitate global industrialism?
 
 On Marx's gravestone one can read: "Philosophers have interpreted the world in different ways. The point is however to change it". F/OSS programmers are changing the world. Sooner or later they will need to have a general philosophy to understand all the dimensions and perspectives of their actions.
+
+
+Additional Tags:
+  - politics
+  - science
+  - phylosophy
+  - software
+  - economics

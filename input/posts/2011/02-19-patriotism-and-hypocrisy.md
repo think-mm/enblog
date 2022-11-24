@@ -1,18 +1,14 @@
 ---
 Title: Patriotism and Hypocrisy
 Tags:
-  - patriotism and hypocrisy
-  - www.williamgomes.org
-  - politics
   - religion
-  - freethinker
   - William Gomes
 Published: 2011-02-19 02:13:13 +06:00
 Updated: 2011-02-19 02:13:13 +06:00
 OldURL: 2011/02/19/patriotism-and-hypocrisy/
 ---
 
-<a href="https://www.williamgomes.org/?p=40">By William Gomes</a>
+<a href="https://www.williamgomes.org">By William Gomes</a>
 
 I am not a patriot. It was my answer to a prominent political personality of his questions. He asked me the Indian soldiers are killing innocent people in Indo Bangla Border, Bangladesh is failing to deal with the Indian soldiers.
 
@@ -38,4 +34,5 @@ The same divide and rule policy going on in different parts of the world. Now it
 
 A new law, new era and new world will begin when we will stand against the force of these patriots. The wall of division will fall down!
 
-Short URL: https://www.williamgomes.org/?p=40
+~ <a href="https://www.williamgomes.org">By William Gomes</a>
+Also posted in personal blog, https://www.williamgomes.org/?p=40

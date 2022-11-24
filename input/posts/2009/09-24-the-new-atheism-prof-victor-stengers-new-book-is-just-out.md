@@ -4,7 +4,7 @@ Tags:
   - richard dawkins
   - philosophy
   - science
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-09-24 00:30:06 +06:00
 Updated: 2009-09-24 07:56:33 +06:00
 OldURL: 2009/09/24/the-new-atheism-prof-victor-stengers-new-book-is-just-out/

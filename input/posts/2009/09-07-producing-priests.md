@@ -2,9 +2,6 @@
 Title: Producing Priests
 Tags:
   - india
-  - superstition
-  - gods in india
-  - politics
   - religion
   - Meera Nanda
 Published: 2009-09-07 08:20:33 +06:00
@@ -52,3 +49,9 @@ OldURL: 2009/09/07/producing-priests/
 <span style="font-size: medium; font-family: Garamond;">--------------------------------------------</span>
 
 <span style="font-size: medium; font-family: Garamond;">Meera Nanda is a philosopher of science with initial training in biology and is currently a fellow of the John Templeton Foundation, USA. She is the author of award-winning book, <em>Prophets Facing Backward: Postmodernism, Science and Hindu Nationalism</em>. Her recent book <em>The God Market: How Globalization is Making India more Hindu</em> has just been released.  This article first appeared in Frontline, July 04-17, 2009. Here the article is taken from <a href="https://www.thehindu.com/fline/fl2614/stories/20090717261403100.htm">THE HINDU</a>.</span>
+
+
+Additional Tags:
+  - india
+  - superstition
+  - gods in india

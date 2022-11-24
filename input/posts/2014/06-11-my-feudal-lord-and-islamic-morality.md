@@ -1,18 +1,17 @@
 ---
 Title: MY FEUDAL LORD' AND ISLAMIC MORALITY
 Tags:
-  - religion
-  - culture
+  - islam
+  - nonfiction
   - freethinker
-  - society
-  - women
+  - women rights
   - Bhaskar
 Published: 2014-06-11 13:44:52 +06:00
 Updated: 2014-06-22 21:51:14 +06:00
 OldURL: 2014/06/11/my-feudal-lord-and-islamic-morality/
 ---
 
-<strong>My feudal lord:</strong>
+**My feudal lord**
 
 The book 'My Feudal Lord', - written by Tehmina Durrani of Pakistan (first published in 1991) qualified to be her autobiography. Though quarter of a century old, the book is still relevant in today's Pakistan. It covered mainly the turbulent period of her second married life spanning about 15 years (from mid seventies to late eighties of last century). Tehmina was from a rich and very respectable family of Pakistan. In the book she has briefly described her childhood about the overbearing mother, father's submissiveness before mother, schooling and her first marriage. 
 
@@ -38,11 +37,10 @@ Mustafa Khar in his behind-the-bar tenure also did loom large on the life of Teh
 
 As a human being, Tehmina felt it prudent to come out openly in this book about the darker side of her personal life as a common cause for all Pakistani women like her.  The book was not any trash about 'women's lib'. Tehmina tried hard accepting all sufferings and humiliations at the hands of Mustafa Khar to save her marriage. When she could take no more, she revolted and went her own way. Any reader, not familiar with the married women's life in an outwardly civilized but male dominated feudal community of Pakistan, would get shock in almost every page of the book but would have to appreciate the mental strength and perseverance of Tehmina at the end.
 
-<strong>Islamic morality:</strong>
+**Islamic morality:**
 
 'Islamic morality' is a myth. The <em>Chaddar</em> and <em>Chardiwaari</em> used to protect 'Islamic morality' are deceptive. The term 'Islamic morality' unilaterally takes Islam to a very high level of fictitious moral purity and piousness particularly in contrast with Western world. The propagators of 'Islamic morality' describe Western world as a den of moral degradation where failed marriage, infidelity, divorce and emotional trauma to the children of divorced parents are rampant. Such one sided description projects 'Islamic morality' in an absolutely just manner and rejects the presence of all the above mentioned moral negativities in Islamic society. 
 
 The proponents 'Islamic morality' actually show a Goebbels' endeavour where publicity and faith make something untrue as true. To quote Goebbels: "It would not be impossible to prove with sufficient repetition and a psychological understanding of the people concerned that a square is in fact a circle. They are mere words, and words can be molded until they clothe ideas and disguise." The book has actually beaten the 'Islamic morality' into pulp without naming the term. It has vividly described that all the publicized immoralities of the West have been present in Pakistani feudal society. On the top of these immoralities, the legal protection for women in Pakistan in terms of their capacity to give divorce and financial claims following such divorce has been next to nothing. The second major book of Tehmina entitled 'Blasphemy' (1998) has further exposed the hypocrisy of "Islamic Morality'.
 ------------------------------------------------------------
-<strong>PS:</strong> For the information of visitors, Hina Rabbani Khar the Ex Foreign Minister of Pakistan is a niece of Mustafa Khar. Mustafa Khar's son Bilal (not from marriage with Tehsima) threw acid on the face of his wife. Tehsima took the victim to Rome where a series of surgeries were done on her. The poor woman simply could take no more and committed suicide one day by jumping from the balcony of hospital. Bilal went scot free. 
-
+**PS:** For the information of visitors, Hina Rabbani Khar the Ex Foreign Minister of Pakistan is a niece of Mustafa Khar. Mustafa Khar's son Bilal (not from marriage with Tehsima) threw acid on the face of his wife. Tehsima took the victim to Rome where a series of surgeries were done on her. The poor woman simply could take no more and committed suicide one day by jumping from the balcony of hospital. Bilal went scot free. 

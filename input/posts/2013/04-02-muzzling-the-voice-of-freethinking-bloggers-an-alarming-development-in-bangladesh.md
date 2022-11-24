@@ -1,11 +1,8 @@
 ---
 Title: Muzzling the voice of freethinking bloggers - An alarming development in Bangladesh!
 Tags:
-  - freedom of speech in bangladesh
-  - 3 atheist bloggers arrested in bangladesh
   - human rights
-  - freethinker
-  - shahbagh movement 2013
+  - blogger killing
   - A. H. Jaffor Ullah
 Published: 2013-04-02 18:28:31 +06:00
 Updated: 2013-04-03 23:08:12 +06:00
@@ -41,3 +38,11 @@ The government's ill-conceived plan to bar bloggers from posting and to incarcer
 The government should think twice before undertaking this misadventure to harass the free-spirited bloggers. They have achieved something in one-month time, which no political party in Bangladesh had achieved in their lifetime.
 
 <strong>Dr. Jaffor Ullah, a researcher and scientist pens from New Orleans, USA</strong>
+
+
+Additional Tags:
+  - freedom of speech in bangladesh
+  - 3 atheist bloggers arrested in bangladesh
+  - human rights
+  - freethinker
+  - shahbagh movement 2013

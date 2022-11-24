@@ -3,7 +3,7 @@ Title: Closet Case  - An Experience of Coming out of a Bangladeshi Girl
 Tags:
   - culture
   - society
-  - women
+  - women rights
   - activism
   - buttertoes
 Published: 2012-12-02 11:42:45 +06:00

@@ -1,7 +1,7 @@
 ---
 Title: Political Parties and Ethics
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2017-05-31 21:14:30 +06:00
 Updated: 2017-05-31 21:14:30 +06:00
 OldURL: 2017/05/31/political-parties-and-ethics/

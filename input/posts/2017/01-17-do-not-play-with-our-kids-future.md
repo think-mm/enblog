@@ -10,7 +10,7 @@ Tags:
   - human rights
   - terrorism
   - society
-  - women
+  - women rights
   - education
   - activism
   - free speech

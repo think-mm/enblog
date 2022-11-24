@@ -4,7 +4,7 @@ Tags:
   - 'education: let us think'
   - society
   - education
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-06-02 11:05:17 +06:00
 Updated: 2009-06-02 11:05:17 +06:00
 OldURL: 2009/06/02/education-let-us-think/

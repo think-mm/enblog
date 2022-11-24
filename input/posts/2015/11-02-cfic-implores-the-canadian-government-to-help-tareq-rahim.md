@@ -1,7 +1,7 @@
 ---
 Title: CFIC Implores the Canadian Government To Help Tareq Rahim
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-02 02:48:07 +06:00
 Updated: 2015-11-02 02:53:03 +06:00
 OldURL: 2015/11/02/cfic-implores-the-canadian-government-to-help-tareq-rahim/

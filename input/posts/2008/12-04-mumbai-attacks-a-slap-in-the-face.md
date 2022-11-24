@@ -3,7 +3,7 @@ Title: Mumbai Attacks - A slap in the face
 Tags:
   - terrorism
   - india
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2008-12-04 00:46:56 +06:00
 Updated: 2008-12-04 00:46:56 +06:00
 OldURL: 2008/12/04/mumbai-attacks-a-slap-in-the-face/

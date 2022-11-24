@@ -4,7 +4,7 @@ Tags:
   - darwin day celebration
   - darwin day
   - philosophy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-02-12 09:51:01 +06:00
 Updated: 2009-02-12 09:53:38 +06:00
 OldURL: 2009/02/12/darwin-day-celebration-the-international-recognition-of-darwin-science-and-humanity/

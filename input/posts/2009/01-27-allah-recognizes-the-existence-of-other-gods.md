@@ -2,7 +2,7 @@
 Title: Allah recognizes the existence of other Gods!
 Tags:
   - koran
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-27 18:48:55 +06:00
 Updated: 2009-01-27 19:21:50 +06:00
 OldURL: 2009/01/27/allah-recognizes-the-existence-of-other-gods/

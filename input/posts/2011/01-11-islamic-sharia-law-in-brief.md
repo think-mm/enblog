@@ -2,8 +2,7 @@
 Title: Islamic Sharia Law in Brief!
 Tags:
   - islam
-  - religion
-  - women
+  - women rights
   - Syed Kamran Mirza
 Published: 2011-01-07 08:49:21 -05:00
 Updated: 2011-01-11 08:49:21 +06:00

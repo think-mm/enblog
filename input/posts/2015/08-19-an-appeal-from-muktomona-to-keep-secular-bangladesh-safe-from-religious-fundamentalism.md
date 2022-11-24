@@ -8,7 +8,7 @@ Tags:
   - activism
   - arrested [blasphemous] bloggers' writings
   - avijit roy
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-08-19 01:10:32 +06:00
 Updated: 2015-09-02 12:16:10 +06:00
 OldURL: 2015/08/19/an-appeal-from-muktomona-to-keep-secular-bangladesh-safe-from-religious-fundamentalism/

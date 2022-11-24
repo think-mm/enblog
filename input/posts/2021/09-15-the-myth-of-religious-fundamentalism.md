@@ -3,13 +3,13 @@ Title: The Myth of Religious Fundamentalism 
 Tags:
   - human rights
   - secularism
-  - Hrishik Roy
+  - Guest Writer
 Published: 2021-09-15 02:47:29 +06:00
 Updated: 2021-09-15 02:47:29 +06:00
 OldURL: 2021/09/15/the-myth-of-religious-fundamentalism/
 ---
 
-<strong>By Guest Writer, Hrishik Roy</strong>
+~ *Hrishik Roy* 
 
 <span style="font-weight: 400;">What do you possibly imagine when I use the term "</span><i><span style="font-weight: 400;">religious extremists</span></i><span style="font-weight: 400;">"? Well, possibly you could be thinking of the Crusaders, RSS and even its most cancerous form in recent times ISIS. Now, of course, these are more than legitimate examples of religious extremism as these groups not only think and come to the most genocidal convictions of their faith but even act upon those convictions. But, I would like to challenge the commonly-held notion that it is only those who act upon their intents who are "religious extremists." </span>
 

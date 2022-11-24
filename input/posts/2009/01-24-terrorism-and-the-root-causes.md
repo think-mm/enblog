@@ -2,7 +2,7 @@
 Title: Terrorism and the Root Causes
 Tags:
   - terrorism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2009-01-24 02:54:34 +06:00
 Updated: 2009-01-24 02:54:34 +06:00
 OldURL: 2009/01/24/terrorism-and-the-root-causes/

@@ -1,11 +1,8 @@
 ---
 Title: Honor them before death
 Tags:
-  - honor a freedom fighter
-  - mozzafor hossain
-  - human rights
-  - society
-  - Ripan
+  - freedom fighter
+  - Ripan Kumar Biswas
 Published: 2009-07-08 21:40:54 +06:00
 Updated: 2009-07-09 10:09:26 +06:00
 OldURL: 2009/07/08/honor-them-before-death/
@@ -32,3 +29,9 @@ OldURL: 2009/07/08/honor-them-before-death/
 
 <hr />
 <p class="MsoNormal" style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"> </span><span style="font-size: medium; font-family: Garamond;"><strong>Ripan Kumar Biswas</strong> is a freelance writer based in New York. He can be reached at <a href="mailto:Ripan.Biswas@yahoo.com">Ripan.Biswas@yahoo.com</a> </span></p>
+
+
+Additional Tags:
+  - mozzafor hossain
+  - human rights
+  - society

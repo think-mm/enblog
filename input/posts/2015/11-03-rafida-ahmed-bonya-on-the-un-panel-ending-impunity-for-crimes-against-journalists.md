@@ -1,7 +1,7 @@
 ---
 Title: Rafida Ahmed Bonya on the UN panel "Ending Impunity for Crimes against Journalists
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-11-03 04:44:17 +06:00
 Updated: 2015-11-03 04:58:59 +06:00
 OldURL: 2015/11/03/rafida-ahmed-bonya-on-the-un-panel-ending-impunity-for-crimes-against-journalists/

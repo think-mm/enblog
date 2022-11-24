@@ -3,9 +3,7 @@ Title: Passing away of Suchitra Sen
 Tags:
   - culture
   - india
-  - human rights
-  - freethinker
-  - women
+  - women rights
   - A Rahman
 Published: 2014-01-17 20:26:47 +06:00
 Updated: 2014-01-17 20:26:47 +06:00
@@ -30,4 +28,3 @@ However, after all these activities, no action was taken to recover the property
 The reason for giving all these details of Suchitra Sen's property is that we must do something to recover it from the jaws of these religious zealots and convert it to a 'Suchitra Sen Museum'. There was a strong support from the Bangladeshi educated, liberal minded people which we garnered. But because of the political turmoil in Bangladesh for about a year and this particular issue having a strong religious dimension, the issue was dropped or suspended.
 
 Now the situation is right for us to pursue the case. But a strong support, both moral and material, of the overseas Bengali community who feel passionately to preserve our culture and heritage would be needed. To support this case, please list your name, your email address and the city you live in the comment section. The first step would be to produce an Open Letter to the Prime Minister of Bangladesh appealing for the recovery of the property from the clutches of religious zealots; and a copy of that letter would be sent to the Chief Minister of West Bengal. We will then pursue the case until we succeed in preserving Suchitra Sen's home as a Museum for our posterity.  
-

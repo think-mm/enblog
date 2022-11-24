@@ -4,7 +4,7 @@ Tags:
   - human rights
   - activism
   - shahbagh movement 2013
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2013-04-24 06:41:38 +06:00
 Updated: 2013-04-25 10:11:05 +06:00
 OldURL: 2013/04/24/release-the-bloggers-a-demonstration-in-front-of-press-club-is-called-on-25th-april/

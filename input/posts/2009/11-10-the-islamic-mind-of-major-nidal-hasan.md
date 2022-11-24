@@ -99,4 +99,14 @@ The Prophet set out on Thursday for the Ghazwa of Tabuk and he used to prefer to
 <div style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;">Shafi, Maulana Muhammad, Ma'ariful Qur'an (in Urdu), translated into English by Professor Muhammad Hasan Askari and Professor Muhammad Shamim; Maktaba-e-Darul-'Uloom, Karachi-14, Pakistan. Online version: <a href="https://www.islamibayanaat.com/EMQ.htm">https://www.islamibayanaat.com/EMQ.htm</a></span></div></li>
 </ul>
 <p style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;"><img src="https://muktomona.com/images/button/line.jpg" alt="" /> </span></p>
-<p style="text-align: justify;"><span style="font-size: medium; font-family: Garamond;">Abul Kasem writes from Sydney. Send your comments to <a href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a> </span></p>
+
+
+----
+*[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 
+
+- A Bengali freethinker and is a teacher by profession
+- Ccontributed in [*Leaving Islam – Apostates Speak Out*](https://www.amazon.com/Leaving-Islam-Apostates-Speak-Out/dp/1591020689) and [*Beyond Jihad – Critical Voices from Inside*](https://www.amazon.com/gp/product/1933146192)
+- Written extensively on Islam in various websites and is the author of several e-Books including: A Complete Guide to Allah, Root of Terrorism ala Islamic Style, Sex and Sexuality in Islam, Who Authored the Quran? and Women in Islam
+- Mr. Kasem lives in Sydney, Australia
+- Latest contribution is in the book [*Why We left Islam*](https://www.amazon.com/Why-We-Left-Islam-Muslims/dp/0979267102), edited by Susan Crimp et al.
+- Can be contacted at *abul88 at hotmail dot com* and *nirribilli at gmail dot com* 

@@ -3,13 +3,8 @@ Title: The Aberration of Veiling Women
 Tags:
   - religion
   - culture
-  - philosophy
-  - international
-  - human rights
   - society
-  - women
-  - education
-  - activism
+  - women rights
   - Sukhamaya Bain
 Published: 2014-08-07 04:00:09 +06:00
 Updated: 2014-09-04 17:49:31 +06:00

@@ -7,7 +7,7 @@ Tags:
   - activism
   - avijit roy
   - free speech
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2015-07-17 21:55:33 +06:00
 Updated: 2015-12-13 21:57:17 +06:00
 OldURL: 2015/07/17/you-are-not-even-worth-despising/

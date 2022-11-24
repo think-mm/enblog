@@ -8,7 +8,7 @@ Tags:
   - international
   - education
   - activism
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2014-10-16 23:36:37 +06:00
 Updated: 2014-10-17 00:52:51 +06:00
 OldURL: 2014/10/16/the-truth-behind-reza-aslans-brilliant-take-down-on-bill-maher/

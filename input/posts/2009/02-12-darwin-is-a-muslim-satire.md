@@ -3,9 +3,7 @@ Title: Darwin is a Muslim! (Satire)
 Tags:
   - evolution
   - islam
-  - darwin day celebration
   - darwin day
-  - celebration
   - Abul Kasem
 Published: 2009-02-12 15:37:03 +06:00
 Updated: 2009-05-17 09:39:41 +06:00
@@ -148,10 +146,6 @@ The Qur'an talks of LASER (deafening lightening) in 2:20, 2:55‑56, 4:154; Alla
 Darwin, Charles. <em>Origin of Species</em>. Penguin Books, 1985.
 The Holy Qur'an: <a style="color: blue; text-decoration: underline; text-underline: single;" href="https://www.usc.edu/schools/college/crcc/engagement/resources/texts/muslim/quran/">https://www.usc.edu/schools/college/crcc/engagement/resources/texts/muslim/quran/</a>
 <a style="color: blue; text-decoration: underline; text-underline: single;" href="https://en.wikipedia.org/wiki/Charles_Darwin">https://en.wikipedia.org/wiki/Charles_Darwin</a></span></span>
-
-<p class="MsoNormal"><span lang="EN-AU">--------------------------
-Abul Kasem writes from Sydney, Australia. Send your comments to <a style="color: blue; text-decoration: underline; text-underline: single;" href="mailto:nirribilli@gmail.com">nirribilli@gmail.com</a></span>
-<p class="MsoNormal"><span lang="EN-AU"> </span></p>
 
 ----
 *[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)* 

@@ -2,7 +2,7 @@
 Title: What price to pay for loving music!
 Tags:
   - freethinker
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-04-24 08:08:57 +06:00
 Updated: 2016-04-24 08:12:16 +06:00
 OldURL: 2016/04/24/what-price-to-pay-for-loving-music/

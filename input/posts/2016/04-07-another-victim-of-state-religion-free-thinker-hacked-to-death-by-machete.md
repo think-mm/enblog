@@ -1,7 +1,7 @@
 ---
 Title: Another victim of state religion, free-thinker hacked to death by machete
 Tags:
-  - Raihan Abir
+  - blogger killing
 Published: 2016-04-07 02:22:56 +06:00
 Updated: 2016-04-08 10:36:51 +06:00
 OldURL: 2016/04/07/another-victim-of-state-religion-free-thinker-hacked-to-death-by-machete/

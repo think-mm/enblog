@@ -1,7 +1,7 @@
 ---
-Title: A Guide to the Quranic Contradictions Part-3
+Title: A Guide to the Quranic Contradictions part 3
 Tags:
-  - koran
+  - koranic contradictions
   - Abul Kasem
 Published: 2009-01-18 10:29:01 +06:00
 Updated: 2009-05-17 09:40:37 +06:00

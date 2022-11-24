@@ -1,18 +1,7 @@
 ---
 Title: A world without borders
 Tags:
-  - meherjan
-  - jaya bachchan
-  - victor banerjee
-  - humayun faridee
-  - faruk wasif
-  - politics
-  - culture
-  - philosophy
-  - freethinker
-  - society
-  - women
-  - activism
+  - women rights
   - William Gomes
 Published: 2011-02-06 01:45:12 +06:00
 Updated: 2017-04-07 20:45:55 +06:00
@@ -43,3 +32,11 @@ There is always force in every where who always wants people to divide and rule,
 There was and there is people every where who always is against war and destructions. The government and evil technically forced to stop the screening of "Meherjan" but they will not be able to stop people loving each other promoting the justice and peace crossing the borders. The can stop people in border but not love. "Meherjan" is spreading love crossing the border.
 At last I want to quote the saying prominent American social reformer William Lloyd Garrison "My country is the world; my countrymen are mankind." I dream a world without borders.
 William Gomes is a Human Rights Activist and Journalist. Email:williamgomes.org@gmail.com
+
+
+Additional Tags:
+  - meherjan
+  - jaya bachchan
+  - victor banerjee
+  - humayun faridee
+  - faruk wasif

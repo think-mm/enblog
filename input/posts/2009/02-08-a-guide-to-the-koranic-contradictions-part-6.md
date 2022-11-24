@@ -1,13 +1,7 @@
 ---
-Title: A Guide to the Qur'anic Contradictions (Part -6)
+Title: A Guide to the Quranic Contradictions part 6
 Tags:
-  - islam
-  - koran
-  - contradictions
   - koranic contradictions
-  - religion
-  - culture
-  - philosophy
   - Abul Kasem
 Published: 2009-02-08 04:53:38 +06:00
 Updated: 2009-05-17 09:39:50 +06:00

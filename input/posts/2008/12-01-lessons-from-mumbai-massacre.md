@@ -11,7 +11,7 @@ OldURL: 2008/12/01/lessons-from-mumbai-massacre/
 ---
 ~ *[Abul Kasem](https://gold.mukto-mona.com/Articles/kasem/index.html)*  
 
-![Democrat Barack Obama.(AP)](../../images/2008/12-01_mlive_mubami-massacre.jpg)
+![Mumbai Massacre](../../images/2008/12-01_mlive_mubami-massacre.jpg)
 
 At last, the mayhem in Mumbai has been halted. Sadly, about two hundred Indians and about twenty-two foreigners lost their lives. The consequence of this siege by a handful of Islamist jihadists was never in doubt. The Indian commando, once again, proved beyond a shadow of doubt who reigns supreme when the Allahs soldiers face the might of the professional military. These Islamist jihadists excel in only one art—the killing of hapless, unarmed, weak, innocent civilians.
 

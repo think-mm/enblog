@@ -5,7 +5,7 @@ Tags:
   - terrorism
   - freethinker
   - blogger killings
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-04-13 04:31:26 +06:00
 Updated: 2016-04-13 04:31:27 +06:00
 OldURL: 2016/04/13/life-under-islamists-machetes-in-bangladesh/

@@ -1,7 +1,7 @@
 ---
 Title: ISIS releases new video message with renewed threats against Bangladeshi targets
 Tags:
-  - Mukto-Mona Editor
+  - MuktoMona Editor
 Published: 2016-07-06 05:40:55 +06:00
 Updated: 2016-07-06 20:26:30 +06:00
 OldURL: 2016/07/06/isis-releases-new-video-messages-with-renewed-threats-against-bangladeshi-targets/
