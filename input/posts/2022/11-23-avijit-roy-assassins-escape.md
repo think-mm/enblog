@@ -36,7 +36,8 @@ We hope the Bangladesh Government is taking this incident seriously because this
 
 ----
 ~ Guest Writer: **Md Maruf Hasan**  
-*PhD candidate, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia 
-Master, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia 
-Degree in English Language and Literature, International Islamic University Malaysia 
+*PhD candidate, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia  
+Master, Department of Usul al-Din and Comparative Religion, International Islamic University Malaysia  
+Degree in English Language and Literature, International Islamic University Malaysia  
+
 E-mail: marufenglish021 at gmail dot com*

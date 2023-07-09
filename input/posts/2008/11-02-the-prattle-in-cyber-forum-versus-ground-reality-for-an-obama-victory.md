@@ -37,4 +37,6 @@ We shall have to wait until the wee hours of November 5 to know the result.  It 
 -----
 *Dr. A.H. Jaffor Ullah* 
 
+![Jaffor Ullah Pro Pic](images/authors/a.h.jaffor_ullah.jpg) 
+
 - A researcher and columnist, writes from New Orleans, USA*
