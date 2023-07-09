@@ -7,7 +7,7 @@ Updated: 2013-02-28 09:41:04 +06:00
 OldURL: 2013/02/28/demand-of-the-awakened-bengalis-of-2013-severely-punish-the-killers-of-1971/
 ---
 
-By: Shabbir Ahmed
+By Shabbir Ahmed
 
 The people of Bangladesh went through a long struggle for their independence. It was made awfully bloody by the Pakistani military and their collaborating forces including Jamaat-i-Islami (JI). The founder of JI named Maulana Moududi of Pakistan supported the massacre of Bengalis by the Pakistani military and his followers. He and his cohorts (including Gulam Azam et al.) continued the killings in the name of protecting Islam and Pakistan. It is relevant to mention that in the past, the disgruntle Maulana (Moududi) was convicted of inciting his followers to kill the Qadiani Muslims of Pakistan. As a punishment for his crimes against humanity at that time, he was given death sentence. It was not right to pardon him under pressure from his international patrons including Saudi Arabia. This allowed him to encourage his able followers to continue targeting the Bengalis in 1971. 
 

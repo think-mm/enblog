@@ -1,5 +1,5 @@
 ---
-Title: Religion &amp; Blind-Faith
+Title: Religion & Blind-Faith
 Tags:
   - religion
   - philosophy

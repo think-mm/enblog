@@ -10,7 +10,7 @@ OldURL: 2010/01/30/an-international-seminar-on-medical-physics-associated-discip
 ---
 
 <p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><strong><em><span style="font-family: Garamond; color: #800000; font-size: medium;">AN INTERNATIONAL SEMINAR ON MEDICAL PHYSICS </span></em></strong></p>
-<p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><span style="font-family: Garamond; color: #800000; font-size: medium;">&amp; </span></p>
+<p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><span style="font-family: Garamond; color: #800000; font-size: medium;">& </span></p>
 <p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><strong><em><span style="font-family: Garamond; color: #800000; font-size: medium;">ASSOCIATED DISCIPLINES IN <span id="lw_1264872884_0" class="yshortcuts" style="border-bottom: #0066cc 1px dashed; cursor: hand;">MEDICAL SCIENCE</span> </span></em></strong></p>
 <p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><span style="font-family: Garamond; font-size: medium;">  </span></p>
 <p class="MsoNormal" style="text-align: center; margin: 0in 0in 0pt;" align="center"><span style="font-family: Garamond; color: #008000; font-size: medium;">HERE IS THE SECOND CALL FOR A INVITING TALKS/ PAPERS </span></p>

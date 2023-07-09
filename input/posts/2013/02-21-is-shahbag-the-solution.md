@@ -14,9 +14,16 @@ OldURL: 2013/02/21/is-shahbag-the-solution/
 
 The rally that was started on February 5, 2013, at the Shahbag intersection in Dhaka was against the sentences that were handed down to Abdul Quader Mollah by the International Crimes Tribunal (ICT). The organizers and the participants of the rally felt that the sentences were too light for the crimes for which he was convicted.
 
-Mr. Mollah was sentenced to life imprisonment for two charges: 1) Mass murder of (344 people) at Alobdi village, and 2) Killing and rape of Hazrat Ali Laskar and his family members. He was also sentenced to 15 years in prison for three charges: 1) Murdering a freedom fighter, Pallab, 2) Killing a pro-liberation poet, Meherunnesa, her mother and two brothers, and 3) Killing an intellectual and journalist, Khandoker Abu Taleb. On another charge, he was found not guilty.
+Mr. Mollah was sentenced to life imprisonment for two charges:  
+1. Mass murder of (344 people) at Alobdi village, and
+2. Killing and rape of Hazrat Ali Laskar and his family members.
 
-If there was any doubt about the charges, or if the evidences presented against the defendant were inadequate, the ICT should have acquitted him. If the ICT was sure enough (beyond any reasonable doubt) about the charges and the evidences to convict the defendant, it had to award him the harshest punishment available; because the crimes were indeed most heinous in nature.
+He was also sentenced to 15 years in prison for three charges:  
+1. Murdering a freedom fighter, Pallab,
+2. Killing a pro-liberation poet, Meherunnesa, her mother and two brothers, and
+3. Killing an intellectual and journalist, Khandoker Abu Taleb. On another charge, he was found not guilty.
+
+If there was any doubt about the charges, or if the evidences presented against the defendant were inadequate, the ICT should have acquitted him. If the ICT was sure enough (beyond any reasonable doubt) about the charges and the evidences to convict the defendant, it had to award him the harshest punishment available; because the crimes were indeed most heinous in nature.  
 
 The crimes for which Abdul Quader Mollah got the sentence of life in prison were similar to the crimes for which another convict, Abul Kalam Azad (Bachchu), had been sentenced to death earlier by the same ICT. Thus, the ICT seems to have failed to deliver the same standard for the two convicted criminals. It is indeed strange that the convict that was beyond the reach of the law enforcers in Bangladesh (Abul Kalam Azad) got the death sentence, whereas the convict that was under the custody of the law enforcers in Bangladesh (Abdul Quader Mollah) got life in prison. This raises several questions. Was Mr. Azad sentenced to death because that sentence would not actually be executed? Was the ICT judge functioning as a genuinely honest judge? Was the ICT judge unwilling to cause the execution of these convicts? Was the ICT judge scared to give an executable death sentence?
 

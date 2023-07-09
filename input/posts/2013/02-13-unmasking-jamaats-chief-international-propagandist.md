@@ -38,7 +38,6 @@ The adage "A leopard cannot change its spots" is very much applicable to Mr. Mun
 
 A few of our cyber friends who are blog writer by their own rights have received a document (and me too!) which had exposed Mr. Munshi a big time.
 
-&nbsp;
 <p style="text-align: center;"><a href="https://enblog.muktomona.com/?attachment_id=1721" rel="attachment wp-att-1721"><img class="alignnone size-full wp-image-1721" alt="MBImunshi_jamat-e-islami-email" src="https://enblog.muktomona.com/wp-content/uploads/2013/02/MBImunshi_jamat-e-islami-email.png" width="686" height="357" /></a></p>
 <p style="text-align: center;"><a href="https://enblog.muktomona.com/wp-content/uploads/2013/02/MBImunshi_jamat-e-islami-email.png">
 Click this link for larger view</a></p>
@@ -48,12 +47,14 @@ As our young generation started to occupy Shahbag for a week nonstop, it caught 
 Mr. Munshi was probably having a sleepless night in Gulshan. He started to communicate with like-minded Jamaatis and BNP propaganda machine. In fact, he was the one who tried to put a label to the student-led <strong>movement by calling it "fascistic" in nature</strong>. He smelled "fascistic tendencies" among students' activities in Shahbag. The game of vilification got started by him in earnest. In the communication received by many secularists (is it by accident or by design?) containing Mr. Munshi's message he identified himself as "BJI International Relations".
 
 BJI probably stands for 'Bangladesh Jamaati Islami' and the content of his message is outright alarming. He writes as follows:
-<blockquote>"The Shahbag movement is apparently based on folk culture and pagan myths and also interestingly coincides with the rise of Narendra Modi in India. The Shahbag movement has certain anti-democratic tendencies and is also opposed to the rule of law and will eventually compromise with the sovereignty of Bangladesh."</blockquote>
+
+> The Shahbag movement is apparently based on folk culture and pagan myths and also interestingly coincides with the rise of Narendra Modi in India. The Shahbag movement has certain anti-democratic tendencies and is also opposed to the rule of law and will eventually compromise with the sovereignty of Bangladesh."
+
 I will let the readers draw their conclusion. However, suffice it to say that the anti-liberation force is terrified by the unfolding story of Bangladesh's student led movement.
 
 During 1971, the powerful Muslim League of Bangladesh ignored the speech of Sheikh Mujibur Rahman given on March 7, 1971, which was very close to Shahbag. And we know what happened to that political party. Is history going to repeat this time again? The BNP now knows that they missed the proverbial bus. I will not be surprised if Bangladesh's war crime tribunal gives death sentences to the deserving Razakars, then BNP and Jamaat will face the same ignominy as Muslim League, the party which is non-existent now. And what will happen to Mr. Munshi then? Let the erudite readers draw their conclusion.
 
-&nbsp;
+
 
 <strong><a href="http://groups.yahoo.com/group/mukto-mona/message/59623">Update (Feb 15, 2013 1:42 am)</a>:</strong>
 
