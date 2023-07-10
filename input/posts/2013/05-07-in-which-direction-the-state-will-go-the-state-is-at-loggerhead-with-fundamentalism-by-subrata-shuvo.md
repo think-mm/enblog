@@ -1,9 +1,8 @@
 ---
-Title: In Which Direction Will the State Go? The state is at loggerhead with Fundamentalism  [by Subrata Shuvo]
+Title: In Which Direction Will the State Go? The state is at loggerhead with Fundamentalism
 Tags:
-  - translation of subrata shuva's writeup
   - shahbagh movement 2013
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - shuborna senjuti
 Published: 2013-05-07 09:46:35 +06:00
 Updated: 2013-05-21 11:27:56 +06:00
@@ -69,3 +68,6 @@ The picture below depicts current state of the bloggers:
 <img alt="" src="https://imageshack.us/a/img829/652/55995146730308000870610.jpg" width="316" height="197" />
 
 On one hand the "Rumi Squad" called for fasting till death protest to ban Jamat-Shibir. On the other hand Islamist groups threatened to cordon the prime minister's office demanding punishment of the atheist bloggers. Five of those fasting were admitted to hospital but they came back and rejoined the protest. Can we have our demand fulfilled, can we abolish Jamat-Shibir or will we be defeated by fundamentalist politics? I don't know the answer of this question, even though I hope we will definitely succeed. The main question in front of us is whether we will make our golden Bengal another Afghanistan or an adobe for Bengalis. There's no way to be so called neutral in this issue or to deviate from this question. The time has come to decide whether the state will embrace fundamentalist power or support the progressive block to move the nation forward. Either you are pro-fundamentalist or pro-progressive. There is nothing in between.
+
+
+ref, *Translation of subrata shuva's writeup*

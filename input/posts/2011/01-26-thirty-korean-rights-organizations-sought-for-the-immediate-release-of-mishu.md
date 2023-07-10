@@ -1,7 +1,6 @@
 ---
 Title: Thirty Korean Rights organizations sought for the immediate release of Mishu
 Tags:
-  - thirty korean rights organizations sought for the immediate release of mishu
   - politics
   - human rights
   - society
@@ -12,7 +11,9 @@ OldURL: 2011/01/26/thirty-korean-rights-organizations-sought-for-the-immediate-r
 ---
 
 By William Gomes
+
 [caption id="attachment_955" align="aligncenter" width="150" caption="Korean human Rights activists on demonstration outside of Bangladesh Embassy"]<a href="https://enblog.muktomona.com/wp-content/uploads/2011/01/Korean-human-Rights-activists-on-demonastration-outside-of-Bangladesh-Embassy.jpg"><img src="https://enblog.muktomona.com/wp-content/uploads/2011/01/Korean-human-Rights-activists-on-demonastration-outside-of-Bangladesh-Embassy-150x150.jpg" alt="" width="150" height="150" class="size-thumbnail wp-image-955" /></a>[/caption]
+
 Korean Rights organization, Korean House for International Solidarity (KHIS) arranged a demonstration outside of the Embassy of the People's Republic of Bangladesh in Seoul, Korea on demand of urgent release of labor rights activist on Wednesday
 After the demonstration the organization have arranged a press conference and released a joined press statement signed by thirty different rights organizations. The joined  press statement was duly signed by the organizations  that includes Altogether, Ansan Immigrant center, Asia Pacific workers solidarity Links Korea, Catholic guri Namayanju migrant center , Korean Human Rights Research Center, Migrants center on Based catholic , committee to support Imprisoned workers , Daejeon Moyse, Daejeon Association for foreign labors, Democratic workers solidarity, Friends of  Asia ,Gumi catholic workers center , Human Rights welfare organization for migrant workers , Korean  migrant worker's human rights center ,   Korean confederation of trade unions, Korean house for International solidarity, Korean progressive labor network , Migrant labor center in gyeongsan , Migrants' trade union ,   Network for global activism , Network for migrants rights, Osan labors and migrants shelter , peoples solidarity for participatory democracy , peoples solidarity for social progress, public interest lawyers group, Pusan missionary association for foreign labor, Ronel Chakma Nai, Solidarity with migrants , Windows of Asia  and Yang San Migrant worker's house.  
 
@@ -33,8 +34,3 @@ In the statement they said "We, the Korean civil and union groups, strongly call
 Earlier another regional human rights organization Asian Human Rights Commission (AHRC) has issued an urgent appeal for Mishu. 
 Asian Human Rights Commission has already written separate letters to the UN Working Group on Arbitrary Detention and Special Rapporteurs on Independent of Judges and Lawyers and Violence against Women requesting their prompt interventions in this case.
 Mishu's sister Zebu said I am really pleased to know that Korean people stand by the side of Mishu. I am very thankful to the Korean rights organizations and to the Korean people. This demand is an example of love of Korean people towards Mishu and towards the suppressed workers and workers movement in Bangladesh. My sister is very sick; I demand the immediate release of her. 
-
- 
-
- 
-

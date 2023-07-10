@@ -4,7 +4,7 @@ Tags:
   - politics
   - religion
   - freethinker
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - Bhaskar
 Published: 2014-04-07 10:33:12 +06:00
 Updated: 2014-04-11 08:57:41 +06:00

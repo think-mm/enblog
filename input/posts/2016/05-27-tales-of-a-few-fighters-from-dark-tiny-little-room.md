@@ -3,7 +3,7 @@ Title: Tales of a few fighters from dark tiny little room
 Tags:
   - blogg
   - activism
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - blogger killings
   - bangladeshi bloggers
   - Subrata Shuvo

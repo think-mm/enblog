@@ -4,7 +4,7 @@ Tags:
   - international
   - human rights
   - freethinker
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - avijit roy
   - blogger killings
   - Subrata Shuvo

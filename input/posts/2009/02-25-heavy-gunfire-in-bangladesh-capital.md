@@ -1,14 +1,13 @@
 ---
 Title: Heavy gunfire in Bangladesh capital
 Tags:
-  - heavy gunfire in bangladesh capital
   - MuktoMona Editor
 Published: 2009-02-25 13:43:52 +06:00
 Updated: 2009-02-25 13:43:52 +06:00
 OldURL: 2009/02/25/heavy-gunfire-in-bangladesh-capital/
 ---
 
- 
+
 <table id="table4" style="display: inline;" border="0" cellspacing="0" cellpadding="0" align="right">
 <tbody>
 <tr>
@@ -16,7 +15,7 @@ OldURL: 2009/02/25/heavy-gunfire-in-bangladesh-capital/
 <table id="table5" style="width: 33px; border-collapse: collapse;" border="0" cellspacing="0" cellpadding="0">
 <tbody>
 <tr>
-<td><img src="https://muktomona.com/mritems/Images//2009/2/25/200922564736817734_5.jpg" alt="" /></td>
+<td><img src="https://mm-gold.azureedge.net/mritems/Images//2009/2/25/200922564736817734_5.jpg" alt="" /></td>
 </tr>
 <tr>
 <td align="center"><span style="font-size: 10px; font-family: Verdana;"><strong>Fighting reportedly broke out after a meeting between junior and senior army officers [AFP]</strong></span></td>

@@ -3,12 +3,8 @@ Title: Control' Is Not Bad, Especially When We Are Dealing With 'Guns'!
 Tags:
   - usa
   - gun control
-  - second amendment
-  - mass killing
-  - sandy hook elementary school in newtown shooting
   - avijit english
   - politics
-  - international
   - terrorism
   - society
   - Avijit Roy
@@ -66,11 +62,12 @@ No sane person would like to see this happen.
 I would like to draw a parallel here to the 1996 shooting in Scotland, in which a 43 year old man first killed 16 kindergarteners and their teacher before proceeding to kill himself. That shooting forced official government enquiry and eventually led to the banning of private ownership of handguns in the United Kingdom. If such a similar occurrence in the United Kingdom can completely alter gun policy laws, then why should the same reformation ideas be dismissed in the United States?
 
 To conclude, let us remember and learn from Bob Dylan's compelling message in his song "Blowing in the wind":
-<blockquote>How many times can a man turn his head
-Pretending he just doesn't see ?
 
-Yes, how many deaths will it take till he knows
-That too many people have died ? …
-
-The answer my friend is blowin' in the wind
-The answer is blowin' in the wind.</blockquote>
+> How many times can a man turn his head  
+> Pretending he just doesn't see ?  
+>   
+> Yes, how many deaths will it take till he knows  
+> That too many people have died ? …  
+>   
+> The answer my friend is blowin' in the wind  
+> The answer is blowin' in the wind.

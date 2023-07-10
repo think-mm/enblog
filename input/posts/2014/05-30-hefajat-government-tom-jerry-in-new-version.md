@@ -6,7 +6,7 @@ Tags:
   - human rights
   - terrorism
   - shahbagh movement 2013
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - Maruf Rosul
 Published: 2014-05-30 15:28:50 +06:00
 Updated: 2014-05-30 15:28:50 +06:00

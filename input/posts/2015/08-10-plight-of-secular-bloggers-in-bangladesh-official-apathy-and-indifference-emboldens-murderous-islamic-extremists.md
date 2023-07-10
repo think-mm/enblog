@@ -8,7 +8,7 @@ Tags:
   - freethinker
   - society
   - activism
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - avijit roy
   - Guest Writer
 Published: 2015-08-10 11:35:13 +06:00

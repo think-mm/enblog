@@ -1,18 +1,15 @@
 ---
 Title: FRANKLIN'S DRAGON AND ALLAH'S HELLFIRE
 Tags:
-  - NULL
+  - islam
 Published: 2010-10-30 14:00:00 +06:00
 Updated: 2013-04-03 21:11:47 +06:00
 OldURL: 2010/10/30/franklins-dragon-and-allahs-hellfire/
 ---
 
+*Lucretius, On the nature of things (ca. 60 BC)*, 
 
-          "As children tremble and fear everything in the blind darkness, so we in the light sometimes fear what is no more to be feared than the things children in the dark hold in terror".    
-
-
-                      ---- Lucretius, On the nature of things   (ca. 60 BC)
-
+> As children tremble and fear everything in the blind darkness, so we in the light sometimes fear what is no more to be feared than the things children in the dark hold in terror.    
 
 Famous psychologist Richard Franklin (cited Sagan, 1997, p. 171) while following a group therapy approach, narrated a very interesting fictitious conversation which is as below.
 

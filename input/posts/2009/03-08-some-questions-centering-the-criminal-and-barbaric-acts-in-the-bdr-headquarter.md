@@ -3,7 +3,6 @@ Title: Some Questions Centering the Criminal and Barbaric Acts in the BDR Headqu
 Tags:
   - bdr revolt
   - bdr mutiny
-  - criminal and barbaric acts in the bdr headquarter
   - politics
   - MuktoMona Editor
 Published: 2009-03-08 01:51:32 +06:00

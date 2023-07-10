@@ -1,7 +1,6 @@
 ---
 Title: First Call for a Seminar on Medical Physics and Associated Disciplines
 Tags:
-  - seminar on biomedical engineering
   - education
   - medical physics
   - seminar

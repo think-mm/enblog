@@ -1,7 +1,7 @@
 ---
 Title: Redefining secularism
 Tags:
-  - redefining secularism
+  - secularism
   - politics
   - religion
   - Anwarul Kabir

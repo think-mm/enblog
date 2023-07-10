@@ -2,19 +2,15 @@
 Title: A drop of water
 Tags:
   - short story
-  - bonoful
-  - bengali literature
-  - translation from bengali to english
-  - literature
   - Mehedi Hassan
 Published: 2018-09-04 21:26:56 +06:00
 Updated: 2018-09-04 21:26:56 +06:00
 OldURL: 2018/09/04/a-drop-of-water/
 ---
 
-Bonoful
-
-Translated by mehedi hassan
+Bonoful  
+*translation from bengali to english*  
+Translated by mehedi hassan  
 
 It was in my knowing that the landlord of Ramganj Shambabu was a whimsical person. But I didn't even imagine that his craziness could go so far. Waking up that morning, I got an invitation letter. Shambabu invited all of our family members to his mother's funeral.  Getting the letter, I had a hesitation. Shambabu's mother had been sick and I didn't know that when I am a doctor in this area. Strange!  
 
@@ -30,5 +26,3 @@ He replied, "My mangala(blessed) cow- you know I can't even remember the time we
 Just as finished the sentence, he started to cry miserably. 
 
 My wonder didn't know any bounds. 
-
-

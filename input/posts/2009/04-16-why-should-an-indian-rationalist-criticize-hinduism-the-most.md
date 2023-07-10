@@ -2,7 +2,6 @@
 Title: Why Should an Indian Rationalist Criticize Hinduism The Most
 Tags:
   - hinduism
-  - indian rationalist criticize hinduism
   - religion
   - society
   - Meera Nanda

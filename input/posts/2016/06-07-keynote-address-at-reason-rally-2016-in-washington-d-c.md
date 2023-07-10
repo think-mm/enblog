@@ -9,7 +9,7 @@ Tags:
   - terrorism
   - freethinker
   - activism
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - blogger killings
   - free speech
   - bangladeshi bloggers

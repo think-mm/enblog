@@ -1,11 +1,9 @@
 ---
 Title: Bangladesh vs. Religious Extremists
 Tags:
-  - freedom of speech in bangladesh
   - religion
   - science
   - terrorism
-  - freethinker
   - Jawshan Ara Shatil
 Published: 2015-04-09 00:50:31 +06:00
 Updated: 2015-04-09 15:26:57 +06:00

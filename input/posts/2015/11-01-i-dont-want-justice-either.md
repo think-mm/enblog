@@ -7,7 +7,7 @@ Tags:
   - terrorism
   - freethinker
   - activism
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - avijit roy
   - blogger killings
   - free speech

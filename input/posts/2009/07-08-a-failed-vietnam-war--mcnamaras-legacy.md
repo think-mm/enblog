@@ -1,7 +1,6 @@
 ---
 Title: A failed Vietnam War — McNamara's legacy
 Tags:
-  - vietnam war
   - mcnamara
   - politics
   - international

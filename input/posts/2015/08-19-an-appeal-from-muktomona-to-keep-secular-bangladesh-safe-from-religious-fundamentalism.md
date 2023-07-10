@@ -6,7 +6,7 @@ Tags:
   - terrorism
   - freethinker
   - activism
-  - arrested [blasphemous] bloggers' writings
+  - arrested bloggers writings
   - avijit roy
   - MuktoMona Editor
 Published: 2015-08-19 01:10:32 +06:00

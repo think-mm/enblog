@@ -1,7 +1,7 @@
 ---
 Title: The absence of religion is not a religion
 Tags:
-  - 
+  - secularism
 Published: 2016-03-03 18:20:54 +06:00
 Updated: 2016-03-03 18:21:27 +06:00
 OldURL: 2016/03/03/the-absence-of-religion-is-not-a-religion/

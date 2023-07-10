@@ -1,7 +1,6 @@
 ---
 Title: Villagers tortured and woman sexually abused by police
 Tags:
-  - villagers tortured and woman sexually abused by police
   - politics
   - religion
   - human rights
@@ -65,4 +64,5 @@ Mr. Lutfor Rahman, chairman of the Forokkabad union council, described the backg
 While communicated with the high police officials regarding the matter , police officials denied to talk regarding this matter saying that the matter is under investigation. 
 Human Rights activist Dipal Barua urged to the authorities of Bangladesh to launch a thorough investigation into the matter asking them to identify the alleged perpetrators and prosecute them for the crime and the blatant misuse of police authority. He also said the victims must be protected from any further attacks or harassment by the police and any fabricated cases by the officers.
 Human Rights watchdog Asian Human Right Commission (AHRC) has already written separate letters to the UN Special Rapporteurs on Torture and Other Cruel, Inhuman or Degrading Punishment or Treatment and Violence Against Women calling for their intervention into this matter.
-https://www.modernghana.com/news/321794/1/villagers-tortured-and-woman-sexually-abused-by-po.html?utm_source=twitterfeed&amp;utm_medium=twitter
+
+ref, [modernghana.com](https://www.modernghana.com/news/321794/1/villagers-tortured-and-woman-sexually-abused-by-po.html)
