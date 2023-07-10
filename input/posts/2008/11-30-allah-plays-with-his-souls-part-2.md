@@ -54,11 +54,11 @@ Let us read in full what ibn Kathir writes on 21:91:
 >   
 >  (And she who guarded her chastity,) means, Maryam (peace be upon her). This is like the Ayah in Surah At-Tahrim:  
 >   
->  (And Maryam, the daughter of `Imran who guarded her chastity. And We breathed into it [her garment] through Our Ruh) [66:12].  
+>  (And Maryam, the daughter of `Imran who guarded her chastity. And We breathed into it [her garment] through Our Ruh) \[66:12\].  
 >   
 >  (and We made her and her son a sign for the nations. ) means, evidence that Allah is able to do all things and that He creates whatever He wills; verily, His command, when He intends a thing, is only that He says to it, "Be" — and it is! This is like the Ayah:  
 >   
-> (And (We wish) to appoint him as a sign to mankind) [19:21]
+> (And (We wish) to appoint him as a sign to mankind) \[19:21\]
 
 The above interpretation means the angel (Gabriel) implanted Allah's seed inside Mary's womb. It might seem incredible but let us read ibn Kathir's interpretation of verse 66:12 where he repeats the theme. This verse says that Mary was the daughter of Imran; she guarded her chastity (sexual organ) and was a virgin before she became pregnant through Allah; Allah breathed His spirit into Mary's body.
   
@@ -104,7 +104,7 @@ But Allah contradicts Himself. In the very next verse Allah says Jesus was His s
 
 **4:172 Maulana Asad**: Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself: (**4:173**) whereupon unto those who attained to faith and did good deeds He will grant their just rewards, and give them yet more out of His bounty; whereas those who felt too proud and gloried in their arrogance He will chastise with grievous suffering: and they shall find none to protect them from God, and none to bring them succour.
 
-Disturbed by such an imbroglios mind of Allah, one anonymous Islamist writer attempts to [distinguish between a Soul (nafs) and a Spirit (Ruh)](http://www.altway.freeuk.com/Views/View-23.htm). He writes:
+Disturbed by such an imbroglios mind of Allah, one anonymous Islamist writer attempts to [distinguish between a Soul (nafs) and a Spirit \(Ruh\)](http://www.altway.freeuk.com/Views/View-23.htm). He writes:
 
 > However, we have to distinguish Nafs (soul) from Ruh (spirit). Whereas the Spirit is a Universal principle, each person has his own soul and it can degenerate or it can be made to grow. The atrophication (sic) or development of the soul depends on the withdrawal or introduction of Spirit.
 

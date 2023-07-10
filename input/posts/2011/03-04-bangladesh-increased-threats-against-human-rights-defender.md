@@ -11,7 +11,6 @@ OldURL: 2011/03/04/bangladesh-increased-threats-against-human-rights-defender/
 <a href="https://www.modernghana.com/news/318977/1/bangladesh-increased-threats-against-human-rights-.html">By William Gomes</a>
 
 
-
 Major Mustafizur Rahman Bokul  , an army officer with the  Bangladesh Army who is  currently attached to the Bogra Cantonment of Bangladesh, has created tremendous influence on the local police and the Rapid Action Battalion, a paramilitary force reputed for extrajudicial killings, to eliminate Razzak and his family. Mr. F. M. A. Razzak, Editor of the Gonomichhil (a fortnightly newspaper) and President of Human Rights Development Centre (HRDC) based in Paikgachha upazilla (sub-district) under Khulna district, has helped a large number of victims of custodial torture to get medical treatment and fight their cases. 
 These cases mostly involve the law-enforcing agents who fabricated charges against the victims after torturing them while in arbitrary detention. He has been doing this work for the last 20 years. 
 The continuous and uncompromising stand against torture and injustice has made Razzak a target of the local police, their source, and beneficiaries of the arbitrary abuse of power by the influential segment of the locality.
@@ -23,8 +22,6 @@ One Mr. S M Amzad Hossain had made a three-years-valid mortgage deed on 5 August
 
 After Sultan's death S M Amzad Hossain initiated a land dispute case over the same land with Razzak. Finally, the case was settled by the Department of Land Settlement and Survey of the country in favour of Razzak on 20 June 2010.
 On 8 February 2011, Mr. S M Amzad Hossain had declared in a deed given to the Godaipur Purbopara Baitus Salam Mosque Management Committee that he (Amzad) owns the said land (which Amzad already lost to Razzak in a civil case) and donated it to the mosque urging them to recover the land from the possession of Razzak.
-
-
 
 The management committee of the mosque, which is headed by Mr. Abul Kashem Sarder as president, and Mr. Bodiuzzaman, as secretary and vice president Mr. Rezaul Karim, is mostly occupied by one family. The members and leaders of the mosque committee immediately started mobilizing the local people by public announcements urging that everyone has moral, religious and spiritual obligations to recover the property of the mosque. However, nobody had ever checked whether the claim made by Amzad about his so called ownership of the land was valid in terms of the question of legality or not. The leaders of the mosque management committee involved a group of people, some of whom had previously been convicted in criminal charges for possessing illegal arms and drugs and stealing, to set fire to a stock of firewood that was kept adjacent to the house of Fulzan Bibi, who is uneducated in person, and later managed to get a thumb print of Fulzan on a draft complaint, making her the complainant, to file a criminal charge for attempt to murder and arson attack on her life and property. Razzak's whole family including his elderly parents, brothers and their spouses, and his wife had been made accused in the complaint, which was registered with the Paikgachha police station, as First Information Report no. 41 (GR No. 93/2011), on 22 February 2011. Sub Inspector (SI) Mr. Idris Ali was made the Investigation Officer of the case, which was recorded by the Officer-in-Charge (OC) Enamul Haque.
 
@@ -54,4 +51,3 @@ Human rights activist and journalist expressed their concern about the growing t
 Journalists urged to Prime minister Sheikh Hasina to immedialtey identify the army officer, Major Mr. Mustafizur Rahman Bokul. They also urged to investigate the scheme behind the false allegation of attempt to murder and take action against the perpetrators by judicial officer.
 
 They also urged to provide adequate protection to Razzak and the members of his family without any further delay.
-

@@ -5,14 +5,13 @@ Tags:
   - international
   - Jahed
 Published: 2008-11-08 03:20:05 +06:00
-Updated: 2008-11-08 03:24:04 +06:00
+Updated: 2008-11-05 11:22:00 -05:00
 OldURL: 2008/11/08/youth-vote-may-have-been-key-in-obamas-win/
 ---
 
 ### Young voters had 'record turnout,' preferred Democrat by wide margin  
-~ *Melissa Dahl*
+~ *Melissa Dahl*  
 Health writer, msnbc.com  
-updated 11:22 a.m. ET, Wed., Nov. 5, 2008  
 
 Early reports are indicating that the youngest members of the country's electorate voted Tuesday in higher numbers than in the last presidential election — and they voted more Democratic. Youth turnout appears to be exceeding 2004 levels, which was itself a year with a big surge in voters ages 18 to 29.
 
@@ -56,7 +55,7 @@ Winograd says that means no decision is made without dozens of e-mails, texts or
 
 "They are naturally inclined to be unified," explains Michael D. Hais, who co-wrote "Millennial Makeover" with Winograd. "It's the way they were reared; they were reared to believe that everyone has a role to play, everybody is the same and everybody should look for group-oriented solutions."
 
-**The 'Barney' generation**
+**The 'Barney' generation** 
 Hais and Winograd share a unique opinion on why this group of young people seem to be so bent on group unity: We're now seeing the first votes cast by the "Barney" generation. Countless afternoons during their childhood, millions of Millennials sat down to watch a big purple dinosaur teach problem-solving to a diverse cast. "They all solved their problems by the end of the half hour, and they all accept one another," Hais says.
 
 Partly because of that "I love you, you love me" mindset, Hais believes that being a young Republican might not be as lonely of an existence as it sounds. Early exit polling data from CIRCLE shows that 30 percent of young voters prefer McCain, but "the way this generation operates, even though the majority of them are Democrats, Millennials, because they are much more collegial, I think will figure out a way to incorporate everybody's point of view," Hais says.

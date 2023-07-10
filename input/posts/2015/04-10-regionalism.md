@@ -22,10 +22,6 @@ Watching the suprobhat passenger coming, rest of the passengers of the turag bus
 A while later, a person wounded from the fighting escaped the place to save his life. As he was crossing over the road running, a bus ran over him. No sooner had the mob heard the bang than they stopped fighting and rushed to the spot where the injured man was lying down unconscious before the bus that had hit him. Looking at the person covered with blood, the mob became so compassionate that no one could even imagine that they had been fighting with one another. A few people's eyes even brimmed with tears, and some felt a lump in their throat. The mob signaled a passing by private car to stop. When the private car pulled over, two people got into the car with the injured man. They lay him down supine on the back-seat whereas they sat at the two corners- the injured man's head was placed on one person's lap and the legs on another person's lap. 
 
 When the private car drove off, the mob became furious again, picked up brickbats and sticks from beside the highway and started to smash the glass of the window and windscreen of the bus that had hit the man, whereupon the passenger of the bus became angry and got out of the bus, screaming at them. Right away, another riot broke out between the two mobs.    
- 
-
-
-
 
 
 

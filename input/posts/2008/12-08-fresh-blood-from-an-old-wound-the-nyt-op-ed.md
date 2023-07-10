@@ -7,7 +7,7 @@ Updated: 2008-12-08 08:55:51 -08:00
 OldURL: 2008/12/08/fresh-blood-from-an-old-wound-the-nyt-op-ed/
 ---
 
-~ *PANKAJ MISHRA*, Op-Ed Contributor
+~ *PANKAJ MISHRA*, Op-Ed Contributor  
 
 MIDWAY through last week's murderous rampage in Mumbai, one of the suspected gunmen at the besieged Jewish center called a popular Indian TV channel. Speaking in Urdu (the primary language of Pakistan and many Indian Muslims), he ranted against the recent visit of an Israeli general to the Indian-ruled section of the Kashmir Valley. Referring to the Pakistan-backed insurgency in the valley, and the Indian military response to it, he asked, "Are you aware how many people have been killed in Kashmir?"
 
