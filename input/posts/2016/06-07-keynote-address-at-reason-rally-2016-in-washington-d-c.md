@@ -1,19 +1,13 @@
 ---
-Title: keynote address at Reason Rally 2016 in Washington D.C
+Title: Keynote address at Reason Rally 2016 in Washington D.C
 Tags:
   - religion
-  - philosophy
   - international
   - science
   - human rights
-  - terrorism
-  - freethinker
-  - activism
   - arrested bloggers writings
   - blogger killings
-  - free speech
   - bangladeshi bloggers
-  - freethinking
   - Bonya Ahmed
 Published: 2016-06-07 02:46:56 +06:00
 Updated: 2016-06-13 03:55:40 +06:00
@@ -77,11 +71,13 @@ Avi wrote countless articles, blogs as well. He wrote in opposition to all kinds
 
 I know most of the mainstream national and international media covered the attacks on us as the attack on Freedom of expression, freedom of speech. But I think it is more than that.
 As my good friend Professor Nigel Hughes from UCR wrote in Huffington Post right after the attacks on us last year:
-<blockquote>they did not die only for the cause of free expression. They also died because they believed that the natural explanation of where we come from is the correct explanation; that it is factually right, that it speaks the truth. They died because they understood that what science has to tell us about the past, has direct consequences for choosing how we face the future, and that science has repeatedly proven to be the surest way to do this successfully.
 
-Yet on the very day that Roy, a U.S. citizen, was bludgeoned to death… another American stood on the floor of the US senate with a snowball in his hand, and claimed that what his gut told him was a better basis for preparing for the future than the scientific contributions of thousands of individuals, accomplished over thousands of years.
+> they did not die only for the cause of free expression. They also died because they believed that the natural explanation of where we come from is the correct explanation; that it is factually right, that it speaks the truth. They died because they understood that what science has to tell us about the past, has direct consequences for choosing how we face the future, and that science has repeatedly proven to be the surest way to do this successfully.
 
-This is why the deaths this year of these science advocates in Bangladesh….is a matter of consequence the world over. The global significance of their deaths must not be obscured behind a veil of free speech concern: they died because they understood that the risks of ignoring what science tells us are too serious to indulge political ambition clothed in a supernatural mantle, wherever it occurs.</blockquote>
+> Yet on the very day that Roy, a U.S. citizen, was bludgeoned to death… another American stood on the floor of the US senate with a snowball in his hand, and claimed that what his gut told him was a better basis for preparing for the future than the scientific contributions of thousands of individuals, accomplished over thousands of years.
+
+> This is why the deaths this year of these science advocates in Bangladesh….is a matter of consequence the world over. The global significance of their deaths must not be obscured behind a veil of free speech concern: they died because they understood that the risks of ignoring what science tells us are too serious to indulge political ambition clothed in a supernatural mantle, wherever it occurs.
+
 Beyond the direct implications like 911 or the killings of San Bernardino, we are seeing a concerning rise of assaults on rational way of life, concepts of equality and assurance of basic rights based on humanistic and Scientific understanding of the world, here at home in America too. We see presidential candidates rejecting well established theory of evolution, denying the impacts of Global warming or attempting to deny women's right to choose. These are all done in the name of religion.
 
 I think secular humanism is more important now than ever in the history of our species..
@@ -127,18 +123,24 @@ On the other hand we see a concerning trend amongst the modern Liberals and huma
 
 I think as we have come to a point in history, where it has become our responsibility, to condemn Imperialism, political and economic discriminations and exploitation globally and locally. We also have the courage to call out the ingrained religious fundamentalism including Islam defending Science and reason. We should stand up against both - not one or the other- in the name of so called 'correctness'.
 
-As humanists we need to go beyond the notions of national concerns or only political or religious concerns and understand the complicated web of global connections. This can facilitate a better understanding of today's world, transmit and mingle ideas, form a global bond of resistance against all injustice. As the philosopher Denis Diderot wrote to the Scottish philosopher David Hume <em>"I flatter myself that I am, like you, citizen of the great city of the world."  </em>Now let us all strive to be the citizens of the world.
+As humanists we need to go beyond the notions of national concerns or only political or religious concerns and understand the complicated web of global connections. This can facilitate a better understanding of today's world, transmit and mingle ideas, form a global bond of resistance against all injustice. As the philosopher Denis Diderot wrote to the Scottish philosopher David Hume *"I flatter myself that I am, like you, citizen of the great city of the world."* Now let us all strive to be the citizens of the world.
 
 <a href="https://enblog.muktomona.com/2016/06/07/the-key-note-address-at-reason-rally-2016-in-washington-d-c/13208a00-6949-4c1e-a083-1827a5cf21f0/" rel="attachment wp-att-4723"><img class="aligncenter size-full wp-image-4723" src="https://enblog.muktomona.com/wp-content/uploads/2016/06/13208a00-6949-4c1e-a083-1827a5cf21f0.jpg" alt="13208a00-6949-4c1e-a083-1827a5cf21f0" width="655" height="491" /></a>
 <p style="text-align: center">Pic: Courtesy of Faisal Sayeed Al Mutar</p>
 Thank you all for listening.
 
-&nbsp;
 
 Related Links:
 
 <a href="https://centerforinquiry.live/2016/06/05/the-rise-of-bonya-ahmed-the-reason-rally-mini-con-keynote/">e</a><a href="https://centerforinquiry.live/2016/06/05/the-rise-of-bonya-ahmed-the-reason-rally-mini-con-keynote/">nterforinquiry.live/2016/06/05/the-rise-of-bonya-ahmed-the-reason-rally-mini-con-keynote/</a>
 
-https://reasonrally.org/convention/
+https://reasonrally.org/convention
 
-&nbsp;
+
+Additional tags:
+- philosophy
+  - freethinker
+  - activism
+  - free speech
+  - freethinking
+  - terrorism

@@ -26,7 +26,7 @@ After 1933 Adolf Hitler became very tough on the Jewish community and as a resul
 
 In mid-1939 British government published a white paper which said that in the next five years 75 thousand Jewish immigrants would be settled in Palestine in phases. Furthermore, British government enrolled 32 thousand Jews into its army and trained them to fight the Arabs and Palestinians on the land of Palestine. In the meantime, Hitler's Nazi forces killed 6 million Jews in the Second World War. After 1945, a question raised as to the future home of remaining Jews who survived Hitler's holocaust. And as a follow-up of British plan, it was decided that there would be an independent homeland for the Jewish community on Palestinian soil.
 
-<img src="https://redice.tv/a/c/n/15/32964Palestine_large.ab94b306.jpg" alt="null" />
+![][https://redice.tv/a/c/n/15/32964Palestine_large.ab94b306.jpg]
 
 At around that time US president Harry Truman also very strongly raised a voice in favour of a Jewish homeland in Palestine for 100,000 Jews, who survived Second World War. Harry Truman's support gave strength to the Jewish community to create pressure on the British government to put forward the Jewish homeland issue at the United Nations. In 1947 the United Nations took a resolution (181) to create two independent nations (Israel and Palestine) for Jews and Palestinians in Palestine. In terms of population size, the Jewish community deserved only 10% of Palestine, but it was decided by the United Nations apparently propped up by UK and USA that Palestine would be divided into two equal parts for Jews and Muslims. Although Jews became very happy to have Israel as their future independent homeland, the Palestinian Muslims rejected the UN resolution denoting it as an occupation to their birthplace.
 
@@ -41,8 +41,7 @@ Afterwards, Israel grew up economically, politically and militarily with huge su
 Since then Palestine has become a territory of chronic contention, violence and war between Jews and Muslim. The unjust arrangement of the United Nations actually created major global disorder and conflict among Muslims and western nations supporting Israel.
  
 Just see how a small strip of Israel has become a great country, gradually occupying Palestinian territory with support from British and Americans. At present Palestine has been reduced to only West Bank and Gaza, nothing more, and completely besieged by Israel in regard to land, air and sea. Even these West Bank and Gaza are on the process of further occupation on the plea of Israel's security and there is no remedy from the United Nations or any western world whatsoever – let alone declaring an independent Palestine.
-The recent violence relating to the observance of Land Day is another example of Israeli killing of Palestinians. Unless an independent Palestine is in place with the release of the occupied land and a rightful authority is given to the Muslim on Jerusalem, this saga of bloodbath will never cease.
-[The writer is development worker, working at Manusher Jonno Foundation (MJF);
-Email: Shazzad@manusher.org]
+The recent violence relating to the observance of Land Day is another example of Israeli killing of Palestinians. Unless an independent Palestine is in place with the release of the occupied land and a rightful authority is given to the Muslim on Jerusalem, this saga of bloodbath will never cease.  
 
-
+[The writer is development worker, working at Manusher Jonno Foundation (MJF);  
+Email: shazzad at manusher dot org]

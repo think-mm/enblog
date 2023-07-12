@@ -8,54 +8,54 @@ Updated: 2009-07-15 07:18:42 +06:00
 OldURL: 2008/12/20/quranic-erroneous-science-and-contradictions/
 ---
 
+~ *[Syed Kamran Mirza](https://gold.mukto-mona.com/Articles/skm/index.html)*  
 
-<p align="center" class="MsoNormal"><font size="5"><a href="https://gold.mukto-mona.com/Articles/skm/index.html">Syed Kamran Mirza</a></font></p>
 This essay with some samples of Quranic contradictions and erroneous science has been prepared to rebut wishful Islamists who are claiming science in Quran. Qur'an has numerous scientific flaws, historical, ethical, and logical contradictions, though Mullahs and many western educated Islamists always claim that Quran is infallible and immutable words of God. To disprove their dishonest and deceitful claim—I have compiled some Quranic contradictions and serious scientific flaws in this essay by using authentic Quranic verses and Sahi hadiths, hence categorically proved that Qur'an was man made book.   
 
-<dl><dt><font face="Verdana">**Making up Science** </font></dt></dl><font face="Verdana">All wishful apologists usually take selective (pick & choose) verses, taking part of the verse, sometimes by changing the actual words, adding non-existing words etc, they intentionally twist or manipulate the commonly accepted meanings of verses—to prove science in Quran. As usual, these wishful Mullahs do search for the different meanings of the Arabic words and take the meaning which comes close to their justification, even though, actual sentence construction did not relate that chosen meaning/word at all. Maurice Bucailee and Prof. Keith Moore did exactly what I have just described above.   
+**Making up Science**  
+All wishful apologists usually take selective (pick & choose) verses, taking part of the verse, sometimes by changing the actual words, adding non-existing words etc, they intentionally twist or manipulate the commonly accepted meanings of verses—to prove science in Quran. As usual, these wishful Mullahs do search for the different meanings of the Arabic words and take the meaning which comes close to their justification, even though, actual sentence construction did not relate that chosen meaning/word at all. Maurice Bucailee and Prof. Keith Moore did exactly what I have just described above.
+
 
 **Translation and interpretation Problems**  
 
 Mullahs and most blind defenders of Quran usually blame the translation of Quran from original Arabic. They will say, translator distorted the verse/verses which was correct in it's original Arabic etc. And they will insist that, certain verse or verses are only understood by Allah Himself, and human being have limited knowledge, so they should not understand Allah's mystery (Qudroot). And they will insist that Quran should be read with the help of Tafsirs (interpretations) by famous Islamic scholars. But, interestingly Allah told the different things in Quran. Allah asked Muslims to believe Quran's literal meaning and clearly forbade any interpretations of Allah's eternal divine words. Quranic verse: 3:7—clearly prohibited to accept anybody's interpretation of Allah's eternal words. Please read this verse below:   
-<blockquote><font face="Verdana">[Quran-3:7] "He it is Who has revealed the Book to you; some of its verses are clear and decisive, they are the basis of the Book, and others are allegorical; then as for those in whose hearts there is perversity they follow the part of it which is allegorical, seeking to mislead and seeking to give it (their own) interpretation. but none knows its interpretation except Allah, and those who are firmly rooted in knowledge say: We believe in it, it is all from our Lord; and none do mind except those having understanding."</font></blockquote>
+
+_\[Quran-3:7\], 
+
+> He it is Who has revealed the Book to you; some of its verses are clear and decisive, they are the basis of the Book, and others are allegorical; then as for those in whose hearts there is perversity they follow the part of it which is allegorical, seeking to mislead and seeking to give it (their own) interpretation. but none knows its interpretation except Allah, and those who are firmly rooted in knowledge say: We believe in it, it is all from our Lord; and none do mind except those having understanding.
+
 Allah says in Quran that, "I made Qur'an very clear, simple and easy and written in Arabic (44:58, 54:22, 54:32, 54:40) so that Muslims (Arabs of course) can understand very easily?" Please listen what Merciful Allah says in Qur'an: " But We have indeed made the Qur'an easy to understand and remember: then is there any that will receive admonition? (54:22); and "We have made it a Qur'an in Arabic, that ye may be able to understand and learn wisdom (43:3)". Allah emphatically declared that He made Quran very easy so that Muslims can understand very easily.  
 
 No where in the Quran Allah says that my words must be read with the help of Quranic interpretations and commentaries! Quranic Interpretations and Tafsirs have been invented by some wishful educated Mullahs only to hide Quranic absurdities and contradictions. In fact, Quranic verses are mostly simple to understand and any elementary student can understand very easily. Therefore, claiming that Quran is difficult to understand is ludicrous and lame excuse only to hide Allah's myriads of inanities and flaws.  
 
 Below, I have produced some actual and internationally accepted translated Quranic verses (without any change by me) to prove that, Quran do not have any scientific theory as some apologists claim. Rather, Qur'an contains many historical, ethical, logical contradictions and myriads of scientific flaws.  
-<p class="SmallText"><font face="Verdana">[**Special note:** Quranic ayats were taken from Maulana A. Yousuf Ali's English translations of Holy Quran. Maulan Yousuf Ali's translations are internationally accepted as authentic & unbiased. Some of the recent Quranic translation has biased interpretations and word changing (pick & choose) to match with the utopia of science in Quran. Readers may be informed that, the Quranic translation by Maulana A. Yousuf Ali is considered most reliable & Authentic by most Islamic Scholars throughout the world. Hadiths were taken from Bukhari Sharif (Sahih).]</font></p>
 
-<p class="SmallText"><font face="Verdana">
-**<span style="font-size: 11pt">A. Some Cosmological Flaws: (Scientific contradictions)</span>**  
+
+\[Special note: Quranic ayats were taken from Maulana A. Yousuf Ali’s English translations of Holy Quran. Maulan Yousuf Ali’s translations are internationally accepted as authentic & unbiased. Some of the recent Quranic translation has biased interpretations and word changing (pick & choose) to match with the utopia of science in Quran. Readers may be informed that, the Quranic translation by Maulana A. Yousuf Ali is considered most reliable & Authentic by most Islamic Scholars throughout the world. Hadiths were taken from Bukhari Sharif (Sahih).\]
+
+
+**A. Some Cosmological Flaws: (Scientific contradictions)**  
 
 (1) *God created the Heaven first or, the Earth first (?)*  
 
 Which one was created first? As you will see in the verses below, Allah at one time says that Earth was created first and another time He says that the Heaven was created first.   
-<blockquote><font face="Verdana">[Quran-2:29]: It is He who hath created for you all things that are on Earth; THEN He turned to the Heaven and made them into seven firmaments (Skies)….   
 
-[Quran- 79:27-30]: Are you the harder to create, or is the heaven that He built ? He raised the height thereof and ordered it; and He has made dark the night thereof, and He brought forth the morning thereof. And after that, He spread (flattened) the earth.</font></blockquote>
+> \[Quran-2:29\]: It is He who hath created for you all things that are on Earth; THEN He turned to the Heaven and made them into seven firmaments (Skies)….  
+> 
+> \[Quran- 79:27-30\]: Are you the harder to create, or is the heaven that He built ? He raised the height thereof and ordered it; and He has made dark the night thereof, and He brought forth the morning thereof. And after that, He spread (flattened) the earth.  
+
 Now, does it match modern science? Do you believe that, Earth was created first, and after that, God created Heaven? Does modern science tell us that?  
 
-(2) *Numerical contradictions *  
+(2) *Numerical contradictions*  
 
 There are many numerical contradictions in the Quran. God cannot make an error in doing simple calculations.
 How many days did it take to create Heavens and Earth?   
-<blockquote>
-<ol>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Your guardian-Lord is Allah who created the heavens and earth in Six Days [Quran 7:54] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Verily your Lord is Allah, who created the heavens and earth in Six Days [Quran 10:3] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He it is Who created the heavens and earth in Six Days [Quran 11:7] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He Who created the heavens and earth and all that is between, in Six Days [Quran 25:59] </font></p>
-</li>
-</ol>
-</blockquote>
+
+> 1. Your guardian-Lord is Allah who created the heavens and earth in Six Days [Quran 7:54]
+> 2. Verily your Lord is Allah, who created the heavens and earth in Six Days [Quran 10:3]
+> 3. He it is Who created the heavens and earth in Six Days [Quran 11:7]
+> 4. He Who created the heavens and earth and all that is between, in Six Days [Quran 25:59]
+
 The above verses clearly state that God (Allah) created the heaven and the Earth in 6 days. But the verses below stated:   
 <blockquote>
 <ol>
@@ -485,30 +485,36 @@ The contradictions I have illustrated in this article are only some samples, and
 In Bengali society there is a proverb: *"Ka baalte Kalikatta buz'en"* (you understand Calcutta when 'C' is uttered). But in this subject of Quranic interpretation, wishful Mullahs make "Ka" not just (only) Kalikatta, they can make Bombay, Madras, Delhi, Karachi, London, New York and what not by 'Ka'. They can make almost anything to make a good match to Allah's saying. And they do not even care whether people can swallow it or not.  
 
 Finally, I maintain my assertion that Qur'an possesses many contradictions/scientific flaws, ethical, historical and logical blunders and of course ample inconsistencies and redundancies. Yet, wishful apologists will never see what we can see, because of this great saying mentioned below:  
-<blockquote><font face="Verdana">"The mind of a bigot is like the pupil of the eye; the more light you pour upon it, the more it will contract."  -Oliver Wendell Holmes.</font></blockquote>
-<p class="MsoNormal"><span style="font-size: 12pt">  **References:**</span>**<span style="font-size: 12pt; color: black"> </span>**</p>
-<p style="margin-left: 18pt; text-indent: -18pt" class="MsoNormal"><span style="font-size: 12pt; color: black">1.<span style="font-weight: normal; font-size: 7pt; font-style: normal; font-family: Times New Roman; font-variant: normal">      </span></span><span style="font-size: 12pt; color: black" dir="ltr">Holy Qur'an (English translation and Commentary) by: Maulana Abdullah  Yousuf Ali;  Published by: Amana Corporation-1983, First Edition,  4411 41<sup>st</sup> st. Brentwood, Maryland, USA.  </span></p>
-<p style="margin-left: 18pt; text-indent: -18pt" class="MsoNormal"><span style="font-size: 12pt">2.<span style="font-weight: normal; font-size: 7pt; font-style: normal; font-family: Times New Roman; font-variant: normal">      </span></span><span style="font-size: 12pt" dir="ltr">Holy Qur'an, Bengali translation by Maulana Muhiuddin khan, Khademu Harmain Sharifain, Saudi Arabia, Madina Mannwara, 1413 Hijri.</span></p>
-<p style="margin-left: 18pt; text-indent: -18pt" class="MsoNormal"><span style="font-size: 12pt" lang="EN-AU">3.<span style="font-weight: normal; font-size: 7pt; font-style: normal; font-family: Times New Roman; font-variant: normal">      </span></span><span style="font-size: 12pt" dir="ltr">Holy Qur,an, Benagli Translation by maulana A.K.M. Fajlur Rahman Munshi,Bangladesh Taj Company, Dhaka, 1976</span></p>
-<p style="margin-left: 18pt; text-indent: -18pt" class="MsoNormal"><span style="font-size: 12pt">4.<span style="font-weight: normal; font-size: 7pt; font-style: normal; font-family: Times New Roman; font-variant: normal">      </span></span><span style="font-size: 12pt" dir="ltr">Buchari Sharif, Bengali Translation by Maulana Muhammad Mustafizur Rahman, Sulemani Printers and Publishers, Dhaka, Second edition-1999</span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">5.  William F. Campbell: The Quran and the Bible in the light of history & Science. </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">6.  The World Book Encyclopedia: Volume 19, world book, inc., Chicago, London, </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">      Sydney, Toronto </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">7.  Time Magazine: Evolution Vs. Creationism: Up From the Apes.; August 23, 1999 </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">8.  Bible, Koran and Science, Dr. Morice Buchaile, translated by Akhterul Alam, </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">     Published by the Rangpur Publications, Bangladesh, 1986.</span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">9.  <a href="https://gold.mukto-mona.com/Articles/avijit/Quran_miracle.htm">Avijit Roy:</a></span><a href="https://gold.mukto-mona.com/Articles/avijit/Quran_miracle.htmll"><span style="font-size: 12pt; font-family: Arial Black"> </span><span style="font-size: 12pt">Does the Qur'an Have any scientific Miracles?</span></a></p>
-<p class="MsoNormal"><span style="font-size: 12pt">10. <span style="color: #003300">THHuxley, *<a href="https://gold.mukto-mona.com/Articles/huxley/islam_big_bang.html" style="color: blue; text-decoration: underline; text-underline: single">Islam and the "Big Bang": A Refutation</a>*, Mukto-Mona</span></span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">11.  Big-Bang Theory : <a href="https://en.wikipedia.org/wiki/Big_Bang" style="color: blue; text-decoration: underline; text-underline: single">https://en.wikipedia.org/wiki/Big_Bang</a></span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">12. The World Book Encyclopedia: Volume 19, world book, inc., Chicago, </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">       London, Sydney, Toronto. </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">13.  A History of the Arab peoples, by Albert Hourani, the Belknap press of Harvard </span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">       University press, Cambridge, Massachusetts, 1991.</span></p>
-<p class="MsoNormal"><span style="font-size: 12pt">14.  Roots of the Western Tradition, (a short history of ancient world) by C.Warren </span></p>
-<p style="margin-left: 18pt" class="MsoNormal"><span style="font-size: 12pt"> Hollister, Library of congress cataloging-in-publication data, 6<sup>th</sup> edition, 1996.</span></p>
-<p style="margin-left: 18pt" class="MsoNormal">&nbsp;</p>
-<p style="margin-left: 18pt" class="MsoNormal"><span style="font-size: 12pt">(Updated and added by September, 2008)</span></p>
-<p style="margin-left: 18pt" class="MsoNormal">&nbsp;</p>
+**Oliver Wendell Holmes**,  
+> The mind of a bigot is like the pupil of the eye; the more light you pour upon it, the more it will contract.
+
+
+**References:**  
+1. Holy Qur'an (English translation and Commentary) by: Maulana Abdullah  Yousuf Ali; Published by: Amana Corporation-1983, First Edition,  4411 41 st. Brentwood, Maryland, USA.
+2. Holy Qur'an, Bengali translation by Maulana Muhiuddin khan, Khademu Harmain Sharifain, Saudi Arabia, Madina Mannwara, 1413 Hijri.
+3. Holy Qur,an, Benagli Translation by maulana A.K.M. Fajlur Rahman Munshi,Bangladesh Taj Company, Dhaka, 1976
+4. Buchari Sharif, Bengali Translation by Maulana Muhammad Mustafizur Rahman, Sulemani Printers and Publishers, Dhaka, Second edition-1999
+5.  William F. Campbell: The Quran and the Bible in the light of history & Science.
+6.  The World Book Encyclopedia: Volume 19, world book, inc., Chicago, London,  
+    Sydney, Toronto
+7.  Time Magazine: Evolution Vs. Creationism: Up From the Apes.; August 23, 1999
+8.  Bible, Koran and Science, Dr. Morice Buchaile, translated by Akhterul Alam,  
+    Published by the Rangpur Publications, Bangladesh, 1986.
+9. Avijit Roy - [*Does the Qur’an Have any scientific Miracles?*](https://gold.mukto-mona.com/Articles/avijit/Quran_miracle.html)
+10. THHuxley, [*Islam and the "Big Bang": A Refutation*](https://gold.mukto-mona.com/Articles/huxley/islam_big_bang.html), Mukto-Mona
+11. Big-Bang Theory: [wikipedia.org/wiki/Big_Bang](https://en.wikipedia.org/wiki/Big_Bang)
+12. The World Book Encyclopedia: Volume 19, world book, inc., Chicago,  
+  London, Sydney, Toronto.
+13. A History of the Arab peoples, by Albert Hourani, the Belknap press of Harvard  
+University press, Cambridge, Massachusetts, 1991.
+14. Roots of the Western Tradition, (a short history of ancient world) by C.Warren  
+Hollister, Library of congress cataloging-in-publication data, 6th edition, 1996.
+
+(Updated and added by September, 2008)
+
 
 ----
 Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at *mirza.syed at gmail dot com*
+
+
+[this post on internet archive for mm enblog](https://web.archive.org/web/20200808203155/http://enblog.mukto-mona.com/2008/12/11/sufisism-vs-terrorism)

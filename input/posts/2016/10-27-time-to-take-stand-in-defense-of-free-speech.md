@@ -13,7 +13,6 @@ Published: 2016-10-27 01:57:18 +06:00
 Updated: 2016-10-27 01:57:18 +06:00
 OldURL: 2016/10/27/time-to-take-stand-in-defense-of-free-speech/
 ---
-
  
 Recently on Facebook, Taslima Nasrin, our own icon of freedom, accused several Bangladeshi Newspaper editors of being cowardly for refusing the publication of an article written to commemorate the tragic murder of the Jordanian satirist and writer Nahid Hattar. I can honestly feel Miss Nasrin's frustration, but however, I personally do not think it is appropriate to hold the editors or the journalists responsible for the appalling state of free speech Bangladeshi writers and freethinkers are suffering from. 
 
@@ -49,5 +48,5 @@ It has now become apparent that the hard right religious groups are not the only
 
 The press might be vulnerable to the first, but what about the second? Isn't it a journalistic principle  to stand for free speech? Can we really afford to risk surrendering without a fight in this precious battle of liberty? 
 
-Let's finish with the view of the US supreme court judge Justice Oliver Windell Homes Jr., " if there is any principle of the constitution that more imperatively calls for attachment than any other it is the principle of free thoughts- not free thoughts for those who agree with us but freedom for the thought we hate" 
+Let's finish with the view of the US supreme court judge Justice Oliver Windell Homes Jr., "if there is any principle of the constitution that more imperatively calls for attachment than any other it is the principle of free thoughts- not free thoughts for those who agree with us but freedom for the thought we hate" 
 

@@ -9,7 +9,7 @@ Updated: 2008-12-31 07:24:22 +06:00
 OldURL: 2008/12/31/election-brief-post-update/
 ---
 
-Dear mukto-monas,  
+Dear Mukto-monas,  
 
 Here is the latest election update. The Grand Alliance: led by AL has further consolidated its position in the ensuing Parliament by securing 263 seats, more than three-fourth of the total seats (300). It is a astounding as well as astonishing victory in deed in the history of Bangladesh parliamentary election. The Awami League itself secured 232 seats which is ¾ of the total seats. Many have termed AL victory as a sweet revenge against BNP in the notorious election of 2001. In the rigged election, alleged by AL, BNP won 193 seats as against AL wining only 68 seats or so.
 
@@ -41,7 +41,7 @@ Component Parties:
 Many called the historic victory of the Grand alliance as the people's victory giving unqualified verdict on following issues,
 1. Sky-high prices of general commodities
 2. Against corruption and abuse of powers by BNP government
-3. Against war criminals and their trial. People rejected BNP for its silence on these two vital issues, moreover for their, especially its chairperson hobnobbing with the known war criminals.
+3. Against war criminals and their trial. People rejected BNP for its silence on these two vital issues, moreover for their, especially its chairperson hobnobbing with the known war criminals.  
  
 
 We think in the conflict between the forces of Islamic Fundamentalism and Islamic terrorism vs. secular-liberal democratic forces, the later emerged victorious. It is a verdict of the anti Jamat philosophy and distinctly in favour of liberalism and secularism.

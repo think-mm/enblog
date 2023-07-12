@@ -1,5 +1,5 @@
 ---
-Title: Avijit's Legacy Lives On
+Title: Legacy of Avijit Lives On
 Tags:
   - avijit roy
   - Rainer Ebert
@@ -17,3 +17,5 @@ Nobody is safe from the enemies of Bangladesh who murdered Avijit, and it would 
 Avijit lives on in the thoughts and actions of the great many people he influenced through his example, activism, and scholarship. We must not concede an inch to those who attempt to silence our voices and control our thoughts by means of violence. The best we can do to honor Avijit's memory is to read the words he left behind, and to find the courage to fight with even more determination for the freedom of expression, and thereby also for the idea, soul and future of Bangladesh.
 
 Rainer Ebert is a PhD candidate at the Department of Philosophy at Rice University in Houston, Texas, and an Associate Fellow at the Oxford Centre for Animal Ethics. He blogs at rainerebert.com.
+
+~ Rainer Ebert
