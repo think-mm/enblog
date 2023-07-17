@@ -58,17 +58,10 @@ How many days did it take to create Heavens and Earth?
 
 The above verses clearly state that God (Allah) created the heaven and the Earth in 6 days. But the verses below stated:   
 <blockquote>
-<ol>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Is it that ye deny Him who created the earth in Two Days ? [Quran-41:9] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He set on the (earth) Mountains standing firm high above it, and bestowed blessing on the earth, and measured therein all things to give them nourishment in due proportion, in FOUR DAYS… [(Quran- 41:10] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">So He completed them (heavens) as seven firmaments in Two days and… [Quran-41:12] </font></p>
-</li>
-</ol>
+- Is it that ye deny Him who created the earth in Two Days ? [Quran-41:9]
+- He set on the (earth) Mountains standing firm high above it, and bestowed blessing on the earth, and measured therein all things to give them nourishment in due proportion, in FOUR DAYS… [(Quran- 41:10]
+- So He completed them (heavens) as seven firmaments in Two days and… [Quran-41:12]
+
 </blockquote>
 ***Now do the math***: 2 (for earth) + 4 (for nourishment) + 2 (for heavens) = 8 days; and not 6 days.  
 
@@ -109,17 +102,10 @@ Adding all distributed properties add up more than the available property, i.e.,
 
 
 **Allah's Days Equal to 1000 Years or 50,000 Years (?)**  
-<ul>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Verily a day in the sight of the Lord is like a thousand years of your reckoning. [Quran 22:47] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">To Him, on a Day, the space whereof will be a thousands years of your reckoning [Quran 32:5] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">The angels and the spirit ascend unto him in a day the measure whereof is Fifty thousands years. So, which one is it ? Is the day of Allah equal to 1,000 earth years or 50,000 earth years? [Quran-70:4] </font></p>
-</li>
-</ul>
+
+- Verily a day in the sight of the Lord is like a thousand years of your reckoning. [Quran 22:47]
+- To Him, on a Day, the space whereof will be a thousands years of your reckoning [Quran 32:5]
+- The angels and the spirit ascend unto him in a day the measure whereof is Fifty thousands years. So, which one is it ? Is the day of Allah equal to 1,000 earth years or 50,000 earth years? [Quran-70:4]
 
 **(3) Fallacies on Sun-set and Sun-rise (?)**  
 
@@ -133,11 +119,11 @@ There are serious scientific errors here. Firstly, it is scientifically accepted
 **(4) A resting place for Sun: (?)**  
 
 Interestingly, wishful Mullahs claim that this resting place means the ultimate destruction of the Sun. Sorry, brothers you are dead wrong. Look what Quran says in the following Ayats:   
-<ol>
-	<li><font face="Verdana">And the sun runneth on his course for a period determined for him; that is the decree of (Him). That is the measuring of the Mighty, the Wise. [Quran-36:38] </font></li>
-	<li><font face="Verdana">And for the moon We have appointed mansions till she return like an old shriveled palm leaf. [Quran-36:39] </font></li>
-	<li><font face="Verdana">"It is not for Sun to overtake the moon, nor doth the night outstrip the day. They float each in an orbit." (This they clearly meant for the Sun and Moon only).  [Quran-36:40] </font></li>
-</ol>
+
+- And the sun runneth on his course for a period determined for him; that is the decree of (Him). That is the measuring of the Mighty, the Wise. [Quran-36:38]
+- And for the moon We have appointed mansions till she return like an old shriveled palm leaf. [Quran-36:39]
+- "It is not for Sun to overtake the moon, nor doth the night outstrip the day. They float each in an orbit." (This they clearly meant for the Sun and Moon only).  [Quran-36:40]
+
 Maulana Yousuf Ali's Tafsir:  
 <blockquote><font face="Verdana">"The Arabic word "Mustaqarr" may mean (1) a limit of time, a period determined or (2) a resting place or quiescence; (3) a dwelling place. I think, the first meaning (a time period determined) is best applicable here. But some commentators take the second (a resting place). In that case, the simile would be that of the SUN running a race while he is visible to us, and taking a rest during the night to prepare himself to renew his race the following day. His (SUN) stay with the antipodes appears to us as his period of rest.(page:1178, Sura-36,by Yousuf Ali)"</font></blockquote>
 In the Ayat above (36:39), Quran tells us that, moon gradually changes its shape and eventually (till she return like an old shriveled palm leaf) becomes very thin (wear off Moon) like dried date leaf (crescent- shaped). Only Mullahs can tell us how much sciences are in this Ayat!  
@@ -173,17 +159,10 @@ Thus, the stars are nothing but missiles to throw at devils so that they may not
 
 
 **(8) Seven heavens (seven firmaments (?)**  
-<ul>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He who created the seven heavens, one above the other….And We have adorned the lowest heaven with lamps… [Quran-67:3-5] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Do you not see how Allah has created the seven heavens one above the other, and made the moon a light in their midst, and made the Sun as a lamp. [Quran-71: 15-16] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And He completed the seven firmaments (heavens) in two days and assigned to each heaven its command; and We adorned the lower heaven with lamps (Sun), and rendered it guarded… [Quran- 41:12] </font></p>
-</li>
-</ul>
+- He who created the seven heavens, one above the other….And We have adorned the lowest heaven with lamps… [Quran-67:3-5]
+- Do you not see how Allah has created the seven heavens one above the other, and made the moon a light in their midst, and made the Sun as a lamp. [Quran-71: 15-16]
+- And He completed the seven firmaments (heavens) in two days and assigned to each heaven its command; and We adorned the lower heaven with lamps (Sun), and rendered it guarded… [Quran- 41:12]  
+ 
 Quran teaches us that there are seven heavens one above the other (in layered; there are many sahi hadiths in support of this superstitious belief) and that the stars are in the lower heaven, but the moon is in the midst of the seven heavens. How come moon is furthest object than stars? How come SEVEN firmaments (layers)? Modern science tells us that, actually there is no such thing Sky or any roof over us, it is only a space with no known boundary at all. These verses simply reinforce the ancient idea of ROOF over us which is called SKY, is not it? We know very well the word CANOPY stands for a tent in the desert, and Canopy always must have a roof over it to protect from Sun's heat.   
 
 My humble questions to the readers, please tell me how come Allah is telling us that He decorated lower heaven (Sky) by stars? Are stars situated at the lower sky? Modern science tells us that, stars are (most) furthest object from our solar system. Sun is the nearest star for us. Does Quran tell us that the SUN is also a star? Answer is a BIG NO. Allah says Sun is a lamp/torch for the earth. Am I right? Do you see how much science here?  
@@ -200,17 +179,9 @@ Modern science tells us- whole thing around the earth is space and there is no b
 
 In the following verses, Quran claims that mountains were set on the earth so that the earth never can shake when human being dwelt in it.   
 <blockquote>
-<ol>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And We have set on earth firm mountains, lest it should shake with them. [Quran- 21:31] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And he has cast the earth firm mountains lest it shake with you… [Quran-16:15] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He created the heavens without supports that you can see, and has cast onto the earth firm mountains lest it shake with you… [Quran-31:10] </font></p>
-</li>
-</ol>
+- And We have set on earth firm mountains, lest it should shake with them. [Quran- 21:31]
+- And he has cast the earth firm mountains lest it shake with you… [Quran-16:15]
+- He created the heavens without supports that you can see, and has cast onto the earth firm mountains lest it shake with you… [Quran-31:10]
 </blockquote>
 It is clearly understood that Quranic author was completely ignorant about the geological reasoning for existence of mountains. He saw that mountains are huge and heavy. So, He (Allah) thought mountains actually prevent Shaking (Earthquake) of the earth. Fact is, this particular reason for existence of mountains is a direct contradiction with modern geological knowledge. Geology proves to us that movement of tectonic plates, or earthquake itself causes mountains to be formed. Besides, we know very well that, every year several dozens of earthquakes happen on earth. Then what is the result of Allah's promise? Can we believe that, Mountains are there to prevent earthquake?  
 
@@ -218,17 +189,11 @@ It is clearly understood that Quranic author was completely ignorant about the g
 **(11) Sun and moon rotates/travels (?)**  
 
 Quran never said everything in the universe does move/rotates, but Quran always said SUN and MOON moves/travels. Quran never ever said that, the earth moves or travels. And this is an open challenge to all Mullahs to disprove my assertion. Like all other religious books, Holy Quran believed Geo-centric theory and earth was considered center of the Universe. Only recently, no more than two decades ago, scientists learned that Sun also moves through the galaxy taking all the Planets with it. Fact is Allah was not stating real Sun's movement, (which is, just one circle of Solar galaxy by 226 millions of years) but He (God) was stating Sun's daily movement which was believed for millions of years until Copernicans time. Allah's assertion of "settled place" or "an appointed time" was about the daily Sun rise and Sun setting. Following verses will prove that very clearly:   
-<ul>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">"He created the heavens and the earth (in true proportions) ; He makes the Night overlap the Day, and the Day overlap the Night; He has subjected The Sun and Moon (to his law); each one follows a course for a time appointed." Here each one clearly refers to Sun & Moon (in the previous sentence), and not everything in the Universe as wishful apologists claim. [Quran-39:5] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">"Seest thou not that Allah merges Night into Day and He merges Day into Night; That He has subjected the sun and moon (to His law), each running its course for a term (time) appointed." [Quran-31:29] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">"It is He who created The Night and Day, And the Sun and Moon; each of them Swim (float) along in its own course." [Quran-21: 33] </font></p>
-</li>
-</ul>
+
+- "He created the heavens and the earth (in true proportions) ; He makes the Night overlap the Day, and the Day overlap the Night; He has subjected The Sun and Moon (to his law); each one follows a course for a time appointed." Here each one clearly refers to Sun & Moon (in the previous sentence), and not everything in the Universe as wishful apologists claim. [Quran-39:5]
+- "Seest thou not that Allah merges Night into Day and He merges Day into Night; That He has subjected the sun and moon (to His law), each running its course for a term (time) appointed." [Quran-31:29]
+- "It is He who created The Night and Day, And the Sun and Moon; each of them Swim (float) along in its own course." [Quran-21: 33]  
+
 Ayats mentioned above could be found over and over, again and again almost in every other pages of Quran. Because, Quranic author, standing in the open Arab desert saw very well that, every morning SUN is rising from the East and gradually (appointed time or fixed time) setting to the West, and as a result, day and night follows. Allah truly mentioned this wrong knowledge (sun moving) of pre-historic people. Every time Allah mentioned sun & moon, He mentioned day & night, as if, it is due to sun's movement day and night follows. Allah also saw, both the sun and moon are traveling seemingly at the same sky area and He was amazed how come they do not collide or how come sun can not catch moon(?) That was the sun's movement Allah was talking about, which cave people could have said millions of years ago or a boy of five can say that very accurately. Is not it? Who does not see Sun's movement from east to west?
    
 
@@ -243,21 +208,12 @@ Readers Please consider the following: (a) Sahi hadiths I gave about Sun's rest 
 
 **(12) Sky/Heaven is nothing but A ROOF or Canopy over the Earth (?)**  
 
-The Quran says:  
-<ul>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And We have made the sky a roof withheld (from them). Yet they turn away from its portents. [Quran-21:32 </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">He hath created the heavens (Skies) without supports (pillars) that ye can see, and hath cast into the earth firm Mountains/Hills, so that it quake not with you; and He hath dispersed…[Quran-31:10] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And We have made the sky (heavens) as roof (canopy) well guarded… [Quran-21: 32] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Who has made the earth your couch, And the heavens (Sky) your canopy; [Quran-2: 22] </font></p>
-</li>
-</ul>
+The Quran says:    
+- And We have made the sky a roof withheld (from them). Yet they turn away from its portents. [Quran-21:32
+- He hath created the heavens (Skies) without supports (pillars) that ye can see, and hath cast into the earth firm Mountains/Hills, so that it quake not with you; and He hath dispersed…[Quran-31:10]
+- And We have made the sky (heavens) as roof (canopy) well guarded… [Quran-21: 32]
+- Who has made the earth your couch, And the heavens (Sky) your canopy; [Quran-2: 22]  
+ 
 Modern science tells us- whole thing around the earth is space and there is no boundary even we go Billions of Trillions of miles in all direction. Questions are: When there is no sky above us then how in the world, question of pillars comes? Do we really have a roof above us? Is there a canopy (Shamiaa'na) above the earth? In most Bengali translated Quran all Maulanas writes: Allah *akashke samiaana bannei-ese*. Is there anything called above or below in true sense? This verse below even confirming the idea of 'Canopy' which has no holes/windows and it is like a sealed cap over the earth which is a "couch" for mankind.   
 
 
@@ -270,20 +226,11 @@ On several previous Ayats (preceding to this verse above) were full of cautions 
    
 
 **(14) Once again Allah considered sky as roof over the earth which will break/shatter on the dooms day (?)**  
-<ul>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And the heavens (sky) Shall be broken (opened) as if there were doors opens… [Quran 78:19] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">When the Sky is cleft asunder [Quran-82:01] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">And the sky will be Rent asunder, for it will That day be flimsy (soft) [Quran-69:16] </font></p>
-</li>
-	<li>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">When the stars fall, losing their luster. [Quran-81:2] </font></p>
-</li>
-</ul>
+- And the heavens (sky) Shall be broken (opened) as if there were doors opens… [Quran 78:19]
+- When the Sky is cleft asunder [Quran-82:01]
+- And the sky will be Rent asunder, for it will That day be flimsy (soft) [Quran-69:16]
+- When the stars fall, losing their luster. [Quran-81:2]
+
 Yousuf Ali comments in his Tafsir: beautiful blue sky overhead (which we take for granted in sunshine) will be shattered to pieces. Modern science tells us that there is no such thing as roof/sky or any canopy over the earth, rather all around earth is a limitless space. Only Allah knows what will break/shattered or will get soft/flimsy or how doors will open , there is no walls, where from doors will come? In some Ayats (Quranic verses) Allah threatened kafirs by saying: "I (Allah) will throw broken pieces of sky over your head."   
 
 
@@ -311,12 +258,13 @@ What Koran said was very simple. Earth and sky (heaven-a roof over head?) was se
 
 Folklores of separating Sky (a solid roof) from the flat earth existed in Arabia! Let us examine this verse below:   
 <blockquote><font face="Verdana">"Allah is He Who raised the heavens without any pillars that ye can see; is firmly established on the throne (of authority); He has subjected the sun and the moon (to his Law)! Each one runs (its course) for a term appointed. He doth regulate all affairs, explaining the signs in detail, that ye may believe with certainty in the meeting with your Lord." [Quran-13:2, Yousuf Ali]</font></blockquote>
+
 This verse above clearly depicted the existence of superstitious belief about Earth and sky in ancient Egypt. And very clearly (wrong perceptions of course) described how Allah appointed Sun and Moon to rotate over the fixed earth to cause day and night. In fact, the idea of this above Quranic verses was originated from superstitions commonly believed by Pagans in the Middle East. Such childish or simplistic idea that the heavens and earth were once joined and then separated by the activity of Gods and Goddesses was actually derived from the ancient belief that sky they saw above their heads is a solid roof (Quran repeatedly called it roof or canopy) which mighty Allah separated by His mighty hands and hanged above without any pillars. Among the Egyptians for example, it was the involuntary separation of Geb (the Earth god) from his wife and sister Nut (the sky goddess) that was responsible for the division of the earth from the sky. The Sumerian Epic of Gilgamesh likewise describes the moment "when the heavens had been separated from the earth, when the earth had been delimited from the heavens" as a result of the separation of a sky God (An) from an earth Goddess (Ki) [THHuxley]. We can easily find the root of this above verse (13:2) made up by Allah of the Quran. Question is do we get any science in this superstitious rubbish?  
 
 
 **What is Big-bang theory?**  
 
-The Big Bang is the cosmological model of the universe that is best supported by all lines of scientific evidence and observation. The essential idea is that the universe has expanded from a primordial hot and dense initial condition at some finite time in the past and continues to expand to this day [Wikepedia]. Moreover, Big Bang in Physics refers to the explosion of SPACE-TIME SINGULARITY (not matter). Matter was not even created when Big Bang happened approximately 15 Billion years ago. Earth was formed billions of years after the Big Bang by sheer cosmic evolutionary process.   
+The Big Bang is the cosmological model of the universe that is best supported by all lines of scientific evidence and observation. The essential idea is that the universe has expanded from a primordial hot and dense initial condition at some finite time in the past and continues to expand to this day [Wikipedia]. Moreover, Big Bang in Physics refers to the explosion of SPACE-TIME SINGULARITY (not matter). Matter was not even created when Big Bang happened approximately 15 Billion years ago. Earth was formed billions of years after the Big Bang by sheer cosmic evolutionary process.   
 
 By any means, Big bang theory has been just speculated by the scientists and is accepted by the majority of the scientists, and it is yet to be proven. What happens if in the future scientists come up with different theory of creation and discard this Big-bang theory altogether? What the hell these poor Islamists will do then? Truth is Quran never spoken anything that at all fits with the hypothetical discovery of Big-Bang theory discovered by modern science. Quranic perception of parting sky from the earth was purely based on ancient superstitious belief about our mysterious universe.  
 
@@ -406,11 +354,11 @@ The above verses are only a few I have mentioned out of numerous such verses sca
 
 Many erudite Islamic pundits emphatically claim that Allah sent Quran as the super guidance for not only Muslims, but for all mankind. My questions to them are as follows:   
 <blockquote>
-<p style="margin-top: 0px; margin-bottom: 6px"><font face="Verdana">a) Could you tell us in which country on earth this super guidance is followed?</font></p>
-<p style="margin-top: 0px; margin-bottom: 6px"><font face="Verdana">b) Could you tell us if you find some man in any civilized country having sex with his slave girl, what will be your conclusion about that guy?</font></p>
-<p style="margin-top: 0px; margin-bottom: 6px"><font face="Verdana">c) Should all human kind follow this unethical Quranic guidance to day? </font></p>
+a) Could you tell us in which country on earth this super guidance is followed?
+b) Could you tell us if you find some man in any civilized country having sex with his slave girl, what will be your conclusion about that guy?
+c) Should all human kind follow this unethical Quranic guidance to day? 
 </blockquote>
-<p style="margin-top: 0px; margin-bottom: 6px"><font face="Verdana">
+
 (2) *Hilla Marriage-A curse, shame, and humiliation for women*   
 
 <dl><dt><font face="Verdana">So if a husband Divorces his wife (irrevocably), he can not, after that, re-marry her until after she has married another husband and he has divorced her. In that case there is no blame on either of them if they re-unite; provided they feel that they can keep the limits ordained by God [Quran-2:230, Yousuf Ali]. </font></dt></dl><font face="Verdana">Sahi Bukhari: #564:  
@@ -435,20 +383,20 @@ Pre-Islamic Arab Custom: Adoption of orphan/helpless child was a very popular an
 E. **Self-contradictory Quranic verses **  
 
 Which one is correct:  
-<blockquote>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• There is no Compulsion in religion…. [Quran-2:256]</font></p>
-</blockquote>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">OR</font></p>
+> There is no Compulsion in religion…. [Quran-2:256]
+
+
+OR  
 
 <blockquote>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• Fight those who do not profess the true faith (Islam) till they pay  the polltax (jiziya) with the hand of humility. [Quran-9:29]</font></p>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• Then, when the sacred months have passed, slay the idolaters wherever ye find them and take them captive, and besiege them and prepare for them each ambush…. [Quran-9:5]</font></p>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• When you meet the unbelievers in the Jihad strike off their heads…. [Quran-47:4]</font></p>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• And slay (kill) them wherever ye catch them, and turn them out from where they have turned you out such is the reward of those who suppress faith. [Quran-2:191]</font></p>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">• O Apostle! Rouse the believers to the fight…(against) unbelievers. [Quran-8: 65]</font></p>
+- Fight those who do not profess the true faith (Islam) till they pay  the polltax (jiziya) with the hand of humility. [Quran-9:29]
+- Then, when the sacred months have passed, slay the idolaters wherever ye find them and take them captive, and besiege them and prepare for them each ambush…. [Quran-9:5]
+- When you meet the unbelievers in the Jihad strike off their heads…. [Quran-47:4]
+- And slay (kill) them wherever ye catch them, and turn them out from where they have turned you out such is the reward of those who suppress faith. [Quran-2:191]
+- O Apostle! Rouse the believers to the fight…(against) unbelievers. [Quran-8: 65]
 </blockquote>
-<p style="margin-top: 0px; margin-bottom: 7px"><font face="Verdana">Very often apologetics claim that, Islam is a religion of peace and there is no compulsion. Yet, punishment of an apostate in Islam is, of course, death penalty.</font></p>
-<p style="margin-top: 0px; margin-bottom: 7px">&nbsp;</p>
+Very often apologetics claim that, Islam is a religion of peace and there is no compulsion. Yet, punishment of an apostate in Islam is, of course, death penalty.
+
 F. **Meaningless Recitation of Quranic verses**   
 
 Millions of devoutly fanatical and gullible Muslims (Arabs and non-Arabs) recite (parroting) Quranic verses at least 5 times daily. Strange thing is non-Arab Muslims do not understand the meaning of a single word at all. Yet, unlike any others, Muslims recite their Quran like '*Tantor Montor*' or '*Abra-ka-dabra*' of a magician, or like "Mantro" of a witch hunter. From the very childhood brainwashing, these Muslims were taught that reciting Holy Quran even without understanding any meaning is the best practice of worshipping Allah and can earn unlimited blessings from Allah. Therefore, these Islamic Zombies recite Quranic verses with sweet melodious voice daily, and they will also recite Quranic verses during their daily five time prayers. Even western educated highly qualified devout Muslims have no qualm or shame that they do not really understand what they are reciting from the Qur'an.  

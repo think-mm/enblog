@@ -1,5 +1,5 @@
 ---
-Title: Atrocities on Hindus in Bangladesh and the Fraudulent and Irresponsible Statement by the Foreign Minister of the Country, A. K. Abdul Momen
+Title: Atrocities on Hindus in Bangladesh
 Tags:
   - human rights
   - politics
@@ -10,9 +10,13 @@ Published: 2021-11-01 00:45:24 +06:00
 Updated: 2021-11-02 02:53:24 +06:00
 ---
 
+### Atrocities on Hindus in Bangladesh and the Fraudulent and Irresponsible Statement by the Foreign Minister of the Country, A. K. Abdul Momen
+
 After more than two weeks of barbaric atrocities on nonviolent and innocent Hindus by Muslim mobs in many parts of Bangladesh, the foreign minister of the country, A. K. Abdul Momen, has issued a statement in his [ministry's website](https://mofa.portal.gov.bd/site/page/6758ab52-c643-43fa-b76e-4eb99fcf5b47).
 
-The statement is full of falsehood and downplaying of the atrocities on a religious minority community, obviously with two aims: 1) to deceive the community of civilized nations and 2) to encourage the domestic Islamic fanatics by signaling that the impunity that they have historically enjoyed remains in full force.
+The statement is full of falsehood and downplaying of the atrocities on a religious minority community, obviously with two aims:
+1. to deceive the community of civilized nations and,
+2. to encourage the domestic Islamic fanatics by signaling that the impunity that they have historically enjoyed remains in full force.
 
 I was actually acquainted with Momen about three decades back in the greater Boston area, USA. He had a PhD degree and was teaching at a college in that area. I was teaching at Northeastern University at that time. However, I do not remember much about him, due to my limited interactions with him.
 
@@ -30,7 +34,7 @@ Momen talked about compensation to the victims by his government! There is a say
 
 The minister talked about the image of his government! In international politics, world powers play games with corrupt and deplorable nations, even when they have no respect for such nations. They know what Bangladesh is, even when they do not take punitive actions against that country. Lying is not how good images can be made; good images are made through good thoughts and deeds. 
 
-Momen talked about his government supporting religious activities (Puja Mondop) of Hindus in Bangladesh! <a href="https://www.thedailystar.net/bangladesh/news/hindu-bouddha-christian-oikya-parishad-discontented-over-poor-allocation-fund-proposed-budget-2101109">Here are a couple of facts.</a> The Religious Affairs Ministry of Bangladesh has an allocation of Tk 290.08 crore for religious minorities in its most recent budget. The same budget has a total of Tk 15,054.03 crore allocated (Annual Development Program, ADP) for all religious groups, including Muslims. So, the non-Muslims of the country get just 1.9%, while they represent about 10% of the population! They are deprived of 81% of their fair share!
+Momen talked about his government supporting religious activities (Puja Mondop) of Hindus in Bangladesh! [Here are a couple of facts](ttps://www.thedailystar.net/bangladesh/news/hindu-bouddha-christian-oikya-parishad-discontented-over-poor-allocation-fund-proposed-budget-2101109); The Religious Affairs Ministry of Bangladesh has an allocation of Tk 290.08 crore for religious minorities in its most recent budget. The same budget has a total of Tk 15,054.03 crore allocated (Annual Development Program, ADP) for all religious groups, including Muslims. So, the non-Muslims of the country get just 1.9%, while they represent about 10% of the population! They are deprived of 81% of their fair share!
 
 Momen talked about the Quran being placed near the feet of a deity sparking outrage in the country - meaning too many Muslims with too much of Islamic sentiments would be too angered over the matter! Obviously, no Hindu in his right mind could have done that, as they are fully aware of the excessive Islamic sentiments in the country, which have been behind the Muslim mobs making their life hell in their homeland of centuries. Indeed, no Hindu did it; it was done by a Muslim.
 
