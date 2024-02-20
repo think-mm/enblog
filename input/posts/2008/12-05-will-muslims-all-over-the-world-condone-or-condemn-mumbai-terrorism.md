@@ -76,16 +76,16 @@ The crimes of the kuffaar are coming back to haunt them. its chicken come home t
 
 Islam: Religion of Peace.
 
-Is it really so hard just to say: we unequivocally condemn the murders in Mumbai?
+Is it really so hard just to say: we unequivocally condemn the murders in Mumbai? 
 
-UPDATE: Via Stable Hand, just when you thought it couldn't get worse, from Joseph Cohen's forum: [Happy Thanksgiving: USA Blood Pudding Stuffing, dead jews in Bombay today, God Willing](https://www.revolutionmuslim.com/forum/index.php?showtopic=1349)
+UPDATE: Via Stable Hand, just when you thought it couldn't get worse, from Joseph Cohen's forum: [Happy Thanksgiving: USA Blood Pudding Stuffing, dead jews in Bombay today, God Willing](https://www.revolutionmuslim.com/forum/index.php?showtopic=1349) 
 
-It is good to Give Thanks that jews may very well die as brother Bilal pointed out as the jewish from Crown Heights Brooklyn had set up occupation in that city as well and is now under threat of death in this lovely lovely and happy episode of a Thanksgivings Day adventure. Williamsburg and Crown Heights in New York are so well guarded even by their own Chasid jew police besides New York's police, and what with the islands and limited on and off access and the bridges you almost cannot imagine that a God Damned jew can be killed there. I'm glad they came to Bomb bay to hopefully, God Willing, be killed in it.
+It is good to Give Thanks that jews may very well die as brother Bilal pointed out as the jewish from Crown Heights Brooklyn had set up occupation in that city as well and is now under threat of death in this lovely lovely and happy episode of a Thanksgivings Day adventure. Williamsburg and Crown Heights in New York are so well guarded even by their own Chasid jew police besides New York's police, and what with the islands and limited on and off access and the bridges you almost cannot imagine that a God Damned jew can be killed there. I'm glad they came to Bomb bay to hopefully, God Willing, be killed in it. 
 
-Oh, God……..
+Oh, God…….. 
  
 
-Please click to this URL to listen an incredible video: http://mypetjawa.mu.nu/archives/195176.php
+Please click this URL to listen an incredible [video on mypetjawa.mu.nu](http://mypetjawa.mu.nu/archives/195176.php)
 
 
 -----

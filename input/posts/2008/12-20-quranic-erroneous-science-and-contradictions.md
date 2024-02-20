@@ -20,18 +20,26 @@ All wishful apologists usually take selective (pick & choose) verses, taking par
 
 Mullahs and most blind defenders of Quran usually blame the translation of Quran from original Arabic. They will say, translator distorted the verse/verses which was correct in it's original Arabic etc. And they will insist that, certain verse or verses are only understood by Allah Himself, and human being have limited knowledge, so they should not understand Allah's mystery (Qudroot). And they will insist that Quran should be read with the help of Tafsirs (interpretations) by famous Islamic scholars. But, interestingly Allah told the different things in Quran. Allah asked Muslims to believe Quran's literal meaning and clearly forbade any interpretations of Allah's eternal divine words. Quranic verse: 3:7—clearly prohibited to accept anybody's interpretation of Allah's eternal words. Please read this verse below:   
 
-_\[Quran-3:7\], 
+*\[Quran-3:7\]*,  
 
 > He it is Who has revealed the Book to you; some of its verses are clear and decisive, they are the basis of the Book, and others are allegorical; then as for those in whose hearts there is perversity they follow the part of it which is allegorical, seeking to mislead and seeking to give it (their own) interpretation. but none knows its interpretation except Allah, and those who are firmly rooted in knowledge say: We believe in it, it is all from our Lord; and none do mind except those having understanding.
 
-Allah says in Quran that, "I made Qur'an very clear, simple and easy and written in Arabic (44:58, 54:22, 54:32, 54:40) so that Muslims (Arabs of course) can understand very easily?" Please listen what Merciful Allah says in Qur'an: " But We have indeed made the Qur'an easy to understand and remember: then is there any that will receive admonition? (54:22); and "We have made it a Qur'an in Arabic, that ye may be able to understand and learn wisdom (43:3)". Allah emphatically declared that He made Quran very easy so that Muslims can understand very easily.  
+Allah says in Quran that
+
+> I made Qur'an very clear, simple and easy and written in Arabic (44:58, 54:22, 54:32, 54:40) so that Muslims (Arabs of course) can understand very easily?
+
+Please listen what Merciful Allah says in Qur'an:
+
+> But We have indeed made the Qur'an easy to understand and remember: then is there any that will receive admonition? (54:22); and "We have made it a Qur'an in Arabic, that ye may be able to understand and learn wisdom (43:3).
+
+Allah emphatically declared that He made Quran very easy so that Muslims can understand very easily.  
 
 No where in the Quran Allah says that my words must be read with the help of Quranic interpretations and commentaries! Quranic Interpretations and Tafsirs have been invented by some wishful educated Mullahs only to hide Quranic absurdities and contradictions. In fact, Quranic verses are mostly simple to understand and any elementary student can understand very easily. Therefore, claiming that Quran is difficult to understand is ludicrous and lame excuse only to hide Allah's myriads of inanities and flaws.  
 
 Below, I have produced some actual and internationally accepted translated Quranic verses (without any change by me) to prove that, Quran do not have any scientific theory as some apologists claim. Rather, Qur'an contains many historical, ethical, logical contradictions and myriads of scientific flaws.  
 
 
-\[Special note: Quranic ayats were taken from Maulana A. Yousuf Ali’s English translations of Holy Quran. Maulan Yousuf Ali’s translations are internationally accepted as authentic & unbiased. Some of the recent Quranic translation has biased interpretations and word changing (pick & choose) to match with the utopia of science in Quran. Readers may be informed that, the Quranic translation by Maulana A. Yousuf Ali is considered most reliable & Authentic by most Islamic Scholars throughout the world. Hadiths were taken from Bukhari Sharif (Sahih).\]
+\[**Special note**: Quranic ayats were taken from Maulana A. Yousuf Ali's English translations of Holy Quran. Maulan Yousuf Ali's translations are internationally accepted as authentic & unbiased. Some of the recent Quranic translation has biased interpretations and word changing (pick & choose) to match with the utopia of science in Quran. Readers may be informed that, the Quranic translation by Maulana A. Yousuf Ali is considered most reliable & Authentic by most Islamic Scholars throughout the world. Hadiths were taken from Bukhari Sharif (Sahih).\]
 
 
 **A. Some Cosmological Flaws: (Scientific contradictions)**  
@@ -57,13 +65,12 @@ How many days did it take to create Heavens and Earth?
 > 4. He Who created the heavens and earth and all that is between, in Six Days [Quran 25:59]
 
 The above verses clearly state that God (Allah) created the heaven and the Earth in 6 days. But the verses below stated:   
-<blockquote>
-- Is it that ye deny Him who created the earth in Two Days ? [Quran-41:9]
-- He set on the (earth) Mountains standing firm high above it, and bestowed blessing on the earth, and measured therein all things to give them nourishment in due proportion, in FOUR DAYS… [(Quran- 41:10]
-- So He completed them (heavens) as seven firmaments in Two days and… [Quran-41:12]
 
-</blockquote>
-***Now do the math***: 2 (for earth) + 4 (for nourishment) + 2 (for heavens) = 8 days; and not 6 days.  
+> 1. Is it that ye deny Him who created the earth in Two Days ? [Quran-41:9]
+> 2. He set on the (earth) Mountains standing firm high above it, and bestowed blessing on the earth, and measured therein all things to give them nourishment in due proportion, in FOUR DAYS… [\(Quran- 41:10]
+> 3. So He completed them (heavens) as seven firmaments in Two days and… [Quran-41:12]
+
+**Now do the math**: 2 (for earth) + 4 (for nourishment) + 2 (for heavens) = 8 days; and not 6 days.  
 
 
 **Inheritance laws of Allah** [verses: 4:11-12 and 4:176]  
@@ -73,30 +80,30 @@ Quran 4:11-12 and 4:176 state the Qur'anic inheritance law. When a man dies, and
 In these verses above one can see the total property after adding all distributed parties adds up more than the available property, i.e., totals become more than 1 which are: 1.125 and 1.25. How come? A gross mathematical errors, is not it?   
 
 Let us examine Allah's mathematical genius once more in different fashion:   
+  
+Man dies leaving behind  
+Wife is 1/8 = 3/24 (4:12)  
+Daughters 2/3 = 16/24 (4:176)  
+Father 1/6 = 4/24 (4:11)  
+Mother1/6 = 4/24(4:11)  
+Total = 27/24=1.125  
 
-Man dies leaving behind
-Wife is1/8 = 3/24 (4:12)
-Daughters 2/3 = 16/24 (4:176)
-Father 1/6 = 4/24 (4:11)
-Mother1/6 = 4/24(4:11)
-Total = 27/24=1.125   
-
-Woman dies leaving no descendants or ascendants
-Husband, (1/2) = 1/2 (4:12)
-Brother (everything) = 2/2(4:176)
-Total = 3/2 =1.5   
-
-Woman dies leaving no ascendants or descendants and no brother
-Husband, (1/2) = 3/6 (4:12, 4:176)
-Sister (1/2) = 3/6 (4:11)
-Mother (1/3) = 2/6 (4:11)
-Total = 8/6 =1.33   
-
-Man dies leaving behind:
-Wife1/4 = 3/12 (4:12)
-Mother 1/3 = 4/12 (4:11)
-Sisters 2/3 = 8/12 ((4:176)
-Total = 15/12 =1.25   
+Woman dies leaving no descendants or ascendants  
+Husband, (1/2) = 1/2 (4:12)  
+Brother (everything) = 2/2(4:176)  
+Total = 3/2 =1.5  
+  
+Woman dies leaving no ascendants or descendants and no brother  
+Husband, (1/2) = 3/6 (4:12, 4:176)  
+Sister (1/2) = 3/6 (4:11)  
+Mother (1/3) = 2/6 (4:11)  
+Total = 8/6 =1.33     
+  
+Man dies leaving behind:  
+Wife1/4 = 3/12 (4:12)  
+Mother 1/3 = 4/12 (4:11)  
+Sisters 2/3 = 8/12 ((4:176)  
+Total = 15/12 =1.25  
 
 Adding all distributed properties add up more than the available property, i.e., total becomes more than 1 which are: 1.125, 1.5, 1.33, and 1.25 respectively. Surely, Allah's mathematics was really divine!!!  
 
@@ -178,11 +185,11 @@ Modern science tells us- whole thing around the earth is space and there is no b
 **(10) Why Mountains were created (?)**  
 
 In the following verses, Quran claims that mountains were set on the earth so that the earth never can shake when human being dwelt in it.   
-<blockquote>
-- And We have set on earth firm mountains, lest it should shake with them. [Quran- 21:31]
-- And he has cast the earth firm mountains lest it shake with you… [Quran-16:15]
-- He created the heavens without supports that you can see, and has cast onto the earth firm mountains lest it shake with you… [Quran-31:10]
-</blockquote>
+
+> 1. And We have set on earth firm mountains, lest it should shake with them. [Quran- 21:31]
+> 2. And he has cast the earth firm mountains lest it shake with you… [Quran-16:15]
+> 3. He created the heavens without supports that you can see, and has cast onto the earth firm mountains lest it shake with you… [Quran-31:10]
+
 It is clearly understood that Quranic author was completely ignorant about the geological reasoning for existence of mountains. He saw that mountains are huge and heavy. So, He (Allah) thought mountains actually prevent Shaking (Earthquake) of the earth. Fact is, this particular reason for existence of mountains is a direct contradiction with modern geological knowledge. Geology proves to us that movement of tectonic plates, or earthquake itself causes mountains to be formed. Besides, we know very well that, every year several dozens of earthquakes happen on earth. Then what is the result of Allah's promise? Can we believe that, Mountains are there to prevent earthquake?  
 
 
@@ -197,7 +204,7 @@ Quran never said everything in the universe does move/rotates, but Quran always 
 Ayats mentioned above could be found over and over, again and again almost in every other pages of Quran. Because, Quranic author, standing in the open Arab desert saw very well that, every morning SUN is rising from the East and gradually (appointed time or fixed time) setting to the West, and as a result, day and night follows. Allah truly mentioned this wrong knowledge (sun moving) of pre-historic people. Every time Allah mentioned sun & moon, He mentioned day & night, as if, it is due to sun's movement day and night follows. Allah also saw, both the sun and moon are traveling seemingly at the same sky area and He was amazed how come they do not collide or how come sun can not catch moon(?) That was the sun's movement Allah was talking about, which cave people could have said millions of years ago or a boy of five can say that very accurately. Is not it? Who does not see Sun's movement from east to west?
    
 
-**Truth about Sun's movement **  
+**Truth about Sun's movement**  
 
 Although, modern science believes that Sun also moves, Sun is considered stationary for earth in real/practical sense, because earth is stuck to the giant gravitation of the sun and continuously moves along with the sun wherever it goes, just the way we are stuck to earth's gravity and do not feel earth's movement at all. Yet science (people, not Allah) discovered that sun also moves, but what is the sun's course? In real world, Sun takes about 226 million years to make just one complete circle through the Solar galaxy. And this movement of sun has nothing to do with DAY & NIGHT of the earth. Then, why Allah was telling almost in every pages of Quran: " I compelled sun and moon to travel for fixed/appointed times (supposedly 12 hours daily) and day and night follows" Why? There was no valid reason why Allah would say again and again about the Sun's final stage destruction (?) of "white dwarf", as some unscrupulous Mullahs claimed. Could any body tell me exactly what relation does it (sun's movement) have with day and night?   
 
@@ -234,23 +241,26 @@ On several previous Ayats (preceding to this verse above) were full of cautions 
 Yousuf Ali comments in his Tafsir: beautiful blue sky overhead (which we take for granted in sunshine) will be shattered to pieces. Modern science tells us that there is no such thing as roof/sky or any canopy over the earth, rather all around earth is a limitless space. Only Allah knows what will break/shattered or will get soft/flimsy or how doors will open , there is no walls, where from doors will come? In some Ayats (Quranic verses) Allah threatened kafirs by saying: "I (Allah) will throw broken pieces of sky over your head."   
 
 
-**(15) Quran foretold about cosmic expansion of Big-bang theory! **  
+**\(15\) Quran foretold about cosmic expansion of Big-bang theory!**  
 
 Allah says:  
 <blockquote><font face="Verdana">And We have spread out the (spacious) earth: How excellently We do spread out! [Quran-51:48]  
 
-"With the power and skill did we construct the Firmament; for it is We Who create the vastness of space." [Quran-51:47]  
+[Quran-51:47],  
+> With the power and skill did we construct the Firmament; for it is We Who create the vastness of space.  
 
-Have We not made the earth as a wide expanse, And the mountains as pegs (anchor)? [Quran-78: 6-7]  
+[Quran-78: 6-7],  
+> Have We not made the earth as a wide expanse, And the mountains as pegs (anchor)?  
 
-And the earth We have spread out (like a carpet); set thereon Mountains firm and immovable; [Quran-15:19]</font></blockquote>
+[Quran-15:19],  
+> And the earth We have spread out (like a carpet); set thereon Mountains firm and immovable;  
+
 *Shune-nozul* (*Tafsir*) by Maulana Yousuf Ali:  
 <blockquote><font face="Verdana">"The space in heavens above, Who can comprehend it but He Who made it sustains it. The globe of the earth under your feet, how great its expanse seems over sea and land, and spread out for you like a wonderful carpet or bed of rest." </font></blockquote>
 Now, does this match with space expansion of our universe according to the Big-bang theory? Certainly not. Quran never told that "Universe" is expanding; rather Allah talked about the unlimited open space between the Earth and the imaginary sky. And Allah also bragged that He made the earth wide and spacious. Allah was sure that earth is flat like a carpet and mountains are there to anchor the earth so that earth does not shake with us. Is there any modern science here? APOLOGISTS TRIED TO EXPLAIN THESE WORDS "EXPANSE" OR "SPEAD OUT" AS THE COSMIC EXPANSION OF THE UNIVERSE. This is a pure distortion of the actual intention of the Ayat.
 
-   
 
-**(16) Big-Bang theory foretold in Quran! **  
+**\(16\) Big-Bang theory foretold in Quran!**  
 
 Islamists by their ultra-wishful interpretations of the Quranic verse: 21:30 shamelessly and foolishly try to fool the gullible poor Muslims and some westerners that Holy Quran already told about Big-bang theory 1400 hundred years ago! Source of their weird claim is the verse below:  
 <blockquote><font face="Verdana">"Do not the Unbelievers see that the heavens and the earth were joined together (as one unit of creation), before we clove them asunder? We made from water every living thing. Will they not then believe?" [Quran-21:30, Yousuf Ali]</font></blockquote>
@@ -275,12 +285,16 @@ If we believe Quranic creation theory, or Biblical genealogy then, the age of th
 
 **B. Some Embryological contradictions/errors**  
 
-Man is Created From Clotted blood(?)  
-<blockquote><font face="Verdana">Then fashioned We the drop (semen) a CLOT OF CONGEALED BLOOD then fashioned We the clot a little lump (fetus), fashioned We the little lump into bones, then clothed the bones with flesh, and then produced it another creation. So blessed be Allah, the Best of Creators. [Quran-23:14]</font></blockquote>
-(Bengali translations of the Quran read: "*Zamaa't Raokto theeke Manoosh banieesi*" And this Ayat has been repeated again and again throughout the Quran)  
-<blockquote><font face="Verdana">• Then he becomes a CLOT; then (Allah) shaped and fashioned… [Quran-75:38]  
+Man is Created From Clotted blood(?), [Quran-23:14]  
+> Then fashioned We the drop (semen) a CLOT OF CONGEALED BLOOD then fashioned We the clot a little lump (fetus), fashioned We the little lump into bones, then clothed the bones with flesh, and then produced it another creation. So blessed be Allah, the Best of Creators.
 
-• Created man, out of a mere clot of congealed blood [Quran-96:2]</font></blockquote>
+(Bengali translations of the Quran read: "*Zamaa't Raokto theeke Manoosh banieesi*" And this Ayat has been repeated again and again throughout the Quran)  
+[Quran-75:38]  
+> - Then he becomes a CLOT; then (Allah) shaped and fashioned…   
+
+[Quran-96:2],  
+> - Created man, out of a mere clot of congealed blood  
+
 There are serious scientific problems here.  
 
 A blood clot can not grow into anything. This idea came from the Greeks. Aristotle erroneously believed that humans are originated from the action of male semen upon female menstrual blood, which is absolutely an incorrect assumption. The Quran's assertion on the clot (*alaqa*) is completely wrong about human development, since there is absolutely no stage during which the embryo consists of a clot. The only situation in which an embryo might appear like a clot is during a miscarriage, in which case the clotted blood which is seen to emerge (much of which comes from the mother) is solidified and by definition no longer alive. Therefore, if ever an embryo appeared to look like a clot it would never develop any further into a human; it would be a dead mass of bloody miscarriage. Since Prophet Muhammad had some thirteen wives it is entirely possible that he would be very familiar with miscarriages.  
@@ -312,17 +326,22 @@ EVOLUTION is the greatest triumphs of human discovery. Evolution is not a periph
 
 For the last 100 years or so, the galloping advancement of science, particularly the life science, is purely on the basis of Darwin THEORY OF EVOLUTION and definitely not on the basis of CREATION THEORY. Science does not believe in CREATION theory and Religion does not believe in EVOLUTION theory. Truth is, if Religion wants to mix-up with evolution then, we shall have to consider Adam as Ape-like Neanderthal or Homo-erectus early human, and not a perfect human having all the intelligential qualities, as the Bible or Quran described.  
 
-Here in this Verse, Allah Challenges People: Who Can Tell Whether the Conceived is Male or Female (?)  
-<blockquote><font face="Verdana">• Verily the knowledge of the Hour is With God (alone). It is He Who sends down rain, and He who knows what is in the wombs of mothers…. [Quran-31:34]</font></blockquote>
+Here in this Verse: \[Quran-31:34\], Allah Challenges People: Who Can Tell Whether the Conceived is Male or Female (?)  
+> Verily the knowledge of the Hour is With God (alone). It is He Who sends down rain, and He who knows what is in the wombs of mothers ...
+
 Who does not believe the fact that, actually mankind can predict very accurately (99.5%) when rain will fall and can predict (99.8%) the sex of the child inside a mother's womb? Scientists also predict that, in the next five years weather predictions will be successfully correct almost 100%. Perhaps Allah could not imagine this.  
 
 
 **C. Historical blunders in Quran**  
 
-In several Suras the Qur'an confuses Mary the mother of Jesus [Miriam in Hebrew] with Miriam the sister of Aaron and Moses, and daughter of Amram which is about 1400 years off.   
-<blockquote><font face="Verdana">"At length she brought (the babe) to her people, carrying him (in her arms), They said: "O Mary! Truly a strange thing has thou brought! "O sister of Aaron, thy father was not a man of evil, nor your mother a woman unchaste!" [Sura:19:27-28]  
+In several Suras the Qur'an confuses Mary the mother of Jesus [Miriam in Hebrew] with Miriam the sister of Aaron and Moses, and daughter of Amram which is about 1400 years off.  
 
-And Mary, the Daughter of Imran, who guarded her chastity, and We breathed into (her body) of our spirit; and she testified to the truth of the words of her Lord, and of His revelations, and was one of the devout (servants). [Sura:66:12]</font></blockquote>
+per \[Sura:19:27-28\],
+
+> At length she brought (the babe) to her people, carrying him (in her arms), They said: "O Mary! Truly a strange thing has thou brought! "O sister of Aaron, thy father was not a man of evil, nor your mother a woman unchaste!  
+
+per \[Sura:66:12\],
+> And Mary, the Daughter of Imran, who guarded her chastity, and We breathed into (her body) of our spirit; and she testified to the truth of the words of her Lord, and of His revelations, and was one of the devout (servants).  
 
 **Allah copied draconian code of law from the ancient king Hammurabi!**  
 
@@ -333,46 +352,59 @@ And the Allah's law in Qur'an [5:45] says: "life for life, hand for hand, eye fo
 What is the difference between the code? Don't we see any similarities between the judgment of King Hammurabi (a human), and Omnipotent Allah? Here in this decree of judgment, who probably copied from whom? Was not the Allah (which was Muhammad himself) copied from that Kaffir Hammurabi and sold it in the name of his imaginary Allah?  
 
 
-**D. Some samples of utterly unethical verses in Quran **  
+**D\. Some samples of utterly unethical verses in Quran**  
 
-*(1) Sex with slave girls*
-   
-<blockquote><font face="Verdana">"Not so the worshippers, who are steadfast in prayer, who set aside a due portion of their wealth for the beggar and for the deprived, who truly believe in the Day of Reckoning and dread the punishment of their Lord (for none is secure from the punishment of their Lord); who restrain their carnal desire (save with their wives and their slave girls, for these are lawful to them: he that lusts after other than these is a transgressor..." [QURAN - 70:22-30]</font></blockquote>
+*(1) Sex with slave girls*  
+per \[QURAN - 70:22-30\],
+
+> Not so the worshippers, who are steadfast in prayer, who set aside a due portion of their wealth for the beggar and for the deprived, who truly believe in the Day of Reckoning and dread the punishment of their Lord (for none is secure from the punishment of their Lord); who restrain their carnal desire (save with their wives and their slave girls, for these are lawful to them: he that lusts after other than these is a transgressor..."  
+
 This verse shows that Muslim men were allowed to have sex with their wives (of course) and their slave girls.   
 
 QURAN 23:5-6:  
-<blockquote><font face="Verdana">"...who restrain their carnal desires (except with their wives and slave girls, for these are lawful to them..."</font></blockquote>
+> ...who restrain their carnal desires (except with their wives and slave girls, for these are lawful to them...
+
 Again, Muslim men were allowed to have sexual relations with their wives and slave girls.   
 
-QURAN - 4:24:   
-<blockquote><font face="Verdana">"And all married women are forbidden unto you save those captives whom your right hand possess. It is a decree of Allah for you. (Muhammad Pickthall's English translation of the Quran). </font></blockquote>
-QURAN - 33:50:   
-<blockquote><font face="Verdana">"Prophet, We have made lawful to you the wives whom you have granted dowries and the slave girls whom God has given you as booty;..."</font></blockquote>
+QURAN - 4:24:  
+
+> And all married women are forbidden unto you save those captives whom your right hand possess. It is a decree of Allah for you. (Muhammad Pickthall's English translation of the Quran).  
+
+QURAN - 33:50:  
+> Prophet, We have made lawful to you the wives whom you have granted dowries and the slave girls whom God has given you as booty;...
+
 This verse is for Muhammad. Supposedly, God allows Muhammad to have sex with his slave girls.   
 
 The above verses are only a few I have mentioned out of numerous such verses scattered throughout the Quran. What could be more unethical matter than having sex with slave girls? Allah (SBT) graciously allowed Muslims to have sex with slave girls. Prophet Muhammad himself and his disciples routinely used to have sex with their slave girls. Islamic apologists try to make the truth foggy by their wishful excuse that, actually Allah meant to say, "Muslims can have sex with slave girls after marrying them". Problem is after the slave girl is married by a Muslim man, how in the world Allah or any sane person can still call that wife (slave-wife) as the slave girl? Does a slave girl never change her title even after she is married?   
 
 Many erudite Islamic pundits emphatically claim that Allah sent Quran as the super guidance for not only Muslims, but for all mankind. My questions to them are as follows:   
-<blockquote>
-a) Could you tell us in which country on earth this super guidance is followed?
-b) Could you tell us if you find some man in any civilized country having sex with his slave girl, what will be your conclusion about that guy?
-c) Should all human kind follow this unethical Quranic guidance to day? 
-</blockquote>
+
+> a) Could you tell us in which country on earth this super guidance is followed?  
+> b) Could you tell us if you find some man in any civilized country having sex with his slave girl, what will be your conclusion about that guy?  
+> c) Should all human kind follow this unethical Quranic guidance to day?  
+
 
 (2) *Hilla Marriage-A curse, shame, and humiliation for women*   
 
-<dl><dt><font face="Verdana">So if a husband Divorces his wife (irrevocably), he can not, after that, re-marry her until after she has married another husband and he has divorced her. In that case there is no blame on either of them if they re-unite; provided they feel that they can keep the limits ordained by God [Quran-2:230, Yousuf Ali]. </font></dt></dl><font face="Verdana">Sahi Bukhari: #564:  
-<blockquote><font face="Verdana">Syed ibne ukair..Aisha (ra) narrated that wife of Rifakurzi told to the apostle of God that (because) my husband Rifa has divorced me I married another man named Abdur rahman ibne kurzi but I want to go back to my former husband. Then Prophet Muhammad (pbuh) told—if you want to go back to your former husband you must have sex with Abdur Rahman and then if he divorce you then you can go to your former husband, otherwise it can not happen. </font></blockquote>
+So if a husband Divorces his wife (irrevocably), he can not, after that, re-marry her until after she has married another husband and he has divorced her. In that case there is no blame on either of them if they re-unite; provided they feel that they can keep the limits ordained by God [Quran-2:230, Yousuf Ali].  
+
+Sahi Bukhari: #564:  
+> Syed ibne ukair..Aisha (ra) narrated that wife of Rifakurzi told to the apostle of God that (because) my husband Rifa has divorced me I married another man named Abdur rahman ibne kurzi but I want to go back to my former husband. Then Prophet Muhammad (pbuh) told—if you want to go back to your former husband you must have sex with Abdur Rahman and then if he divorce you then you can go to your former husband, otherwise it can not happen.  
+
 My dear honorable readers how do you like these above Quranic verse and sahi hadith? Are they sounding ethical to at all? After reading the above holy verse#2:230—any elementary student will agree with me that, Qur'an and Hadith strongly and clearly commands for Hilla marriage to purify the divorced wife to be taken back by the former husband. The irony is, how can this Hilla marriage do the purification of an innocent divorced wife? Who is at fault, in the first place, in this scenario of a hasty divorce? Quite obviously it was the husband who had made the mistake. Then, why in the world poor wife has to be punished (sleep with another strange man) for the crime she did not commit? Because, of all merciful Allah said so in the Holy Qur'an, Period. What a compassionate judgment from our Merciful Allah!   
 
 (3) *Adoption in Islam was prohibited by Allah*  
 
 Islam prohibits adopting children, Period. Adoption in the technical sense is not allowed in Muslim Shriah law. This is because Allah does not like this gesture of adopting orphan children. So Allah commanded his prophet to marry Zainab Bint Jahsh in order to abolish pagan custom (*Fatawa al-Imam*)." Al-sabuni states,  
-<blockquote><font face="Verdana">"As to Zainab Bint Jahsh, the Messenger of Allah married for no higher wisdom than to abolish the heresy of adoption (A-sabuni)." </font></blockquote>
-It follows from this revelation that the adopter may marry the ex-wife of his adopted son and vice-versa.   
-<blockquote><font face="Verdana">"Muhammad is not the father of any of your men, but [he is] God's Messenger and the Seal of the Prophets. God is Aware of everything!" [Sura al-Ahzab 33:40]  
+> As to Zainab Bint Jahsh, the Messenger of Allah married for no higher wisdom than to abolish the heresy of adoption.
 
-"We married her off to you so that there would be no objection for believers in respect to their adopted sons' wives once they have accomplished their purpose with them. God's command must be done!" [Sura al-Ahzab 33:37]</font></blockquote>
+It follows from this revelation that the adopter may marry the ex-wife of his adopted son and vice-versa.   
+per \[Sura al-Ahzab 33:40\],  
+> Muhammad is not the father of any of your men, but [he is] God's Messenger and the Seal of the Prophets. God is Aware of everything!  
+
+per \[Sura al-Ahzab 33:37\],
+> We married her off to you so that there would be no objection for believers in respect to their adopted sons' wives once they have accomplished their purpose with them. God's command must be done!"  
+
 Thus Prophet Muhammad married Zainab in order to provide a good example of what the All-wise legislator was seeking to establish by way of rights and privileges for adoption.   
 
 In the verse (33:37) there is stated a particular purpose for this revelation and action of Muhammad. It is not for himself, but it is for the future of the Muslim community. It is so that in future there may not be a problem if anybody (father-in-law) wants to marry the divorced wife of an adopted son. "We permitted you to marry her so that it may hence be legitimate and morally blameless for a believer to marry the wife of his adopted son." It is a mystery why in the world any father-in law will need to marry his adopted son's wife which is extremely unethical.   
@@ -380,24 +412,23 @@ In the verse (33:37) there is stated a particular purpose for this revelation an
 Pre-Islamic Arab Custom: Adoption of orphan/helpless child was a very popular and moral practice amongst pre-Islamic Arabs. By adopting orphan/helpless child, they used to consider adopted child as their own. And they used to pass onto them the adopter's genealogy and name, his investment of them with all the rights of the legitimate son including that of inheritance and the prohibition of marriage on grounds of consanguinity. I don't know, how in the world Allah could dislike such noble deeds. I am not sure what percentage of Muslims actually knows this divine law. I do admit that I never knew this and, I was stunned when I first learnt this from a real Mullah. How and why was this noble custom among human being prohibited? Only Merciful Allah knows it!
    
 
-E. **Self-contradictory Quranic verses **  
+E. **Self-contradictory Quranic verses**  
 
 Which one is correct:  
-> There is no Compulsion in religion…. [Quran-2:256]
-
+ [Quran-2:256],  
+> There is no Compulsion in religion….  
 
 OR  
 
-<blockquote>
-- Fight those who do not profess the true faith (Islam) till they pay  the polltax (jiziya) with the hand of humility. [Quran-9:29]
-- Then, when the sacred months have passed, slay the idolaters wherever ye find them and take them captive, and besiege them and prepare for them each ambush…. [Quran-9:5]
-- When you meet the unbelievers in the Jihad strike off their heads…. [Quran-47:4]
-- And slay (kill) them wherever ye catch them, and turn them out from where they have turned you out such is the reward of those who suppress faith. [Quran-2:191]
-- O Apostle! Rouse the believers to the fight…(against) unbelievers. [Quran-8: 65]
-</blockquote>
-Very often apologetics claim that, Islam is a religion of peace and there is no compulsion. Yet, punishment of an apostate in Islam is, of course, death penalty.
+> - Fight those who do not profess the true faith (Islam) till they pay  the polltax (jiziya) with the hand of humility. [Quran-9:29]  
+> - Then, when the sacred months have passed, slay the idolaters wherever ye find them and take them captive, and besiege them and prepare for them each ambush…. [Quran-9:5]  
+> - When you meet the unbelievers in the Jihad strike off their heads…. [Quran-47:4]  
+> - And slay (kill) them wherever ye catch them, and turn them out from where they have turned you out such is the reward of those who suppress faith. [Quran-2:191]  
+> - O Apostle! Rouse the believers to the fight…(against) unbelievers. [Quran-8: 65]  
 
-F. **Meaningless Recitation of Quranic verses**   
+Very often apologetics claim that, Islam is a religion of peace and there is no compulsion. Yet, punishment of an apostate in Islam is, of course, death penalty.  
+
+F. **Meaningless Recitation of Quranic verses**  
 
 Millions of devoutly fanatical and gullible Muslims (Arabs and non-Arabs) recite (parroting) Quranic verses at least 5 times daily. Strange thing is non-Arab Muslims do not understand the meaning of a single word at all. Yet, unlike any others, Muslims recite their Quran like '*Tantor Montor*' or '*Abra-ka-dabra*' of a magician, or like "Mantro" of a witch hunter. From the very childhood brainwashing, these Muslims were taught that reciting Holy Quran even without understanding any meaning is the best practice of worshipping Allah and can earn unlimited blessings from Allah. Therefore, these Islamic Zombies recite Quranic verses with sweet melodious voice daily, and they will also recite Quranic verses during their daily five time prayers. Even western educated highly qualified devout Muslims have no qualm or shame that they do not really understand what they are reciting from the Qur'an.  
 
@@ -412,7 +443,7 @@ Funny thing is, they will recite Quranic verses (while praying) which actually d
 
 The primary source of the sudden utopia of these crazy Islamic science discoveries in Quran was the EUREKA by Maurice Bucaille.  
 
-*MAURICE BUCAILLE*   
+*MAURICE BUCAILLE*  
 
 Who was Maurice Bucaille? Was he a world famous scientist? Or, Was he a Nobel laureate? Or, was he an authority in theology, Embryology, or Astronomical science?  
 
@@ -433,6 +464,7 @@ The contradictions I have illustrated in this article are only some samples, and
 In Bengali society there is a proverb: *"Ka baalte Kalikatta buz'en"* (you understand Calcutta when 'C' is uttered). But in this subject of Quranic interpretation, wishful Mullahs make "Ka" not just (only) Kalikatta, they can make Bombay, Madras, Delhi, Karachi, London, New York and what not by 'Ka'. They can make almost anything to make a good match to Allah's saying. And they do not even care whether people can swallow it or not.  
 
 Finally, I maintain my assertion that Qur'an possesses many contradictions/scientific flaws, ethical, historical and logical blunders and of course ample inconsistencies and redundancies. Yet, wishful apologists will never see what we can see, because of this great saying mentioned below:  
+
 **Oliver Wendell Holmes**,  
 > The mind of a bigot is like the pupil of the eye; the more light you pour upon it, the more it will contract.
 
@@ -448,7 +480,7 @@ Finally, I maintain my assertion that Qur'an possesses many contradictions/scien
 7.  Time Magazine: Evolution Vs. Creationism: Up From the Apes.; August 23, 1999
 8.  Bible, Koran and Science, Dr. Morice Buchaile, translated by Akhterul Alam,  
     Published by the Rangpur Publications, Bangladesh, 1986.
-9. Avijit Roy - [*Does the Qur’an Have any scientific Miracles?*](https://gold.mukto-mona.com/Articles/avijit/Quran_miracle.html)
+9. Avijit Roy - [*Does the Qur'an Have any scientific Miracles?*](https://gold.mukto-mona.com/Articles/avijit/Quran_miracle.html)
 10. THHuxley, [*Islam and the "Big Bang": A Refutation*](https://gold.mukto-mona.com/Articles/huxley/islam_big_bang.html), Mukto-Mona
 11. Big-Bang Theory: [wikipedia.org/wiki/Big_Bang](https://en.wikipedia.org/wiki/Big_Bang)
 12. The World Book Encyclopedia: Volume 19, world book, inc., Chicago,  
@@ -465,4 +497,4 @@ Hollister, Library of congress cataloging-in-publication data, 6th edition, 1996
 Syed Kamran Mirza was born in a Muslim family of Bangladesh. After having Ph.D. in Biological science he worked as a teacher in the University in Bangladesh for a period of 12 years, now lives in USA. He is the author of the book, "Roots of Islamic Terrorism" published in 2004. And also authored more than 200 articles scrutinizing in various aspects of Islam, some of which have been published in the reputed journals. He can be reached at *mirza.syed at gmail dot com*
 
 
-[this post on internet archive for mm enblog](https://web.archive.org/web/20200808203155/http://enblog.mukto-mona.com/2008/12/11/sufisism-vs-terrorism)
+[this post on internet archive for mm enblog](https://web.archive.org/web/20200808203155/http://enblog.mukto-mona.com/2008/12/20/quranic-erroneous-science-and-contradictions)
